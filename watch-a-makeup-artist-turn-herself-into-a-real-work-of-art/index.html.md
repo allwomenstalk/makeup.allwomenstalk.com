@@ -3,7 +3,7 @@ title: "Watch a Makeup Artist Turn Herself into a Real Work of Art ..."
 description: "Gustav Klimt's the Kiss; Matisse's Beasts of the Sea; Dali's Melting Watch; Degas' Two Dancers Entering the Stage; Marc Chagall's America Windows at the Art Institute of Chicago; More ..."
 url: "https://makeup.allwomenstalk.com/watch-a-makeup-artist-turn-herself-into-a-real-work-of-art/"
 category: "makeup"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Watch a Makeup Artist Turn Herself into a Real Work of Art ...
@@ -88,14 +88,14 @@ To see more of Lexie's stunning makeup art, follow her on Instagram at @lexielaz
 
 ## Related Posts
 
-- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
 - [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
-- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
-- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
+- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
 - [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)

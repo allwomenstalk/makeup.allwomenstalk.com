@@ -3,7 +3,7 @@ title: "8 Cruelty Free Makeup Brands to Support ..."
 description: "Lime Crime; Urban Decay; Aromaleigh; Too Faced; M.a.C; More ..."
 url: "https://makeup.allwomenstalk.com/cruelty-free-makeup-brands-to-support/"
 category: "makeup"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Cruelty Free Makeup Brands to Support ...
@@ -54,16 +54,16 @@ What are your favorite cruelty free makeup brands?
 
 ## Related Posts
 
-- [7 Mascaras with Best Brushes ...](https://makeup.allwomenstalk.com/mascaras-with-best-brushes/)
-- [8 Smooth Cream Blushes ...](https://makeup.allwomenstalk.com/smooth-cream-blushes/)
-- [7 New and Fabulous Must-Try Cosmetics for Summer ....](https://makeup.allwomenstalk.com/new-and-fabulous-must-try-cosmetics-for-summer/)
-- [7 Daily Beauty Products I Cant Live without ...](https://beauty.allwomenstalk.com/daily-beauty-products-i-cant-live-without/)
-- [9 Beauty Products You Absolutely Need This Summer ...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-this-summer/)
-- [loreal color smoky eye shadow glistening](https://makeup.allwomenstalk.com/great-eye-shadow-palettes-for-under-50/)
 - [10 Beauty Tools and Accessories We All Need ...](https://beauty.allwomenstalk.com/beauty-tools-and-accessories-we-all-need/)
-- [7 Essential Highlighters ...](https://makeup.allwomenstalk.com/essential-highlighters/)
-- [7 Best Drugstore Beauty Products ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-2/)
+- [7 Daily Beauty Products I Cant Live without ...](https://beauty.allwomenstalk.com/daily-beauty-products-i-cant-live-without/)
+- [8 Smooth Cream Blushes ...](https://makeup.allwomenstalk.com/smooth-cream-blushes/)
+- [9 Beauty Products You Absolutely Need This Summer ...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-this-summer/)
+- [7 New and Fabulous Must-Try Cosmetics for Summer ....](https://makeup.allwomenstalk.com/new-and-fabulous-must-try-cosmetics-for-summer/)
 - [7 Fresh Spring Makeup Buys ...](https://makeup.allwomenstalk.com/fresh-spring-makeup-buys/)
+- [7 Mascaras with Best Brushes ...](https://makeup.allwomenstalk.com/mascaras-with-best-brushes/)
+- [7 Essential Highlighters ...](https://makeup.allwomenstalk.com/essential-highlighters/)
+- [loreal color smoky eye shadow glistening](https://makeup.allwomenstalk.com/great-eye-shadow-palettes-for-under-50/)
+- [7 Best Drugstore Beauty Products ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-2/)
 - [17 Best Organic Makeup Brands ...](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
 - [7 Places to Buy All-Natural Make-up ...](https://allwomenstalk.com/7-places-to-buy-all-natural-make-up/)
 

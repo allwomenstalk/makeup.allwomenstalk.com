@@ -3,7 +3,7 @@ title: "What Happens When Dior Beauty Takes Center Stage..."
 description: "Dior's Spellbinding Arrival at the Met...; Transformative Beauty and Unwavering Elegance...; A Modern Muse’s Journey...; Your Golden Ticket to Elegance...; More ..."
 url: "https://makeup.allwomenstalk.com/dior-beauty-alexa-chung/"
 category: "makeup"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # What Happens When Dior Beauty Takes Center Stage...
