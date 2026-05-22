@@ -3,7 +3,7 @@ title: "7 70s Makeup Looks ..."
 description: "False Eyelashes; Lots of Mascara; Thick Eyeliner; Bold Eyeshadow; Plenty of Bronzer; More ..."
 url: "https://makeup.allwomenstalk.com/7-70s-makeup-looks/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 70s Makeup Looks ...
@@ -44,15 +44,15 @@ Top Photo Credit: [shaecabriolo](https://www.flickr.com/photos/shaecabriolo/4799
 
 ## Related Posts
 
-- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
-- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
 - [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [paris color stylo smoky eye azure](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
+- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
 - [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
+- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
+- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)

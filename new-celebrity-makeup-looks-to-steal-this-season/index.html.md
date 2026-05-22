@@ -3,7 +3,7 @@ title: "7 New Celebrity Makeup Looks to Steal This Season ..."
 description: "Hayden Panettiere; Alicia Keys; Rihanna; Jessica Alba; Taylor Swift; More ..."
 url: "https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 New Celebrity Makeup Looks to Steal This Season ...
@@ -56,16 +56,16 @@ So girls! These are my celebrity makeup looks that I'm going to steal this seaso
 
 ## Related Posts
 
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
+- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
 - [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [skin drink lush](https://beauty.allwomenstalk.com/must-have-lush-products/)
-- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
-- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
 - [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
+- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

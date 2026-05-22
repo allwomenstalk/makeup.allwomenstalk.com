@@ -3,7 +3,7 @@ title: "7 Beautiful Makeup Color Trends for Spring 2012 ..."
 description: "Terra-Cotta Eyes; Coral Cheeks/Lips; Orchid Purple Shadow; Citrus Eyes; Cornflower Blue; More ..."
 url: "https://makeup.allwomenstalk.com/beautiful-makeup-color-trends-for-spring/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Beautiful Makeup Color Trends for Spring 2012 ...
@@ -45,15 +45,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19482683)
 ## Related Posts
 
 - [old fashion trends that should come back](https://fashion.allwomenstalk.com/trends-from-childhood-that-are-making-a-comeback/)
-- [old trends that should come back](https://fashion.allwomenstalk.com/good-old-trends-that-have-made-their-comeback/)
-- [2012 clothes trends](https://fashion.allwomenstalk.com/exciting-fashion-color-trends-of/)
-- [fashion trends of 2012](https://fashion.allwomenstalk.com/classy-fashion-trends-for/)
 - [2012 sunglasses](https://fashion.allwomenstalk.com/sunglasses-trends-for/)
-- [spring accessory trends](https://fashion.allwomenstalk.com/spring-accessory-trends/)
-- [2012 fashion trends](https://fashion.allwomenstalk.com/top-summer-fashion-color-trends/)
-- [color trends 2012](https://wedding.allwomenstalk.com/wedding-color-trends-for/)
-- [jersey shore makeup](https://beauty.allwomenstalk.com/beauty-trends-inspired-by-the-jersey-shore/)
+- [old trends that should come back](https://fashion.allwomenstalk.com/good-old-trends-that-have-made-their-comeback/)
 - [maroon orange combination](https://fashion.allwomenstalk.com/most-fashionable-color-combinations-for-fall/)
+- [fashion trends of 2012](https://fashion.allwomenstalk.com/classy-fashion-trends-for/)
+- [2012 clothes trends](https://fashion.allwomenstalk.com/exciting-fashion-color-trends-of/)
+- [jersey shore makeup](https://beauty.allwomenstalk.com/beauty-trends-inspired-by-the-jersey-shore/)
+- [2012 fashion trends](https://fashion.allwomenstalk.com/top-summer-fashion-color-trends/)
+- [spring accessory trends](https://fashion.allwomenstalk.com/spring-accessory-trends/)
+- [color trends 2012](https://wedding.allwomenstalk.com/wedding-color-trends-for/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

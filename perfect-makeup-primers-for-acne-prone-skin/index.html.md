@@ -3,7 +3,7 @@ title: "20 Perfect Makeup Primers for Acne Prone Skin ..."
 description: "Anti-Acne Treatment and Matte Foundation Primer; Color Correcting Makeup Primer; Acne Fighting Foundation Primer; Spackle under-Makeup Primer; Oil Free Makeup Primer; More ..."
 url: "https://makeup.allwomenstalk.com/perfect-makeup-primers-for-acne-prone-skin/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 20 Perfect Makeup Primers for Acne Prone Skin ...
@@ -140,14 +140,14 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 - [is baby oil safe for eye makeup remover](https://makeup.allwomenstalk.com/great-alternatives-to-makeup-remover/)
 - [oil absorbing sheets clean and clear](https://skincare.allwomenstalk.com/best-oil-blotting-sheets-to-combat-shiny-skin/)
-- [angels on bare skin](https://skincare.allwomenstalk.com/best-lush-products-for-acne/)
-- [essential oil beauty](https://skincare.allwomenstalk.com/excellent-essential-oils-for-beautiful-skin/)
-- [best shaving cream to prevent razor bumps](https://beauty.allwomenstalk.com/best-shaving-creams-to-try/)
-- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
-- [best moisture cream for face in winter](https://skincare.allwomenstalk.com/best-moisturizers-for-winter/)
 - [how to make hand mask](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
 - [what is the best soap for your skin](https://skincare.allwomenstalk.com/best-soaps-for-beautiful-skin/)
+- [essential oil beauty](https://skincare.allwomenstalk.com/excellent-essential-oils-for-beautiful-skin/)
+- [angels on bare skin](https://skincare.allwomenstalk.com/best-lush-products-for-acne/)
+- [best moisture cream for face in winter](https://skincare.allwomenstalk.com/best-moisturizers-for-winter/)
 - [best drugstore body wash for dry skin](https://skincare.allwomenstalk.com/top-notch-drugstore-body-washes/)
+- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
+- [best shaving cream to prevent razor bumps](https://beauty.allwomenstalk.com/best-shaving-creams-to-try/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 - [10 Best Skin Care Products for 20 Somethings ...](https://allwomenstalk.com/i-am-20-and-fabulous-best-skin-care-products-for-20-something-year-olds/)
 

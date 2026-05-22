@@ -3,7 +3,7 @@ title: "From Your Lattes to Your Face: Pumpkin Spice Makeup is Now a Thing!"
 description: "Pumpkin Latte Highlighter; Pumpkin Velvetine Liquid Lipstick; Game Face Eye Shadow; Sexy Plunge Nail Polish; I'm Real anti-Aging Sheet Mask; More ..."
 url: "https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # From Your Lattes to Your Face: Pumpkin Spice Makeup is Now a Thing!
@@ -62,15 +62,15 @@ What did you think of these pumpkin-themed products? Do you have a favorite fall
 
 ## Related Posts
 
-- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
-- [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
-- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
-- [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
-- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
-- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
-- [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
 - [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
+- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
+- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
+- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
+- [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
 - [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
+- [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
+- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
+- [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
 - [loreal paris color stylo timeless blue spark](https://makeup.allwomenstalk.com/beyond-gorg-fall-eyeshadow-palettes-for-girls-with-brown-eyes/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [9 Halloween Inspired Makeup Products to Play aroun...](https://makeup.allwomenstalk.com/halloween-inspired-makeup-products-to-play-around-with-this-month/)

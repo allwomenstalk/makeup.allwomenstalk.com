@@ -3,7 +3,7 @@ title: "12 New Harry Potter Inspired Liquid Lipsticks ..."
 description: "NAGINI (KOMODO); SIRIUS (Deadly Nightshade); SPELLBOUND; RAVENS CLAW (Raven); BELLATRIX (Bella Donna); More ..."
 url: "https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 12 New Harry Potter Inspired Liquid Lipsticks ...
@@ -53,14 +53,14 @@ Aren't these colors just magical? Which would you use to conjure the most wicked
 ## Related Posts
 
 - [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
-- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
 - [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
-- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
 - [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
+- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
 - [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
+- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
 - [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
 - [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)

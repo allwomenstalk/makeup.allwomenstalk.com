@@ -3,7 +3,7 @@ title: "7 Incredible Celebrity Makeup Looks to Try ..."
 description: "Sienna Miller as Edie Sedgwick in Factory Girl; Leighton Meester as Blair Waldorf on Gossip Girl; Beyonce Knowles as Foxxy Cleopatra in Austin Powers; Anne Hathaway as Selina Kyle in Batman: the Dark Knight Rises; Naya Rivera as Santana Lopez on Glee; More ..."
 url: "https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/"
 category: "makeup"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Incredible Celebrity Makeup Looks to Try ...
@@ -56,16 +56,16 @@ Channel your favorite [movie characters](https://movies.allwomenstalk.com/the-gr
 
 ## Related Posts
 
-- [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
-- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
-- [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
-- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
-- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
-- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
 - [how to make your eyelashes look long](https://makeup.allwomenstalk.com/ways-to-make-your-eyelashes-appear-longer/)
-- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
-- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
 - [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
+- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
+- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
+- [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
+- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
+- [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
+- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
+- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
+- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 
