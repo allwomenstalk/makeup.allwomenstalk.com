@@ -3,7 +3,7 @@ title: "7 Colorful Makeup Trends to Try ..."
 description: "Fuchsia Cheeks; Tangerine Lips; Purple Lips; Orange Eyeshadow; Electric Blue Eyeliner; More ..."
 url: "https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Colorful Makeup Trends to Try ...
@@ -26,7 +26,7 @@ Are you sick of tangerine yet? Well, get used to it because it is the ‘color o
 
 ![Purple Lips](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/05/3_purple-lips_375x500.jpg)
 
-Your first response might be ‘no way’ when it comes to [purple lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/), but it doesn’t have to be as scary as you think. The right shade of purple could, dare we say it, look quite flattering. If a purple matte lipstick is too confronting, you can always try sheerer formulas or lip glosses.
+Your first response might be ‘no way’ when it comes to purple lipstick, but it doesn’t have to be as scary as you think. The right shade of purple could, dare we say it, look quite flattering. If a purple matte lipstick is too confronting, you can always try sheerer formulas or lip glosses.
 
 ## 4. Orange Eyeshadow
 
@@ -58,16 +58,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2181431756709241
 
 ## Related Posts
 
+- [mascara for fine short lashes](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
 - [oval shape face makeup](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-oval-faces/)
+- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [does mascara make eyes look bigger](https://makeup.allwomenstalk.com/great-ways-to-make-your-eyes-look-bigger/)
+- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
 - [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
 - [how to make yourself look younger with makeup](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
-- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
 - [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
 - [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
 - [makeup during chemo](https://makeup.allwomenstalk.com/great-make-up-tips-for-ladies-undergoing-chemo/)
-- [does mascara make eyes look bigger](https://makeup.allwomenstalk.com/great-ways-to-make-your-eyes-look-bigger/)
-- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
-- [mascara for fine short lashes](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

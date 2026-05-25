@@ -3,7 +3,7 @@ title: "Holiday Eye Makeup to End the Year with a Bang ..."
 description: "Smoky Eye Shadow and Lots of Mascara; Winged Liner; Add Some Glitter; Try a Blend of Colors; Shiny Smoky Eye; More ..."
 url: "https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Holiday Eye Makeup to End the Year with a Bang ...
@@ -128,7 +128,7 @@ Sometimes, simple is the way to go.
 
 ![eyebrow,face,nose,eyelash,cheek,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/o2/sc/rsu4b_eyebrow_face_nose_eyelash_cheek_600x599.jpg)
 
-This is such a [glamorous makeup](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/) look for Christmas!
+This is such a glamorous makeup look for Christmas!
 
 ## 21. Bold Winged Liner
 
@@ -141,15 +141,15 @@ What party will you try one of these looks for?
 ## Related Posts
 
 - [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
-- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
-- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
 - [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
 - [best tattoo cover up makeup](https://beauty.allwomenstalk.com/how-to-cover-up-your-tattoos-with-makeup/)
 - [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
-- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
 - [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
-- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
+- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
+- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
+- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
 - [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
+- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

@@ -3,7 +3,7 @@ title: "8 Gorgeous Eye Dusts by Lime Crime ..."
 description: "Twilight Magic Dust Eye Shadow; Nymph Magic Dust Eye Shadow; Cupcake Thief Magic Dust Eye Shadow; Dragon Scales Magic Dust Eye Shadow; Medusa Magic Dust Eye Shadow; More ..."
 url: "https://makeup.allwomenstalk.com/8-gorgeous-eye-dusts-by-lime-crime/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Gorgeous Eye Dusts by Lime Crime ...
@@ -58,16 +58,16 @@ Those are just a few of the high-intensity, long-lasting eye dusts by Lime Crime
 
 ## Related Posts
 
-- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
-- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
-- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [loreal color le smoky eye shadow eternal blue](https://makeup.allwomenstalk.com/best-makeup-palettes-to-start-you-off/)
-- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
-- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
-- [paris stylo amber rush](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
 - [junkie look](https://beauty.allwomenstalk.com/delightfully-fantastic-gift-ideas-for-the-beauty-junkie/)
+- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
+- [paris stylo amber rush](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
+- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
 - [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
+- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
+- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
+- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [8 Prettiest Spring Eyeshadows ...](https://allwomenstalk.com/8-prettiest-spring-eyeshadows/)
 

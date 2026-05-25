@@ -3,7 +3,7 @@ title: "Steal Her Look: the Sultry Lipsticks All the Stars Are Wearing ..."
 description: "Kate Bosworth; Emma Stone; Jessica Alba; Rose Byrne; Allison Williams; More ..."
 url: "https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Steal Her Look: the Sultry Lipsticks All the Stars Are Wearing ...
@@ -66,7 +66,7 @@ Tia's coral lip is everything! She achieved this look with Stila Stay All Day Li
 
 ![Claire Danes](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/hv/hi/xtygiphf_587x882.jpg)
 
-Homeland's Claire Danes nailed the [sultry look](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/) by wearing Chanel Rouge Allure lip color in Flamboyant ([chanel.com](http://www.chanel.com?ref=allwomenstalk.com)) and Chanel Rouge Allure Extrait de Gloss in Pirat ([chanel.com](http://www.chanel.com?ref=allwomenstalk.com)), for $32.
+Homeland's Claire Danes nailed the sultry look by wearing Chanel Rouge Allure lip color in Flamboyant ([chanel.com](http://www.chanel.com?ref=allwomenstalk.com)) and Chanel Rouge Allure Extrait de Gloss in Pirat ([chanel.com](http://www.chanel.com?ref=allwomenstalk.com)), for $32.
 
 Which of these looks are your favorites?
 
@@ -75,13 +75,13 @@ Which of these looks are your favorites?
 - [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
 - [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
 - [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
+- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
 - [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
+- [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
+- [color le stylo smoky emerald conquest](https://makeup.allwomenstalk.com/reasons-to-love-matte-lipsticks/)
 - [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
 - [pretty lips](https://skincare.allwomenstalk.com/tips-for-lovely-lips/)
 - [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
-- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
-- [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
-- [color le stylo smoky emerald conquest](https://makeup.allwomenstalk.com/reasons-to-love-matte-lipsticks/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

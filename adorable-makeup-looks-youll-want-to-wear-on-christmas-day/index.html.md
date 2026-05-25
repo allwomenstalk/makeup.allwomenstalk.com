@@ -3,7 +3,7 @@ title: "Adorable Makeup Looks Youll Want to Wear on Christmas Day ..."
 description: "Dark Matte Lips; Shimmering Eyes; Red Matte Lips; Glittering Lips; Gold Eyeshadow; More ..."
 url: "https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Adorable Makeup Looks Youll Want to Wear on Christmas Day ...
@@ -167,7 +167,7 @@ This makeup look is so perfect, especially for the holidays!
 ![Shimmering and Dark](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/nq/o1/j7rora74565df18abc15b106198559_600x600.jpg)
 
 Source: [Beauty School: Eyeliner 101](https://www.makeup.com/makeup-tutorials/eyes/best-black-eyeliners)
-Keep your eyes shimmering and your lips dark and matte for a [unique makeup](https://makeup.allwomenstalk.com/which-one-of-these-unique-makeup-styles-fits-you/) look this Christmas!
+Keep your eyes shimmering and your lips dark and matte for a unique makeup look this Christmas!
 
 ## 24. Frozen-Inspired
 
@@ -185,14 +185,14 @@ What's your favorite Christmas look in this list? Let me know in the comments!
 
 ## Related Posts
 
-- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
 - [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
-- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
-- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
-- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
-- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
 - [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
+- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
+- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
+- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
+- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
+- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
+- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
 - [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
 - [8 Amazing Makeup Must-Haves for Winter You Simply ...](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)

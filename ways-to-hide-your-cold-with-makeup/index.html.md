@@ -3,7 +3,7 @@ title: "The Right Makeup Application Can Hide That Icky Cold ..."
 description: "Exfoliate; Foundation; Concealer; Blush; Lip Balm; More ..."
 url: "https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Right Makeup Application Can Hide That Icky Cold ...
@@ -44,7 +44,7 @@ Your lips have probably dried out and look like the Sahara desert right about no
 
 ![hair,woman,beauty,photography,lady,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wp/sm/kvkc1_hair_woman_beauty_photography_lady_600x821.jpg)
 
-If you need more than a tinted lip balm then I’d opt for a [moisturizing lipstick](https://makeup.allwomenstalk.com/best-moisturizing-lipsticks-for-hydrated-and-beautiful-lips/). Now is not the time to pull out your matte lipsticks. Apply lip balm first while you’re doing your makeup and then blot off before your apply your lipstick. I’d choose berry and pinks. Stay away from neutrals while you’re getting over this cold. They’ll only wash you out.
+If you need more than a tinted lip balm then I’d opt for a moisturizing lipstick. Now is not the time to pull out your matte lipsticks. Apply lip balm first while you’re doing your makeup and then blot off before your apply your lipstick. I’d choose berry and pinks. Stay away from neutrals while you’re getting over this cold. They’ll only wash you out.
 
 ## 7. Eye Makeup
 
@@ -56,16 +56,16 @@ Being sick sucks but thankfully you don’t have to look as bad as you feel! Mak
 
 ## Related Posts
 
-- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
 - [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
-- [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
-- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
-- [easy valentines day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
-- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
 - [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
+- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
+- [easy valentines day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
+- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 

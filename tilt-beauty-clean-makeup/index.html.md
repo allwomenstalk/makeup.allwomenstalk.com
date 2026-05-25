@@ -3,7 +3,7 @@ title: "TILT Beauty - Introducing TILT Clean Makeup with Accessible Design ..."
 description: "The Inspiration Behind TILT; Innovative Packaging Design; Arthritis Foundation’s Ease of Use Certification; National Psoriasis Foundation Seal of Recognition; Lashscape Mascara; More ..."
 url: "https://makeup.allwomenstalk.com/tilt-beauty-clean-makeup/"
 category: "makeup"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # TILT Beauty \- Introducing TILT Clean Makeup with Accessible Design ...
