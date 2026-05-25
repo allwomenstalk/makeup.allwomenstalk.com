@@ -152,16 +152,16 @@ Wear this alone, or layer it over another neutral shadow for a hint of shimmerin
 
 ## Related Posts
 
-- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
-- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
-- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
-- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
-- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [riche le stylo smoky shadow bronzed](https://makeup.allwomenstalk.com/embellish-your-eyes-with-these-shimmery-spring-shadows/)
-- [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
 - [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
+- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
+- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
+- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
+- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [12 Makeup Tricks for Gorgeous Blue Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-gorgeous-blue-eyes/)
 

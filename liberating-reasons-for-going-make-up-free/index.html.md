@@ -44,16 +44,16 @@ Top Image Source: [blogspot.in](http://brennasbeat.blogspot.com/2012_04_01_archi
 
 ## Related Posts
 
+- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
+- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
 - [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
+- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
 - [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
+- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
 - [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
 - [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
-- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
-- [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
-- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
-- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
 - [7 Reasons Its Important to Replace Your Makeup ...](https://allwomenstalk.com/7-reasons-its-important-to-replace-your-makeup/)
 - [8 Reasons Why Makeup is Good for You ...](https://allwomenstalk.com/8-reasons-why-makeup-is-good-for-you/)
 

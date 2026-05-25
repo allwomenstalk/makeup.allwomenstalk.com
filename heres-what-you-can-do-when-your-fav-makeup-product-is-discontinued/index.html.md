@@ -54,16 +54,16 @@ So before you panic that your makeup will never be the same again, try to track 
 
 ## Related Posts
 
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
-- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
-- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
-- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
-- [paris color riche le stylo smoky shadow azure](https://makeup.allwomenstalk.com/the-prettiest-eyeshadow-palettes-for-fall/)
-- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
 - [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
+- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
+- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
+- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [paris color riche le stylo smoky shadow azure](https://makeup.allwomenstalk.com/the-prettiest-eyeshadow-palettes-for-fall/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
+- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [4 Ways to Fix Your Broken Beauty Products](https://allwomenstalk.com/ways-to-fix-your-broken-beauty-products/)
 

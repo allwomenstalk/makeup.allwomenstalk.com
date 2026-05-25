@@ -46,16 +46,16 @@ So girls, you asked for it and we delivered! These are our top eyeliner tips for
 
 ## Related Posts
 
-- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
-- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
-- [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
 - [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
-- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
-- [makeup tips for darker skin](https://makeup.allwomenstalk.com/fantastic-make-up-tricks-for-dark-skin/)
-- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
-- [eye makeup and glasses](https://makeup.allwomenstalk.com/makeup-tricks-for-eyeglass-wearing-girls/)
-- [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
 - [old makeup](https://makeup.allwomenstalk.com/great-uses-for-old-makeup/)
+- [makeup tips for darker skin](https://makeup.allwomenstalk.com/fantastic-make-up-tricks-for-dark-skin/)
+- [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
+- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
+- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
+- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
+- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
+- [eye makeup and glasses](https://makeup.allwomenstalk.com/makeup-tricks-for-eyeglass-wearing-girls/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

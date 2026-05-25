@@ -62,16 +62,16 @@ So girls, these are just a few of my favorite tinted lip glosses. What about you
 
 ## Related Posts
 
-- [7 Helpful Tips on Choosing the Right Lipstick Shad...](https://makeup.allwomenstalk.com/helpful-tips-on-choosing-the-right-lipstick-shade-for-you/)
 - [7 Best Products for Kissable Lips ...](https://skincare.allwomenstalk.com/best-products-for-kissable-lips/)
-- [preppy makeup looks](https://beauty.allwomenstalk.com/tricks-and-tips-for-pretty-lips-this-fall/)
 - [7 Lipstick Commandments to Follow ...](https://makeup.allwomenstalk.com/lipstick-commandments-to-follow/)
+- [loreal paris color riche le stylo eye shadow infin...](https://makeup.allwomenstalk.com/waterproof-eye-liners/)
+- [7 Steps to Making Your Own Lip Gloss This Summer ....](https://diy.allwomenstalk.com/steps-to-making-your-own-lip-gloss-this-summer/)
+- [how to get pinker lips](https://beauty.allwomenstalk.com/ways-to-get-pinker-lips/)
+- [preppy makeup looks](https://beauty.allwomenstalk.com/tricks-and-tips-for-pretty-lips-this-fall/)
 - [7 Luscious Lip Balms That Youve Got to Have This S...](https://skincare.allwomenstalk.com/luscious-lip-balms-that-youve-got-to-have-this-summer/)
 - [11 Phenomenal Lip Balms to Combat Chapped Lips Thi...](https://skincare.allwomenstalk.com/phenomenal-lip-balms-to-combat-chapped-lips-this-winter/)
-- [7 Steps to Making Your Own Lip Gloss This Summer ....](https://diy.allwomenstalk.com/steps-to-making-your-own-lip-gloss-this-summer/)
 - [7 Winter Tips for Lips That Are Soft and Healthy ....](https://beauty.allwomenstalk.com/winter-tips-for-lips-that-are-soft-and-healthy/)
-- [loreal paris color riche le stylo eye shadow infin...](https://makeup.allwomenstalk.com/waterproof-eye-liners/)
-- [how to get pinker lips](https://beauty.allwomenstalk.com/ways-to-get-pinker-lips/)
+- [7 Helpful Tips on Choosing the Right Lipstick Shad...](https://makeup.allwomenstalk.com/helpful-tips-on-choosing-the-right-lipstick-shade-for-you/)
 - [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
 - [9 Charmingly Sweet  Pleasantly Fabulous Flavored L...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 

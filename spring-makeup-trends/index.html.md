@@ -56,16 +56,16 @@ All of these hot spring makeup trends are about having fun and standing out. Thi
 
 ## Related Posts
 
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
-- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
+- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
 - [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
-- [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
-- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
 - [spring fashion 2014](https://fashion.allwomenstalk.com/truly-fabulous-trends-for-spring/)
 - [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
+- [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
+- [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

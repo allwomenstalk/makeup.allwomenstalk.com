@@ -56,16 +56,16 @@ While an all in one kit might not completely replace your makeup, it can help re
 
 ## Related Posts
 
-- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
-- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
-- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
-- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
-- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
 - [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
-- [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
+- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
 - [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
+- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
+- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
+- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
+- [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
 - [7 Long-Lasting Make-up Products ...](https://allwomenstalk.com/7-long-lasting-make-up-products/)
 - [7 Places to Buy All-Natural Make-up ...](https://allwomenstalk.com/7-places-to-buy-all-natural-make-up/)
 

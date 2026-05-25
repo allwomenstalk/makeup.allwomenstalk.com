@@ -54,15 +54,15 @@ Which of these handy tips will you start using? Do you have any others to add?
 
 ## Related Posts
 
-- [Detailed Step-by-Step Guide to Getting Kardashian-...](https://beauty.allwomenstalk.com/detailed-step-by-step-guide-to-getting-kardashian-worthy-lashes/)
-- [Everything You Need to Know about Your Makeup Brus...](https://makeup.allwomenstalk.com/everything-you-should-know-about-your-makeup-brushes/)
-- [stylo eye bottomless](https://makeup.allwomenstalk.com/tips-for-women-who-are-new-to-using-liquid-liner/)
 - [prom dresses for brunettes](https://fashion.allwomenstalk.com/gorgeous-makeup-and-fashion-looks-for-brunettes/)
-- [how to apply make up correctly](https://makeup.allwomenstalk.com/makeup-basics-for-girls-learning-how-to-wear-correctly/)
 - [Instagram Makeup Inspiration Any Girl Can Copy ...](https://makeup.allwomenstalk.com/instagram-makeup-inspiration-any-girl-can-copy/)
-- [paris color le smoky eye shadow always pink](https://makeup.allwomenstalk.com/makeup-looks-for-girls-who-want-to-go-for-something-new/)
-- [dark haired beauties](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-for-dark-haired-beauties/)
+- [stylo eye bottomless](https://makeup.allwomenstalk.com/tips-for-women-who-are-new-to-using-liquid-liner/)
 - [Sweat-Proof Makeup Tutorials That Will See You thr...](https://makeup.allwomenstalk.com/sweat-proof-makeup-tutorials-that-will-see-you-through-summer/)
+- [how to apply make up correctly](https://makeup.allwomenstalk.com/makeup-basics-for-girls-learning-how-to-wear-correctly/)
+- [dark haired beauties](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-for-dark-haired-beauties/)
+- [Everything You Need to Know about Your Makeup Brus...](https://makeup.allwomenstalk.com/everything-you-should-know-about-your-makeup-brushes/)
+- [paris color le smoky eye shadow always pink](https://makeup.allwomenstalk.com/makeup-looks-for-girls-who-want-to-go-for-something-new/)
+- [Detailed Step-by-Step Guide to Getting Kardashian-...](https://beauty.allwomenstalk.com/detailed-step-by-step-guide-to-getting-kardashian-worthy-lashes/)
 - [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/quick-face-fixes-for-when-you-dont-have-time-to-apply-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Random Beauty Tricks You Didnt Know about ...](https://beauty.allwomenstalk.com/random-beauty-tricks-you-didnt-know-about/)

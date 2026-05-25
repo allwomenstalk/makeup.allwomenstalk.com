@@ -42,16 +42,16 @@ These are just a few tips that will hopefully make the idea of wearing metallic 
 
 ## Related Posts
 
-- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
 - [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
-- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
-- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
-- [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
+- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
+- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
+- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
+- [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

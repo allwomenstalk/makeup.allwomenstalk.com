@@ -56,16 +56,16 @@ These are 7 different types of eyeliner. Which is your favorite? I’d love to h
 
 ## Related Posts
 
-- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
+- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
+- [diy wedding makeup tutorial](https://makeup.allwomenstalk.com/wedding-day-makeup-tutorials-that-will-make-his-jaw-drop/)
+- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
 - [fix dry mascara](https://makeup.allwomenstalk.com/how-to-fix-a-mascara-smudge-without-ruining-all-of-your-makeup/)
 - [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
-- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
-- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
-- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
-- [diy wedding makeup tutorial](https://makeup.allwomenstalk.com/wedding-day-makeup-tutorials-that-will-make-his-jaw-drop/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
 - [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
 - [best face powder for sensitive skin](https://makeup.allwomenstalk.com/is-powder-essential-to-your-makeup-routine/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
+- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [13 Best Eyeliners You Wont Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 

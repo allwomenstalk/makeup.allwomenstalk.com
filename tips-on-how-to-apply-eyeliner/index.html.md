@@ -42,16 +42,16 @@ Do you use eyeliner, ladies? Well, if you do, I really hope you found these tips
 
 ## Related Posts
 
-- [Elkes Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
-- [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
-- [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
-- [NY: Your Eyebrows Should Be ...](https://allwomenstalk.com/ny-your-eyebrows-should-be/)
-- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
 - [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
+- [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
+- [Elkes Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
+- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
+- [NY: Your Eyebrows Should Be ...](https://allwomenstalk.com/ny-your-eyebrows-should-be/)
+- [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
 - [SUMMER 06 MAKEUP PODCAST . Strong Brows ...](https://allwomenstalk.com/summer-06-makeup-podcast-strong-brows/)
 - [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
-- [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
-- [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
+- [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
+- [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Liquid Eyeliner Application Tips ...](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
 

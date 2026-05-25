@@ -70,16 +70,16 @@ Geode lips are just the beginning, there are tons of talented makeup artists out
 
 ## Related Posts
 
-- [how to wear holographic lipstick](https://makeup.allwomenstalk.com/beyond-gorge-hologram-lip-glosses-you-have-to-see-to-believe/)
-- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
 - [lipstick styles](https://makeup.allwomenstalk.com/how-to-choose-perfect-nude-lipsticks-for-dark-skinned-beauties/)
 - [dark hair red lipstick](https://makeup.allwomenstalk.com/how-anyone-can-pull-off-red-lipstick-for-girls-in-doubt/)
-- [arab skin tone](https://makeup.allwomenstalk.com/how-to-choose-the-perfect-lipstick-for-your-skin-tone-for-girls-whove-bought-the-wrong-color-before/)
-- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
-- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
-- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
 - [seductive lips](https://makeup.allwomenstalk.com/sensational-things-to-do-for-ladies-who-want-beautiful-and-seductive-lips/)
+- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
+- [arab skin tone](https://makeup.allwomenstalk.com/how-to-choose-the-perfect-lipstick-for-your-skin-tone-for-girls-whove-bought-the-wrong-color-before/)
+- [how to wear holographic lipstick](https://makeup.allwomenstalk.com/beyond-gorge-hologram-lip-glosses-you-have-to-see-to-believe/)
+- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
+- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
 - [mac a girls got needs lipstick](https://makeup.allwomenstalk.com/mac-lipstick-dupes-for-girls-who-want-to-look-fab-while-on-a-budget/)
+- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
 - [9 Charmingly Sweet  Pleasantly Fabulous Flavored L...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

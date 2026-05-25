@@ -135,16 +135,16 @@ Price: $28.00 at [sephora.com](https://goo.gl/aPZNTm)
 
 ## Related Posts
 
-- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
 - [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
-- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
-- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
 - [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
 - [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
-- [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
 - [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
+- [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
+- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
 - [10 Best Lipsticks for This Summer ...](https://allwomenstalk.com/10-best-lipsticks-for-this-summer/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

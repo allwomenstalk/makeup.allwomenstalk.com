@@ -42,16 +42,16 @@ These are 7 solid reasons to enjoy makeup free days. What do you love most about
 
 ## Related Posts
 
-- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
-- [guy makeup looks](https://love.allwomenstalk.com/love-makeup-wait-till-you-learn-how-wearing-it-affects-your-relationship-with-your-guy/)
-- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
-- [summer make up](https://makeup.allwomenstalk.com/these-summer-makeup-looks-will-make-you-look-gorge-instantly/)
 - [when is your shadow the longest](https://makeup.allwomenstalk.com/which-make-up-will-make-your-eyelashes-look-the-longest/)
-- [foundation untuk menutupi tanda lahir](https://makeup.allwomenstalk.com/embarrassed-of-your-birthmarks-makeup-tips-for-covering-up-your-spots-and-dots/)
-- [funky makeup ideas](https://makeup.allwomenstalk.com/blondes-have-more-fun-makeup-tips-for-ladies-with-light-hair/)
-- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
-- [flawless foundation makeup](https://makeup.allwomenstalk.com/secrets-for-a-flawless-foundation-finish/)
+- [guy makeup looks](https://love.allwomenstalk.com/love-makeup-wait-till-you-learn-how-wearing-it-affects-your-relationship-with-your-guy/)
 - [how to trim lashes](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
+- [foundation untuk menutupi tanda lahir](https://makeup.allwomenstalk.com/embarrassed-of-your-birthmarks-makeup-tips-for-covering-up-your-spots-and-dots/)
+- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
+- [summer make up](https://makeup.allwomenstalk.com/these-summer-makeup-looks-will-make-you-look-gorge-instantly/)
+- [flawless foundation makeup](https://makeup.allwomenstalk.com/secrets-for-a-flawless-foundation-finish/)
+- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
+- [funky makeup ideas](https://makeup.allwomenstalk.com/blondes-have-more-fun-makeup-tips-for-ladies-with-light-hair/)
+- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
 - [7 Reasons Its Important to Replace Your Makeup ...](https://allwomenstalk.com/7-reasons-its-important-to-replace-your-makeup/)
 - [8 Reasons Why Makeup is Good for You ...](https://allwomenstalk.com/8-reasons-why-makeup-is-good-for-you/)
 

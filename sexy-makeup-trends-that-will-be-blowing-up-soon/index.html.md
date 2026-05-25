@@ -44,16 +44,16 @@ Now you have even more ways to decorate your face! Are you happy about these loo
 
 ## Related Posts
 
-- [pinterest ball](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-pinterest/)
-- [sexiest hair color](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-of/)
-- [tasteful dress](https://fashion.allwomenstalk.com/tasteful-dress-trends-we-want-to-see-in/)
-- [men hairstyle with clean shave](https://hair.allwomenstalk.com/the-craziest-beauty-trends-men-rocked-in/)
 - [food and beverage trendspet food trends](https://food.allwomenstalk.com/these-food-trends-will-be-big-in/)
-- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
-- [most popular styles of clothing](https://fashion.allwomenstalk.com/whats-the-most-popular-fashion-trend-in-your-state/)
-- [2015 hair trends](https://hair.allwomenstalk.com/hot-hair-trends-for-fall/)
 - [christmas dcor](https://lifestyle.allwomenstalk.com/the-top-christmas-decor-trends-for/)
 - [best music festival outfits](https://fashion.allwomenstalk.com/the-trendiest-outfits-to-wear-to-your-next-music-festival/)
+- [sexiest hair color](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-of/)
+- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
+- [2015 hair trends](https://hair.allwomenstalk.com/hot-hair-trends-for-fall/)
+- [pinterest ball](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-pinterest/)
+- [men hairstyle with clean shave](https://hair.allwomenstalk.com/the-craziest-beauty-trends-men-rocked-in/)
+- [tasteful dress](https://fashion.allwomenstalk.com/tasteful-dress-trends-we-want-to-see-in/)
+- [most popular styles of clothing](https://fashion.allwomenstalk.com/whats-the-most-popular-fashion-trend-in-your-state/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [13 Classic Makeup Looks to Rock ...](https://beauty.allwomenstalk.com/classic-makeup-looks-to-rock/)
 

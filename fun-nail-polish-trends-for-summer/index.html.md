@@ -68,16 +68,16 @@ Nail polish trends are all the rage this summer. With such a vast number of curr
 
 ## Related Posts
 
+- [nail polish maroon colour](https://nails.allwomenstalk.com/nail-polish-colors-to-try-for-winter/)
+- [nail color for tropical vacation](https://nails.allwomenstalk.com/hottest-nail-colors-for/)
+- [famous nail polish brands](https://nails.allwomenstalk.com/nail-polish-brands-i-love/)
+- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
+- [organic nail polish](https://nails.allwomenstalk.com/pros-and-cons-of-nail-art/)
 - [light gray nail](https://nails.allwomenstalk.com/gorgeous-grey-nail-polishes-for-fall/)
 - [fall nails trend](https://makeup.allwomenstalk.com/amazing-nail-trends-for-fall/)
 - [chanel nail polishes](https://makeup.allwomenstalk.com/of-the-most-popular-chanel-nail-polishes/)
-- [nail polish maroon colour](https://nails.allwomenstalk.com/nail-polish-colors-to-try-for-winter/)
-- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
-- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
 - [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
-- [organic nail polish](https://nails.allwomenstalk.com/pros-and-cons-of-nail-art/)
-- [famous nail polish brands](https://nails.allwomenstalk.com/nail-polish-brands-i-love/)
-- [nail color for tropical vacation](https://nails.allwomenstalk.com/hottest-nail-colors-for/)
+- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 

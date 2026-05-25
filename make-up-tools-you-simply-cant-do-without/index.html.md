@@ -56,16 +56,16 @@ What make-up tool could you never live without? Please add any I missed to the l
 
 ## Related Posts
 
-- [9 of the Best Drug Store Products That You Must Tr...](https://beauty.allwomenstalk.com/of-the-best-drug-store-products-that-you-must-try/)
-- [color riche stylo shadow hollywood](https://makeup.allwomenstalk.com/incredible-makeup-items-you-will-fall-in-love-with/)
-- [7 Minty Beauty Products That Are Awesome ...](https://beauty.allwomenstalk.com/minty-beauty-products-that-are-awesome/)
 - [paris petite primped and previous](https://beauty.allwomenstalk.com/cosmetics-companies-owned-by-celebrities/)
-- [9 Amazing Beauty Products from Sephora ...](https://beauty.allwomenstalk.com/amazing-beauty-products-from-sephora/)
-- [this cool guy my gardener met yesterday configures...](https://makeup.allwomenstalk.com/prime-products-for-your-lashes/)
-- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
 - [smashbox oglow lip gloss](https://beauty.allwomenstalk.com/mood-changing-beauty-products/)
-- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
+- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
+- [9 Amazing Beauty Products from Sephora ...](https://beauty.allwomenstalk.com/amazing-beauty-products-from-sephora/)
+- [color riche stylo shadow hollywood](https://makeup.allwomenstalk.com/incredible-makeup-items-you-will-fall-in-love-with/)
+- [9 of the Best Drug Store Products That You Must Tr...](https://beauty.allwomenstalk.com/of-the-best-drug-store-products-that-you-must-try/)
+- [7 Minty Beauty Products That Are Awesome ...](https://beauty.allwomenstalk.com/minty-beauty-products-that-are-awesome/)
 - [beauty in the pot hacks](https://makeup.allwomenstalk.com/clever-beauty-product-container-hacks-you-must-try/)
+- [this cool guy my gardener met yesterday configures...](https://makeup.allwomenstalk.com/prime-products-for-your-lashes/)
+- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [7 Things You Have to Check in Your Make up Bag ...](https://allwomenstalk.com/7-things-you-have-to-check-in-your-make-up-bag/)
 

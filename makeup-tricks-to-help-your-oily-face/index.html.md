@@ -52,16 +52,16 @@ Top Image Source: _fashionone.com_
 
 ## Related Posts
 
+- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
+- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
 - [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
 - [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
-- [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
-- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
 - [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
-- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
-- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 - [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
+- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 - [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
-- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
+- [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
+- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
 - [7 Tips to Combat Oily Skin ...](https://skincare.allwomenstalk.com/7-tips-to-combat-oily-skin/)
 - [9 Best Ways to Remove Your Makeup Easily ...](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
 

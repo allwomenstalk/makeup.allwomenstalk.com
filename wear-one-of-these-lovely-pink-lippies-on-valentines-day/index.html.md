@@ -131,16 +131,16 @@ Need some sparkle in your pink? You'll adore the metallic sheen in this lippy.
 
 ## Related Posts
 
-- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
+- [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
+- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
+- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
 - [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
 - [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
-- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
-- [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
+- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
 - [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
-- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
-- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
+- [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
 - [how to wear matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/)
-- [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [7 Hot Orange Lipsticks to Try out ...](https://beauty.allwomenstalk.com/hot-orange-lipsticks-to-try-out/)
 

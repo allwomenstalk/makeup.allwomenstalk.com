@@ -360,16 +360,16 @@ Wow! Nigerian makeup artist Teena is a wizard with wands and brushes. She's the 
 
 ## Related Posts
 
-- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
-- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
-- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
-- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
-- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
-- [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
-- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
-- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
 - [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
+- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
+- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
+- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
+- [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
+- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
+- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
 - [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
+- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 

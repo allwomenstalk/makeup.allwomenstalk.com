@@ -68,16 +68,16 @@ These are just a few fun nail polish colors you may want to try out. When wearin
 
 ## Related Posts
 
-- [nailsuperstore](https://allwomenstalk.com/opi-hong-kong-collection-meet-me-on-the-star-ferry-nail-lacquer-review/)
 - [summer nails pastels](https://allwomenstalk.com/9-fab-summer-nail-polishes-pastels-need-not-apply/)
-- [celebrity nail trends](https://allwomenstalk.com/10-nail-trends-celebs-are-following-this-spring/)
 - [French Manicure](https://allwomenstalk.com/french-manicure/)
-- [sexiest nail polish colors](https://allwomenstalk.com/8-sexiest-nail-polish/)
+- [nailsuperstore](https://allwomenstalk.com/opi-hong-kong-collection-meet-me-on-the-star-ferry-nail-lacquer-review/)
+- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
+- [celebrity nail trends](https://allwomenstalk.com/10-nail-trends-celebs-are-following-this-spring/)
 - [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
 - [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
-- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
-- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
+- [sexiest nail polish colors](https://allwomenstalk.com/8-sexiest-nail-polish/)
+- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 

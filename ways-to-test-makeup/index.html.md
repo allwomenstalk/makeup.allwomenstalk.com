@@ -44,16 +44,16 @@ Top Photo Credit: [Look In The Tunk](https://www.flickr.com/photos/lookinthetunk
 
 ## Related Posts
 
-- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
-- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
-- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
-- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
-- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
 - [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
-- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
+- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
+- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
+- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
+- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
+- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
+- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 

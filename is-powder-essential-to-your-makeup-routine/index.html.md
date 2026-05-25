@@ -44,16 +44,16 @@ Powder is really a matter of choice, and if you only wear a little tinted moistu
 
 ## Related Posts
 
-- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
-- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
-- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
-- [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
 - [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
-- [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
-- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
-- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
 - [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
+- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
+- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
+- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
+- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
+- [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
+- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
+- [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
 - [How do You Organize Your Makeup](https://allwomenstalk.com/how-do-you-organize-your-makeup/)
 - [How to Apply Mineral Makeup - Your Ultimate Guide](https://allwomenstalk.com/how-to-apply-mineral-makeup-your-ultimate-guide/)
 

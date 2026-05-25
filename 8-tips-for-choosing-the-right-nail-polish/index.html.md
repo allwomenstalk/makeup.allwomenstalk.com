@@ -48,16 +48,16 @@ Top Photo Credit: [Whitnickle](https://www.flickr.com/photos/whitneywalsh/538576
 
 ## Related Posts
 
-- [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
-- [In a Nail Polishing Rut](https://allwomenstalk.com/in-a-nail-polishing-rut/)
-- [Health: 12 Tips for Beautiful Nails](https://allwomenstalk.com/health-12-tips-for-beautiful-nails/)
-- [Foot Care ...](https://allwomenstalk.com/foot-care/)
-- [how to grow strong nails](https://beauty.allwomenstalk.com/tips-for-strong-fabulous-nails/)
-- [Manicure ...](https://allwomenstalk.com/manicure/)
-- [Hand and Nail Care: do and Dont for Healthy Hands ...](https://allwomenstalk.com/hand-and-nail-care-do-and-dont-for-healthy-hands/)
-- [Tips on Giving Yourself a Pedicure](https://allwomenstalk.com/tips-on-giving-yourself-a-pedicure/)
-- [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 - [Pedicure at Home-easy Steps](https://allwomenstalk.com/pedicure-at-home-easy-steps/)
+- [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
+- [Hand and Nail Care: do and Dont for Healthy Hands ...](https://allwomenstalk.com/hand-and-nail-care-do-and-dont-for-healthy-hands/)
+- [Health: 12 Tips for Beautiful Nails](https://allwomenstalk.com/health-12-tips-for-beautiful-nails/)
+- [In a Nail Polishing Rut](https://allwomenstalk.com/in-a-nail-polishing-rut/)
+- [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
+- [how to grow strong nails](https://beauty.allwomenstalk.com/tips-for-strong-fabulous-nails/)
+- [Foot Care ...](https://allwomenstalk.com/foot-care/)
+- [Tips on Giving Yourself a Pedicure](https://allwomenstalk.com/tips-on-giving-yourself-a-pedicure/)
+- [Manicure ...](https://allwomenstalk.com/manicure/)
 - [8 Neat Ways to Decorate Your Nails ...](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [8 Tips for Choosing Perfect Hair Color ...](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
 

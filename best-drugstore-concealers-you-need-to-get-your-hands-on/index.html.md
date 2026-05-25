@@ -201,16 +201,16 @@ This article was written in collaboration with editor Heather Robinson.
 
 ## Related Posts
 
-- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
-- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
-- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
-- [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
-- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
-- [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
-- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
-- [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
-- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
 - [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
+- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
+- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
+- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
+- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
+- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
+- [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
+- [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
+- [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
 - [7 Tips for Perfect Concealer ...](https://makeup.allwomenstalk.com/tips-for-perfect-concealer/)
 - [12 Best Concealers ...](https://allwomenstalk.com/12-best-concealers/)
 

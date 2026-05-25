@@ -56,16 +56,16 @@ Here it is, my list of drugstore makeup products you should definitely pass on. 
 
 ## Related Posts
 
-- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
-- [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
-- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
-- [best drugstore pink blush](https://makeup.allwomenstalk.com/best-drugstore-blushes-for-fair-skin/)
-- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
-- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
-- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
-- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
-- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
 - [best smudge proof mascara uk](https://makeup.allwomenstalk.com/of-the-best-flake-free-mascaras-to-try-on-the-market/)
+- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
+- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
+- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
+- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
+- [best drugstore pink blush](https://makeup.allwomenstalk.com/best-drugstore-blushes-for-fair-skin/)
+- [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
+- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
+- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
+- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

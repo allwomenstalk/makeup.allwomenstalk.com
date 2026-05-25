@@ -67,16 +67,16 @@ It’s fair to say that not all of these colours will be to everyone’s tastes.
 
 ## Related Posts
 
-- [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
-- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
 - [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
-- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
-- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [while analyzing sonias features you noticed that s...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
-- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
+- [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
 - [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
+- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
+- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [8 Prettiest Spring Eyeshadows ...](https://allwomenstalk.com/8-prettiest-spring-eyeshadows/)
 

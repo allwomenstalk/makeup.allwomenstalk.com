@@ -56,16 +56,16 @@ So girls! These are my celebrity makeup looks that I'm going to steal this seaso
 
 ## Related Posts
 
-- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
 - [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
 - [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
-- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
-- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
-- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
 - [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
+- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
+- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
 - [skin drink lush](https://beauty.allwomenstalk.com/must-have-lush-products/)
+- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

@@ -42,16 +42,16 @@ Well girls, there you have it! All of my top makeup tricks to enhance the green 
 
 ## Related Posts
 
-- [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
-- [hot eye makeup](https://makeup.allwomenstalk.com/makeup-looks-to-look-hot-without-a-smoky-eye/)
-- [how to make your freckles darker naturally](https://makeup.allwomenstalk.com/foundation-tips-to-cover-your-freckles/)
-- [makeup looks for 7 year olds](https://makeup.allwomenstalk.com/makeup-tricks-to-slim-your-face/)
-- [reasons for makeup](https://beauty.allwomenstalk.com/convincing-reasons-to-wear-makeup/)
-- [makeup to cover blemishes](https://makeup.allwomenstalk.com/must-try-makeup-tricks-to-cover-blemishes/)
-- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
 - [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
 - [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
+- [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
 - [teenagers makeup](https://makeup.allwomenstalk.com/classic-makeup-tutorials-for-teenagers/)
+- [makeup looks for 7 year olds](https://makeup.allwomenstalk.com/makeup-tricks-to-slim-your-face/)
+- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
+- [makeup to cover blemishes](https://makeup.allwomenstalk.com/must-try-makeup-tricks-to-cover-blemishes/)
+- [reasons for makeup](https://beauty.allwomenstalk.com/convincing-reasons-to-wear-makeup/)
+- [hot eye makeup](https://makeup.allwomenstalk.com/makeup-looks-to-look-hot-without-a-smoky-eye/)
+- [how to make your freckles darker naturally](https://makeup.allwomenstalk.com/foundation-tips-to-cover-your-freckles/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Eye Makeup Tips: 7 Ways to Play up Your Eyes ...](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 

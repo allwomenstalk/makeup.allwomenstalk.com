@@ -42,16 +42,16 @@ These’re 7 steps to take your makeup from day to date. What’re your secrets 
 
 ## Related Posts
 
+- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
+- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
 - [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
-- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [10 Fabulous Tips on How to Take Your Look from Day...](https://beauty.allwomenstalk.com/fabulous-tips-on-how-to-take-your-look-from-day-to-night/)
 

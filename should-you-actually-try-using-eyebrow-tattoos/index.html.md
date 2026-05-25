@@ -18,16 +18,16 @@ Now you have an alternative to filling in your eyebrows whenever you wake up in 
 
 ## Related Posts
 
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [hairsay](https://hair.allwomenstalk.com/porosity-test-what-does-your-hair-say-about-you/)
 - [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
 - [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
-- [hairsay](https://hair.allwomenstalk.com/porosity-test-what-does-your-hair-say-about-you/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
-- [shaggy it wasnt me meme](https://lifestyle.allwomenstalk.com/are-you-guilty-of-these-white-and-not-so-white-lies/)
 - [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
-- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [shaggy it wasnt me meme](https://lifestyle.allwomenstalk.com/are-you-guilty-of-these-white-and-not-so-white-lies/)
 - [10 Reasons to Thread Your Eyebrows at Eyebrow Salo...](https://allwomenstalk.com/reasons-to-thread-your-eyebrows/)
 - [5 Eyebrow Stamp Tips Youve Got to Know for Brows o...](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
 

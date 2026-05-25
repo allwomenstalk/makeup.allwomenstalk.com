@@ -42,16 +42,16 @@ Practice makes it perfect, but even the smallest of tricks can make a huge diffe
 
 ## Related Posts
 
-- [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
-- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
 - [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
-- [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
-- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
 - [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
-- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
+- [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
+- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
 - [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
-- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
 - [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
+- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
+- [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
+- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
+- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

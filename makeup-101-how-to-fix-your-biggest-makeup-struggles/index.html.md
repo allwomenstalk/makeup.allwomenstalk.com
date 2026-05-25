@@ -34,16 +34,16 @@ Did any of these tips help you with your makeup struggles?
 
 ## Related Posts
 
-- [7 Steps to Putting on Fake Lashes like a Pro ...](https://makeup.allwomenstalk.com/steps-to-putting-on-fake-lashes-like-a-pro/)
-- [7 Insider Tips for Getting Your Mascara Just Right...](https://makeup.allwomenstalk.com/insider-tips-for-getting-your-mascara-just-right/)
-- [paris color stylo smoky eye emerald](https://makeup.allwomenstalk.com/make-up-tips-for-flawless-skin/)
-- [7 Things to Look for in a Concealer ...](https://makeup.allwomenstalk.com/things-to-look-for-in-a-concealer/)
-- [Makeup 101: Cleaning Your Makeup Brushes ...](https://makeup.allwomenstalk.com/makeup-101-cleaning-your-makeup-brushes/)
-- [biggest makeup transformations](https://makeup.allwomenstalk.com/these-makeup-transformations-into-hollywood-stars-will-blow-your-mind/)
-- [Makeup 101: 5 Helpful Eyeliner and Mascara Tips .....](https://makeup.allwomenstalk.com/makeup-101-helpful-eyeliner-and-mascara-tips/)
 - [Eyebrows 101: 5 Common Mistakes and How to Fix The...](https://beauty.allwomenstalk.com/eyebrows-101-common-mistakes-and-how-to-fix-it/)
-- [le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/things-to-consider-about-glitter-make-up/)
+- [biggest makeup transformations](https://makeup.allwomenstalk.com/these-makeup-transformations-into-hollywood-stars-will-blow-your-mind/)
+- [paris color stylo smoky eye emerald](https://makeup.allwomenstalk.com/make-up-tips-for-flawless-skin/)
+- [7 Steps to Putting on Fake Lashes like a Pro ...](https://makeup.allwomenstalk.com/steps-to-putting-on-fake-lashes-like-a-pro/)
+- [Makeup 101: 5 Helpful Eyeliner and Mascara Tips .....](https://makeup.allwomenstalk.com/makeup-101-helpful-eyeliner-and-mascara-tips/)
+- [Makeup 101: Cleaning Your Makeup Brushes ...](https://makeup.allwomenstalk.com/makeup-101-cleaning-your-makeup-brushes/)
+- [7 Insider Tips for Getting Your Mascara Just Right...](https://makeup.allwomenstalk.com/insider-tips-for-getting-your-mascara-just-right/)
 - [7 Things to Consider before Getting Permanent Make...](https://makeup.allwomenstalk.com/things-to-consider-before-getting-permanent-make-up/)
+- [7 Things to Look for in a Concealer ...](https://makeup.allwomenstalk.com/things-to-look-for-in-a-concealer/)
+- [le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/things-to-consider-about-glitter-make-up/)
 - [Top 8 Makeup Mistakes Beginners Make ...](https://beauty.allwomenstalk.com/top-makeup-mistakes-beginners-make/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 

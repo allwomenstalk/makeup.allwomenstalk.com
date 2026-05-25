@@ -78,16 +78,16 @@ Because regardless of your eye color or shape, the right liner can really make '
 
 ## Related Posts
 
-- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
-- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
-- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
-- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
-- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
 - [loreal paris riche le stylo shadow primped and pre...](https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/)
-- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
-- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
-- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
 - [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
+- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
+- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
+- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
+- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
+- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
+- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
+- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
+- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
 - [8 Items You Need to Create Dramatic Eyes ...](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 

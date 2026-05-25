@@ -72,16 +72,16 @@ You are beautiful with and without makeup. So if you don’t want to spend that 
 
 ## Related Posts
 
-- [holly richards permanent makeup  microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
-- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
 - [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
-- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [holly richards permanent makeup  microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
-- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
+- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
 - [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
+- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
 - [Stop and Read These Makeup Tips to Look Good in An...](https://makeup.allwomenstalk.com/make-up-tips-to-look-good-in-pictures/)
 - [7 Simple Steps to Wake up Your Makeup in Less than...](https://beauty.allwomenstalk.com/simple-steps-to-wake-up-your-makeup-in-less-than-a-minute/)
 

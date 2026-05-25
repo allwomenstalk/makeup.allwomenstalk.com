@@ -63,16 +63,16 @@ These’re 7 “your lips but better” shades to try. Which ones do you plan to
 
 ## Related Posts
 
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
-- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
-- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
 - [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
+- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
 - [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
-- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
+- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
+- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
 - [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
 - [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
+- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [Top 8 Super Glamorous Plumping Lip Glosses ...](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
 

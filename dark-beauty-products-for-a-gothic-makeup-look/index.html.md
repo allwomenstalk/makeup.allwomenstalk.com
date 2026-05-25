@@ -56,16 +56,16 @@ You can use all of these products at once for a goth makeup look that's bold and
 
 ## Related Posts
 
-- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
-- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
-- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
-- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
-- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
-- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
-- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
 - [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
-- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
+- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
+- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
 - [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
+- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
+- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
+- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
+- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

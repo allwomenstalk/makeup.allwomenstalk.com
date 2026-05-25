@@ -56,16 +56,16 @@ What do you think of this list of the best liquid liners? Have you tried any of 
 
 ## Related Posts
 
-- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
-- [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
 - [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
-- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
+- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
+- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
+- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
 - [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
 - [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
-- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
-- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
+- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
+- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
+- [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
 - [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
-- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Liquid Eyeliners ...](https://makeup.allwomenstalk.com/liquid-eyeliners/)
 

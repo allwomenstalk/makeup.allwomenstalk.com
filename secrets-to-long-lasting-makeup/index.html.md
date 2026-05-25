@@ -56,16 +56,16 @@ That’s it for my secrets to long lasting makeup. I hope you find these tips us
 
 ## Related Posts
 
-- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
-- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
-- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
-- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
-- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
-- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
-- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
 - [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
+- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
+- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
+- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
+- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
+- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
 - [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
+- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

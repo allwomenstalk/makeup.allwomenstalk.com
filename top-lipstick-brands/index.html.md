@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/23139185)
 
 ## Related Posts
 
-- [urban decay lip junkie](https://makeup.allwomenstalk.com/fabulous-ways-to-wear-nude-lipstick/)
-- [good red lipstick for pale skin](https://makeup.allwomenstalk.com/gorgeous-lipstick-shades-for-pale-skin/)
-- [site:allwomenstalk.com](https://makeup.allwomenstalk.com/gorgeous-coral-lip-glosses/)
-- [pink lipsticks](https://makeup.allwomenstalk.com/must-have-trendy-pink-lipsticks-for-spring/)
 - [most waterproof mascara](https://makeup.allwomenstalk.com/absolutely-real-waterproof-mascaras/)
+- [urban decay lip junkie](https://makeup.allwomenstalk.com/fabulous-ways-to-wear-nude-lipstick/)
+- [pink lipsticks](https://makeup.allwomenstalk.com/must-have-trendy-pink-lipsticks-for-spring/)
+- [site:allwomenstalk.com](https://makeup.allwomenstalk.com/gorgeous-coral-lip-glosses/)
 - [how to find the perfect lip color](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-lipstick-color-for-you/)
-- [top lipstick brand](https://makeup.allwomenstalk.com/lipsticks-with-spf-ideal-for-summer/)
 - [the best red lipstick for olive skin](https://makeup.allwomenstalk.com/sexy-red-lipsticks-for-olive-skin/)
-- [how to choose lip gloss](https://makeup.allwomenstalk.com/tips-for-choosing-the-perfect-lip-gloss/)
+- [top lipstick brand](https://makeup.allwomenstalk.com/lipsticks-with-spf-ideal-for-summer/)
+- [good red lipstick for pale skin](https://makeup.allwomenstalk.com/gorgeous-lipstick-shades-for-pale-skin/)
 - [lovers and friends bermuda dress](https://makeup.allwomenstalk.com/tips-on-how-to-wear-nude-lipstick-this-fall/)
+- [how to choose lip gloss](https://makeup.allwomenstalk.com/tips-for-choosing-the-perfect-lip-gloss/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

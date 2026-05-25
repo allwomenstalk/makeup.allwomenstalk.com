@@ -68,15 +68,15 @@ Would you ever try any of these ways to wear pastel makeup? Once you find pastel
 
 ## Related Posts
 
-- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
-- [homecoming makeup look](https://makeup.allwomenstalk.com/gorgeous-prom-makeup-ideas-you-need-to-try/)
-- [worst foundations for acne](https://makeup.allwomenstalk.com/worst-makeup-mistakes-to-avoid-if-you-have-acne/)
-- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
 - [makeup brushes quotes](https://makeup.allwomenstalk.com/pros-and-cons-of-using-makeup-brushes/)
-- [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
+- [homecoming makeup look](https://makeup.allwomenstalk.com/gorgeous-prom-makeup-ideas-you-need-to-try/)
 - [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
+- [worst foundations for acne](https://makeup.allwomenstalk.com/worst-makeup-mistakes-to-avoid-if-you-have-acne/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
+- [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
 - [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
+- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
+- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
 - [1950s women makeup](https://makeup.allwomenstalk.com/ways-to-achieve-a-glamorous-1950s-makeup-look/)
 - [15 Ways to Look Beautiful without Makeup ...](https://makeup.allwomenstalk.com/ways-to-look-beautiful-without-makeup/)
 - [8 Tips on How to Wear the Candy Make up Trend ...](https://allwomenstalk.com/8-tips-on-how-to-wear-the-candy-make-up-trend/)

@@ -56,15 +56,15 @@ Eyeshadow palettes are the heart and soul of any makeup collection. With the rig
 
 ## Related Posts
 
-- [while analyzing sonias features you noticed that s...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
 - [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
-- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
-- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
-- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
-- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
+- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [while analyzing sonias features you noticed that s...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
+- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
+- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)

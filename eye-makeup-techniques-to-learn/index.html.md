@@ -44,16 +44,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/25077735)
 
 ## Related Posts
 
-- [2012 makeup look](https://makeup.allwomenstalk.com/must-know-makeup-tricks-for/)
-- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
 - [paris color smoky eye primped and](https://beauty.allwomenstalk.com/steps-for-creating-the-perfect-smoky-eye-look/)
+- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
+- [up face](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
+- [2012 makeup look](https://makeup.allwomenstalk.com/must-know-makeup-tricks-for/)
 - [makeup tips for diamond shaped face](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
-- [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
 - [eyeliner smears](https://makeup.allwomenstalk.com/ways-to-make-your-eyeliner-stay-longer/)
 - [blueeyedbeauty00](https://makeup.allwomenstalk.com/makeup-tricks-for-gorgeous-blue-eyes/)
 - [does baby oil remove makeup](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
 - [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
-- [up face](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
+- [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Eye Makeup Tips: 7 Ways to Play up Your Eyes ...](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 

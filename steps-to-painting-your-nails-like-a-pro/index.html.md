@@ -46,14 +46,14 @@ Top Photo Credit: _Pink Sherbet Photography_
 
 - [trailer park feet](https://skincare.allwomenstalk.com/top-tips-for-taking-care-of-your-feet/)
 - [7 Tips on How to Make Nail Polish Stay on Longer ....](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-4/)
-- [7 Nail Products That Are Perfect for DIY Manicures...](https://nails.allwomenstalk.com/nail-products-that-are-perfect-for-diy-manicures/)
-- [7 Tips for Toenails That Look and Feel Their Best ...](https://beauty.allwomenstalk.com/tips-for-toenails-that-look-and-feel-their-best/)
+- [brittle nails treatment](https://nails.allwomenstalk.com/tempting-tips-for-the-battle-against-brittle-nails/)
 - [7 Health Problems Your Nails May Reveal ...](https://nails.allwomenstalk.com/health-problems-your-nails-may-reveal/)
 - [7 Steps to Healthier Nails for Good ...](https://nails.allwomenstalk.com/steps-to-healthier-nails-for-good/)
-- [7 Tips for Getting the Perfect Striped Manicure .....](https://nails.allwomenstalk.com/tips-for-getting-the-perfect-striped-manicure/)
-- [brittle nails treatment](https://nails.allwomenstalk.com/tempting-tips-for-the-battle-against-brittle-nails/)
+- [7 Nail Products That Are Perfect for DIY Manicures...](https://nails.allwomenstalk.com/nail-products-that-are-perfect-for-diy-manicures/)
 - [7 Steps to Finding the Perfect Nude Nail Polish fo...](https://nails.allwomenstalk.com/steps-to-finding-the-perfect-nude-nail-polish-for-you/)
 - [7 Tips for Keeping Your Nails Healthy Strong and B...](https://nails.allwomenstalk.com/tips-for-keeping-your-nails-healthy-strong-and-beautiful/)
+- [7 Tips for Toenails That Look and Feel Their Best ...](https://beauty.allwomenstalk.com/tips-for-toenails-that-look-and-feel-their-best/)
+- [7 Tips for Getting the Perfect Striped Manicure .....](https://nails.allwomenstalk.com/tips-for-getting-the-perfect-striped-manicure/)
 - [7 Tips on Having Model Nails ...](https://allwomenstalk.com/7-tips-on-having-model-nails/)
 - [7 Ways to Strengthen Your Nails ...](https://allwomenstalk.com/7-ways-to-strengthen-your-nails/)
 

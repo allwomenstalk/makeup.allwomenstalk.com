@@ -42,16 +42,16 @@ These are 7 makeup tricks you can use to help you fake a good night’s sleep. W
 
 ## Related Posts
 
-- [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
 - [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
-- [easy valentines day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [pink blush makeup](https://makeup.allwomenstalk.com/tips-for-applying-pink-blush-the-right-way/)
-- [eyeliner only makeup](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-blue-eyes-pop/)
-- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
 - [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
-- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
-- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
+- [eyeliner only makeup](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-blue-eyes-pop/)
 - [makeup idea](https://makeup.allwomenstalk.com/makeup-looks-from-pinterest-thatll-make-you-swoon/)
+- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
+- [easy valentines day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
+- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
+- [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
+- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [11 Tips to Help You Sleep Better ...](https://allwomenstalk.com/6-natural-remedies-to-help-you-sleep-better/)
 

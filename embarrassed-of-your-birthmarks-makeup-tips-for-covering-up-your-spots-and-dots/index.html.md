@@ -42,16 +42,16 @@ These are some tips you can use to cover up your birthmarks. What have you found
 
 ## Related Posts
 
+- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
 - [flawless foundation makeup](https://makeup.allwomenstalk.com/secrets-for-a-flawless-foundation-finish/)
+- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
+- [argaphobia](https://lifestyle.allwomenstalk.com/join-us-on-meerkat-now-to-discuss-what-we-should-write-about-next/)
 - [guy makeup looks](https://love.allwomenstalk.com/love-makeup-wait-till-you-learn-how-wearing-it-affects-your-relationship-with-your-guy/)
-- [smokey eye brown and gold](https://makeup.allwomenstalk.com/smoldering-smokey-eye-tutorials-to-complement-different-skin-tones/)
-- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
 - [when is your shadow the longest](https://makeup.allwomenstalk.com/which-make-up-will-make-your-eyelashes-look-the-longest/)
 - [how to trim lashes](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
-- [argaphobia](https://lifestyle.allwomenstalk.com/join-us-on-meerkat-now-to-discuss-what-we-should-write-about-next/)
+- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
+- [smokey eye brown and gold](https://makeup.allwomenstalk.com/smoldering-smokey-eye-tutorials-to-complement-different-skin-tones/)
 - [summer make up](https://makeup.allwomenstalk.com/these-summer-makeup-looks-will-make-you-look-gorge-instantly/)
-- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
-- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
 - [Beauty  Health Tips: Stretch Marks and Pregnancy ....](https://allwomenstalk.com/beauty-health-tips-stretch-marks-and-pregnancy/)
 - [9 Awesome Makeup Tips for Your 30s ...](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
 

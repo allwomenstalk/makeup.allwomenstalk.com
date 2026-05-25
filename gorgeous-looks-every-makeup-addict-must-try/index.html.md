@@ -332,16 +332,16 @@ What comes to mind when I say, "Anastasia Beverly Hills?" I think of flawless br
 
 ## Related Posts
 
-- [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
-- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
-- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
-- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
-- [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
 - [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
-- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
 - [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
 - [what shampoo does kylie jenner use](https://makeup.allwomenstalk.com/the-makeup-products-kylie-jenner-uses-for-her-daily-beauty-routine/)
+- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
+- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
+- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
 - [psl meaning beauty](https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/)
+- [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
+- [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
+- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
 - [8 Amazing Makeup Must-Haves for Winter You Simply ...](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

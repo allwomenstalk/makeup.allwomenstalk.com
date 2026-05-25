@@ -56,16 +56,16 @@ These’re some embarrassing mistakes that’re easily made with blush. Being aw
 
 ## Related Posts
 
-- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
 - [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
 - [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
-- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
-- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
-- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
+- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
 - [makeup hacks that actually work](https://makeup.allwomenstalk.com/weird-makeup-hacks-that-actually-work/)
 - [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
-- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
+- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
 - [paris color riche stylo smoky eye neon](https://makeup.allwomenstalk.com/glitter-tears-are-the-hottest-new-makeup-trend/)
+- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
+- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
+- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
 - [9 Embarrassing Things Women do for Beauty ...](https://beauty.allwomenstalk.com/embarrassing-things-women-do-for-beauty/)
 - [20 Worst Fashion Mistakes a Girl Can Make ...](https://fashion.allwomenstalk.com/worst-fashion-mistakes-a-girl-can-make/)
 

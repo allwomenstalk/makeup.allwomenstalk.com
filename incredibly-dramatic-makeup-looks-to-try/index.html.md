@@ -68,14 +68,14 @@ So girls, there are my top dramatic makeup looks! What other makeup looks do you
 
 ## Related Posts
 
+- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
-- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
-- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
 - [how to make your eyelashes look long](https://makeup.allwomenstalk.com/ways-to-make-your-eyelashes-appear-longer/)
-- [natural makeup celebrity](https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/)
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
+- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
+- [natural makeup celebrity](https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/)
 - [paris stylo smoky eye endless pearl](https://makeup.allwomenstalk.com/daring-ways-to-rock-the-cat-eye-look/)
 - [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)

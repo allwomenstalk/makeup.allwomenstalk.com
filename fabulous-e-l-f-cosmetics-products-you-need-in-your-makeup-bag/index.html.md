@@ -56,15 +56,15 @@ There are many other e.l.f. Cosmetics products that I hope to try in the future.
 
 ## Related Posts
 
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
-- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
-- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
-- [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
-- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
 - [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
+- [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
 - [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
+- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)

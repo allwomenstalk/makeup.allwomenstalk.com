@@ -132,16 +132,16 @@ So... when you're ready to take off your waterproof mascara, how do you do it? T
 
 ## Related Posts
 
-- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
 - [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
-- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
-- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
-- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
+- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
 - [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
 - [what shampoo does kylie jenner use](https://makeup.allwomenstalk.com/the-makeup-products-kylie-jenner-uses-for-her-daily-beauty-routine/)
+- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
+- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
+- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
+- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
 - [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
 - [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
-- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
 - [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Great Mascaras for Teens ...](https://allwomenstalk.com/7-great-mascaras-for-teens/)
 

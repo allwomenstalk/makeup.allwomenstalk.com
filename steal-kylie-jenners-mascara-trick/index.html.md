@@ -16,16 +16,16 @@ You might as well try this trick! If it gets too messy, you can always wipe it a
 
 ## Related Posts
 
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
-- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
-- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
-- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
+- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
 - [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
+- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [Makeup Lesson - Steal Katherine Heigls Natural Loo...](https://allwomenstalk.com/makeup-lesson-steal-katherine-heigls-natural-look/)
 - [How to Master the Art of Putting on False Eyelashe...](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
 

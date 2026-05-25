@@ -56,16 +56,16 @@ So girls, what are some of your other favorite mascaras with the best brushes? D
 
 ## Related Posts
 
-- [7 Best Waterproof Cosmetics for Those Unexpected M...](https://makeup.allwomenstalk.com/best-waterproof-cosmetics-for-those-unexpected-moments/)
-- [8 Smooth Cream Blushes ...](https://makeup.allwomenstalk.com/smooth-cream-blushes/)
-- [7 New and Fabulous Must-Try Cosmetics for Summer ....](https://makeup.allwomenstalk.com/new-and-fabulous-must-try-cosmetics-for-summer/)
-- [10 Beauty Tools and Accessories We All Need ...](https://beauty.allwomenstalk.com/beauty-tools-and-accessories-we-all-need/)
-- [7 Daily Beauty Products I Cant Live without ...](https://beauty.allwomenstalk.com/daily-beauty-products-i-cant-live-without/)
-- [7 Fresh Spring Makeup Buys ...](https://makeup.allwomenstalk.com/fresh-spring-makeup-buys/)
-- [color riche smoky enchanted](https://beauty.allwomenstalk.com/amazing-beauty-products-that-you-will-swear-by/)
-- [7 Essential Highlighters ...](https://makeup.allwomenstalk.com/essential-highlighters/)
-- [9 Beauty Products You Absolutely Need This Summer ...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-this-summer/)
 - [loreal color smoky eye shadow glistening](https://makeup.allwomenstalk.com/great-eye-shadow-palettes-for-under-50/)
+- [10 Beauty Tools and Accessories We All Need ...](https://beauty.allwomenstalk.com/beauty-tools-and-accessories-we-all-need/)
+- [8 Smooth Cream Blushes ...](https://makeup.allwomenstalk.com/smooth-cream-blushes/)
+- [7 Best Waterproof Cosmetics for Those Unexpected M...](https://makeup.allwomenstalk.com/best-waterproof-cosmetics-for-those-unexpected-moments/)
+- [7 Daily Beauty Products I Cant Live without ...](https://beauty.allwomenstalk.com/daily-beauty-products-i-cant-live-without/)
+- [7 Essential Highlighters ...](https://makeup.allwomenstalk.com/essential-highlighters/)
+- [7 Fresh Spring Makeup Buys ...](https://makeup.allwomenstalk.com/fresh-spring-makeup-buys/)
+- [7 New and Fabulous Must-Try Cosmetics for Summer ....](https://makeup.allwomenstalk.com/new-and-fabulous-must-try-cosmetics-for-summer/)
+- [color riche smoky enchanted](https://beauty.allwomenstalk.com/amazing-beauty-products-that-you-will-swear-by/)
+- [9 Beauty Products You Absolutely Need This Summer ...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-this-summer/)
 - [7 Useful Brush Sets ...](https://makeup.allwomenstalk.com/useful-brush-sets/)
 - [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 

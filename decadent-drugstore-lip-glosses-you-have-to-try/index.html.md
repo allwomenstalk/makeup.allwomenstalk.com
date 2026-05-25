@@ -68,16 +68,16 @@ I love lip glosses because they provide color, shine and don’t feel super heav
 
 ## Related Posts
 
-- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
-- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
 - [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
-- [fall red lipstick](https://makeup.allwomenstalk.com/gorgeous-drugstore-lipsticks-to-wear-this-fall/)
-- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
 - [yes to carrots lip balm](https://makeup.allwomenstalk.com/prettiest-all-natural-lip-glosses-for-fall/)
+- [mac 567 lipstick name](https://makeup.allwomenstalk.com/best-mac-lipsticks-youve-got-to-own/)
+- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
+- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
 - [red lip look](https://beauty.allwomenstalk.com/dos-and-donts-of-wearing-red-lipstick-that-any-makeup-lover-should-know/)
+- [fall red lipstick](https://makeup.allwomenstalk.com/gorgeous-drugstore-lipsticks-to-wear-this-fall/)
 - [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
 - [how to keep nail paint long lasting](https://makeup.allwomenstalk.com/ways-to-make-your-lipstick-last-longer/)
-- [mac 567 lipstick name](https://makeup.allwomenstalk.com/best-mac-lipsticks-youve-got-to-own/)
+- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [9 Charmingly Sweet  Pleasantly Fabulous Flavored L...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 

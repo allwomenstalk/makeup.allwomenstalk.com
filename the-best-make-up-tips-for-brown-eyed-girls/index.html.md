@@ -42,16 +42,16 @@ What shade are your brown eyes? Mine are medium and I learned so much about make
 
 ## Related Posts
 
-- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
-- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
-- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
 - [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
-- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
-- [best eyebrows for diamond face](https://beauty.allwomenstalk.com/what-are-the-best-eyebrows-for-your-face-shape/)
-- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
-- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
 - [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
+- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
+- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
+- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
+- [best eyebrows for diamond face](https://beauty.allwomenstalk.com/what-are-the-best-eyebrows-for-your-face-shape/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
+- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
+- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 

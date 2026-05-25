@@ -68,16 +68,16 @@ What do you think about matching your makeup to your outfit? Love it or hate it?
 
 ## Related Posts
 
-- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
+- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
+- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
 - [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/makeup-tips-and-tricks-for-teens/)
 - [color riche le stylo infinite sky](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-younger/)
-- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
 - [make up artist to the stars](https://makeup.allwomenstalk.com/awesome-make-up-artists-to-the-stars/)
 - [loreal color riche stylo shadow paradise](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-eyes-look-beautifully-bright/)
-- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
-- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
-- [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
+- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
 - [wine red eyeshadow](https://makeup.allwomenstalk.com/ideas-for-a-fall-makeup-look/)
+- [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
+- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [Make Me up](https://allwomenstalk.com/make-me-up/)
 

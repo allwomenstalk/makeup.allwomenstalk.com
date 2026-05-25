@@ -42,16 +42,16 @@ These’re 7 ways you can get free makeup samples. What makeup are you dying to 
 
 ## Related Posts
 
-- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
-- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
-- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
-- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
-- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
 - [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
+- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
+- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
+- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
 - [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
 - [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
-- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
+- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
+- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

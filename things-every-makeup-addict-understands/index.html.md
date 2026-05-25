@@ -56,16 +56,16 @@ Are you a makeup addict?
 
 ## Related Posts
 
-- [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
-- [lauren conrad makeup](https://makeup.allwomenstalk.com/steal-lauren-conrads-5-minute-makeup-routine/)
 - [loreal paris color shadow blinged](https://makeup.allwomenstalk.com/how-to-get-an-intense-smokey-eye/)
-- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
-- [looking good with glasses](https://beauty.allwomenstalk.com/tweaks-thatll-make-your-glasses-look-more-stylish/)
-- [riche stylo always pearly](https://makeup.allwomenstalk.com/secrets-girls-with-gorgeous-makeup-wont-tell-you/)
+- [lauren conrad makeup](https://makeup.allwomenstalk.com/steal-lauren-conrads-5-minute-makeup-routine/)
 - [eye shape makeup](https://makeup.allwomenstalk.com/the-best-makeup-routine-for-your-eye-shape/)
-- [why do i look wide in photos](https://beauty.allwomenstalk.com/all-you-need-to-do-to-make-your-eyes-look-wide-awake/)
 - [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
 - [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
+- [riche stylo always pearly](https://makeup.allwomenstalk.com/secrets-girls-with-gorgeous-makeup-wont-tell-you/)
+- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
+- [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
+- [why do i look wide in photos](https://beauty.allwomenstalk.com/all-you-need-to-do-to-make-your-eyes-look-wide-awake/)
+- [looking good with glasses](https://beauty.allwomenstalk.com/tweaks-thatll-make-your-glasses-look-more-stylish/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [7 Things You Have to Check in Your Make up Bag ...](https://allwomenstalk.com/7-things-you-have-to-check-in-your-make-up-bag/)
 

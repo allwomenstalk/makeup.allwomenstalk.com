@@ -112,16 +112,16 @@ The smokey eye is kind of her signature look.
 
 ## Related Posts
 
-- [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
-- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
-- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
-- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
-- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
-- [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
-- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
-- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
 - [how to makeup tutorials](https://makeup.allwomenstalk.com/matte-makeup-tutorials-thatll-make-you-look-amazing/)
+- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
 - [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
+- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
+- [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
+- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
+- [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
+- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
+- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
+- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 

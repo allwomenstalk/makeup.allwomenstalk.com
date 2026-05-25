@@ -68,16 +68,16 @@ Makeup palettes are a great way to try out different products or use to touch-up
 
 ## Related Posts
 
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
-- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [candy beauty shampoo](https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/)
-- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
-- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
+- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
+- [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
+- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
 - [9 Best Makeup Palettes to Start You off ...](https://makeup.allwomenstalk.com/best-makeup-palettes-to-start-you-off/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 

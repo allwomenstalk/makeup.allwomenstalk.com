@@ -42,16 +42,16 @@ So, these are all of the items that I keep tucked away in my purse for those tim
 
 ## Related Posts
 
-- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
-- [whats illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
-- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
-- [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
+- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
 - [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
+- [whats illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
-- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
-- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
+- [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
+- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
+- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
+- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [7 Makeup Tools You Must Have to do Your Makeup lik...](https://allwomenstalk.com/7-makeup-tools-you-must-have-to-do-your-makeup-like-a-pro/)
 

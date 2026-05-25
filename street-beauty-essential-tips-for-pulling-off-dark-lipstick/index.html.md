@@ -56,16 +56,16 @@ How do you feel about dark lip colors?
 
 ## Related Posts
 
-- [7 Best Products with SPF to Keep Your Lips Sexy .....](https://beauty.allwomenstalk.com/best-products-with-spf-to-keep-your-lips-sexy/)
-- [paris color stylo smoky always](https://makeup.allwomenstalk.com/how-to-rock-the-bold-lipstick-shades-that-scare-you/)
 - [Want a Perfect Pout to Brag about Use These 7 Love...](https://makeup.allwomenstalk.com/want-a-perfect-pout-to-brag-about-use-these-lovely-lippies-for-spring/)
-- [7 Things You Need to Know about Lip Balm ...](https://skincare.allwomenstalk.com/things-you-need-to-know-about-lip-balm/)
-- [What do You Know about the Skin on Your Lips](https://skincare.allwomenstalk.com/important-facts-about-the-skin-on-your-lips/)
-- [7 Red Lipsticks Youll Never Want to Take off ...](https://makeup.allwomenstalk.com/red-lipsticks-youll-never-want-to-take-off/)
-- [2 toned lips](https://makeup.allwomenstalk.com/makeup-how-to-two-toned-ombre-lips/)
-- [color riche le stylo eye silver couture](https://makeup.allwomenstalk.com/what-does-your-lipstick-say-about-your-personality-find-out-here/)
 - [Forget the Duck Pout: 29 Statement Lipsticks for a...](https://makeup.allwomenstalk.com/forget-the-duck-pout-statement-lipsticks-for-a-much-sexier-you/)
+- [7 Red Lipsticks Youll Never Want to Take off ...](https://makeup.allwomenstalk.com/red-lipsticks-youll-never-want-to-take-off/)
+- [7 Things You Need to Know about Lip Balm ...](https://skincare.allwomenstalk.com/things-you-need-to-know-about-lip-balm/)
+- [paris color stylo smoky always](https://makeup.allwomenstalk.com/how-to-rock-the-bold-lipstick-shades-that-scare-you/)
+- [2 toned lips](https://makeup.allwomenstalk.com/makeup-how-to-two-toned-ombre-lips/)
 - [color fear not lipstick](https://makeup.allwomenstalk.com/avoid-these-lipstick-mistakes-for-the-perfect-pout/)
+- [7 Best Products with SPF to Keep Your Lips Sexy .....](https://beauty.allwomenstalk.com/best-products-with-spf-to-keep-your-lips-sexy/)
+- [What do You Know about the Skin on Your Lips](https://skincare.allwomenstalk.com/important-facts-about-the-skin-on-your-lips/)
+- [color riche le stylo eye silver couture](https://makeup.allwomenstalk.com/what-does-your-lipstick-say-about-your-personality-find-out-here/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

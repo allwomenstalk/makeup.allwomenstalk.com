@@ -44,16 +44,16 @@ Top Photo Credit: _iferneinez_
 
 ## Related Posts
 
-- [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
-- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
-- [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
-- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [paris color stylo smoky eye azure](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
-- [how to apply foundation smoothly](https://makeup.allwomenstalk.com/unbelievably-stellar-tips-on-how-to-apply-foundation/)
 - [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
-- [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
+- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
 - [7 Tips for Perfect Concealer ...](https://makeup.allwomenstalk.com/tips-for-perfect-concealer/)
+- [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
+- [how to apply foundation smoothly](https://makeup.allwomenstalk.com/unbelievably-stellar-tips-on-how-to-apply-foundation/)
+- [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
+- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
+- [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
+- [paris color stylo smoky eye azure](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 - [7 Steps for a Faster Makeup Routine ...](https://allwomenstalk.com/7-steps-for-a-faster-makeup-routine/)
 

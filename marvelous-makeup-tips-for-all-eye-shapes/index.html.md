@@ -42,16 +42,16 @@ So ladies, there you have it! All of my top makeup tips for all eye shapes that 
 
 ## Related Posts
 
+- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
+- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
 - [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
 - [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
+- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
 - [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
-- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
+- [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
 - [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
 - [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
 - [hot eye makeup](https://makeup.allwomenstalk.com/makeup-looks-to-look-hot-without-a-smoky-eye/)
-- [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
-- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
-- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

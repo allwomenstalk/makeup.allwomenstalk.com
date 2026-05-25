@@ -56,16 +56,16 @@ These’re 7 palettes that’re perfect for fall. What palette are you wearing t
 
 ## Related Posts
 
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
-- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
-- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
 - [cyber monday deals for womens clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
-- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
 - [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
+- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
 - [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
+- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
+- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [5 Best Eyeshadows for Falls Smoky Eye ...](https://allwomenstalk.com/smoky-fall-makeup-must-have-eye-shadows-for-this-fall/)
 

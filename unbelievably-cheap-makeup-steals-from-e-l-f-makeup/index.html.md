@@ -56,16 +56,16 @@ These are 7 of the many amazing products by E.L.F. Which ones are you planning t
 
 ## Related Posts
 
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
-- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
-- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
-- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
-- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
 - [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
+- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
 - [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
+- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
 - [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
+- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 

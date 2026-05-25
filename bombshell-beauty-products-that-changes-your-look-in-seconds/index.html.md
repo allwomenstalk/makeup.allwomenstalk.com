@@ -56,16 +56,16 @@ Look like the bombshell you are with these kickass beauty products! These produc
 
 ## Related Posts
 
-- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
 - [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
-- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
+- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
 - [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
 - [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
-- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
 - [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
-- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
+- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
 - [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
-- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 

@@ -70,16 +70,16 @@ You don't want to leave lipstick marks all over your boyfriend's face. That's wh
 
 ## Related Posts
 
-- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
-- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
-- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
-- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
-- [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
-- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
+- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
+- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
+- [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
+- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
+- [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
+- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
+- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

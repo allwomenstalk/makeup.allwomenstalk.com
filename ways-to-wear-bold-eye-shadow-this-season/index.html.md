@@ -56,16 +56,16 @@ Don’t shy away from trying something new this year. 2014 is all about playing 
 
 ## Related Posts
 
-- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
-- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
 - [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
-- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
-- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
 - [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
+- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
+- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
+- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
+- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
+- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
 - [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
 - [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
-- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Gorgeous Ways to Wear Eye Shadow ...](https://allwomenstalk.com/7-gorgeous-ways-to-wear-eye-shadow/)
 

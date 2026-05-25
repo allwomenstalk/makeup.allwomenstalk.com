@@ -36,16 +36,16 @@ I know, I know, you haven’t been to Hot Topic since your early teen Nightmare 
 
 ## Related Posts
 
-- [Beauty Beat:  Mascara Madness](https://allwomenstalk.com/beauty-beat-mascara-madness/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
-- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
 - [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
-- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
-- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
 - [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
 - [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
+- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
+- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
+- [Beauty Beat:  Mascara Madness](https://allwomenstalk.com/beauty-beat-mascara-madness/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [10 Drugstore Make-up Picks That Wont Break the Ban...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 

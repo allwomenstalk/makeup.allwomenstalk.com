@@ -46,16 +46,16 @@ Makeup was never meant to be caked and plastered on, girls, it's supposed to enh
 
 ## Related Posts
 
+- [how to contour double chin for beginners](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-women-with-a-double-chin/)
+- [color stylo eye java](https://makeup.allwomenstalk.com/trendy-eyeliner-colors-you-need-to-try/)
 - [awesome makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-thin-lips/)
+- [brows and beauty room](https://beauty.allwomenstalk.com/steps-to-perfectly-manicured-brows/)
+- [best bb cream for freckles](https://makeup.allwomenstalk.com/clever-makeup-tricks-to-enhance-your-freckles/)
+- [color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/)
+- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
 - [paris riche le stylo timeless blue](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-wear-metallic-makeup/)
 - [too much eyeshadow](https://makeup.allwomenstalk.com/fab-ways-to-tell-if-youre-wearing-too-much-makeup/)
-- [color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/)
-- [brows and beauty room](https://beauty.allwomenstalk.com/steps-to-perfectly-manicured-brows/)
-- [color stylo eye java](https://makeup.allwomenstalk.com/trendy-eyeliner-colors-you-need-to-try/)
-- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
-- [best bb cream for freckles](https://makeup.allwomenstalk.com/clever-makeup-tricks-to-enhance-your-freckles/)
 - [brown outfit makeup](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
-- [how to contour double chin for beginners](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-women-with-a-double-chin/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Prom Make up Tips ...](https://allwomenstalk.com/10-prom-make-up-tips/)
 

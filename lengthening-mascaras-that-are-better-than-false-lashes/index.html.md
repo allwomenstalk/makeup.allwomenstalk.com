@@ -56,16 +56,16 @@ There are many more mascaras that deserve a spot on this list but I had to narro
 
 ## Related Posts
 
+- [flawless finish makeup](https://makeup.allwomenstalk.com/makeup-tips-for-a-flawless-finish/)
+- [is it bad to sleep with makeup on](https://makeup.allwomenstalk.com/reasons-not-to-sleep-with-makeup-on/)
+- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
+- [makeup trends 2013](https://beauty.allwomenstalk.com/eye-makeup-trends-for-summer/)
+- [livelovediy](https://diy.allwomenstalk.com/professional-painting-secrets-that-will-blow-your-mind/)
+- [sephora shade match](https://makeup.allwomenstalk.com/valid-and-surprising-reasons-you-shouldnt-wear-makeup/)
 - [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
 - [melting makeup](https://makeup.allwomenstalk.com/tantalizing-tips-to-keep-your-makeup-from-melting-off-your-face/)
-- [sephora shade match](https://makeup.allwomenstalk.com/valid-and-surprising-reasons-you-shouldnt-wear-makeup/)
-- [livelovediy](https://diy.allwomenstalk.com/professional-painting-secrets-that-will-blow-your-mind/)
-- [makeup trends 2013](https://beauty.allwomenstalk.com/eye-makeup-trends-for-summer/)
-- [is it bad to sleep with makeup on](https://makeup.allwomenstalk.com/reasons-not-to-sleep-with-makeup-on/)
 - [stylo eye shadow unforgettable](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/)
-- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
 - [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
-- [flawless finish makeup](https://makeup.allwomenstalk.com/makeup-tips-for-a-flawless-finish/)
 - [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Surprisingly Awesome Mascaras ...](https://allwomenstalk.com/7-surprisingly-awesome-mascaras/)
 

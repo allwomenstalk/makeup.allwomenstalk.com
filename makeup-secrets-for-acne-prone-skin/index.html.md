@@ -56,16 +56,16 @@ Do you have acne prone skin? Will any of these tips help you? Do you have any ot
 
 ## Related Posts
 
-- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
-- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
+- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
 - [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
 - [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
-- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
+- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
 - [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
-- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
-- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
-- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
+- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
+- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
 - [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
+- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
+- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 

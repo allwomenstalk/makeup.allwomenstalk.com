@@ -62,15 +62,15 @@ So ladies, if you've been excited about trying new smoky eyes, here they are! A 
 
 ## Related Posts
 
+- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
 - [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
 - [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
-- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
-- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
-- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
-- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
-- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
 - [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
+- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
+- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
+- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
+- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
 - [best mascara for lengthening lashes](https://makeup.allwomenstalk.com/lengthening-mascaras-that-are-better-than-false-lashes/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 - [7 Best Smokey Eye Videos ...](https://allwomenstalk.com/7-best-smokey-eye-videos/)

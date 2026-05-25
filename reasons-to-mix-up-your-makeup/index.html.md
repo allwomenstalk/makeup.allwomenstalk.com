@@ -42,16 +42,16 @@ How often do you change your makeup up? Let me know in the comments!
 
 ## Related Posts
 
-- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
-- [how to figure out what foundation color you are](https://makeup.allwomenstalk.com/how-to-choose-the-right-foundation-for-your-face/)
-- [emo girl eye makeup](https://makeup.allwomenstalk.com/rainbow-makeup-looks-thatll-brighten-up-your-face/)
-- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
-- [make up for the mistake](https://makeup.allwomenstalk.com/makeup-mistakes-you-need-to-stop-making-immediately/)
 - [paris stylo smoky eye shadow hollywood icon](https://makeup.allwomenstalk.com/white-eyeliner-inspirations-that-you-can-copy-with-ease/)
+- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
 - [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
+- [emo girl eye makeup](https://makeup.allwomenstalk.com/rainbow-makeup-looks-thatll-brighten-up-your-face/)
+- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
 - [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
-- [carnival makeup ideas](https://makeup.allwomenstalk.com/amazing-makeup-tutorials-fit-for-music-festivals/)
 - [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
+- [how to figure out what foundation color you are](https://makeup.allwomenstalk.com/how-to-choose-the-right-foundation-for-your-face/)
+- [make up for the mistake](https://makeup.allwomenstalk.com/makeup-mistakes-you-need-to-stop-making-immediately/)
+- [carnival makeup ideas](https://makeup.allwomenstalk.com/amazing-makeup-tutorials-fit-for-music-festivals/)
 - [7 Reasons Its Important to Replace Your Makeup ...](https://allwomenstalk.com/7-reasons-its-important-to-replace-your-makeup/)
 - [8 Reasons Why Makeup is Good for You ...](https://allwomenstalk.com/8-reasons-why-makeup-is-good-for-you/)
 

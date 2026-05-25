@@ -57,15 +57,15 @@ These’re 7 bad makeup habits to drop. Which of these are a struggle for you? I
 ## Related Posts
 
 - [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
-- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
-- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
-- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
+- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
+- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
+- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
 - [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [8 Classic Make up Mistakes to Avoid ...](https://allwomenstalk.com/8-classic-make-up-mistakes-to-avoid/)
 - [7 Reasons Its Important to Replace Your Makeup ...](https://allwomenstalk.com/7-reasons-its-important-to-replace-your-makeup/)
 

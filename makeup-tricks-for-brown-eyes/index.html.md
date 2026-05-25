@@ -118,16 +118,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
 - [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
-- [mascara for fine short lashes](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
-- [makeup for young girls](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
-- [how to make yourself look younger with makeup](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
-- [color riche le stylo eye unforgettable](https://makeup.allwomenstalk.com/clever-makeup-tips-on-how-to-make-your-eyes-look-bigger-instantly/)
-- [shape your eyebrows](https://makeup.allwomenstalk.com/ways-to-perfectly-shape-your-eyebrows/)
-- [makeup color trends](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
-- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
 - [does mascara make eyes look bigger](https://makeup.allwomenstalk.com/great-ways-to-make-your-eyes-look-bigger/)
+- [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
+- [shape your eyebrows](https://makeup.allwomenstalk.com/ways-to-perfectly-shape-your-eyebrows/)
+- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
+- [how to make yourself look younger with makeup](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
+- [makeup for young girls](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
+- [makeup color trends](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
+- [mascara for fine short lashes](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
+- [color riche le stylo eye unforgettable](https://makeup.allwomenstalk.com/clever-makeup-tips-on-how-to-make-your-eyes-look-bigger-instantly/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

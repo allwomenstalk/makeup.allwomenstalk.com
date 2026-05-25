@@ -78,14 +78,14 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2830935265462291
 
 - [8 Easy Steps to Natural Looking False Eyelashes .....](https://beauty.allwomenstalk.com/easy-steps-to-natural-looking-false-eyelashes/)
 - [loreal riche stylo eye blue spark](https://makeup.allwomenstalk.com/tips-to-wear-bright-makeup-for-summer/)
-- [7 Makeup Mistakes You Should Start Making ...](https://beauty.allwomenstalk.com/makeup-mistakes-you-should-start-making/)
 - [best primer to make makeup last longer](https://beauty.allwomenstalk.com/best-primers-for-long-lasting-makeup/)
-- [7 Makeup Mistakes That Make You Look Older ...](https://beauty.allwomenstalk.com/makeup-mistakes-that-make-you-look-older/)
-- [7 Ways to Keep Your Makeup Fresh in the Heat ...](https://makeup.allwomenstalk.com/ways-to-keep-your-makeup-fresh-in-the-heat/)
+- [7 Simple Steps to Wake up Your Makeup in Less than...](https://beauty.allwomenstalk.com/simple-steps-to-wake-up-your-makeup-in-less-than-a-minute/)
+- [7 Makeup Mistakes You Should Start Making ...](https://beauty.allwomenstalk.com/makeup-mistakes-you-should-start-making/)
 - [7 Must-Know Tips for Choosing Makeup ...](https://makeup.allwomenstalk.com/must-know-tips-for-choosing-makeup/)
 - [paris riche le stylo eye shadow twist](https://beauty.allwomenstalk.com/tips-to-get-out-of-your-makeup-rut/)
-- [7 Simple Steps to Wake up Your Makeup in Less than...](https://beauty.allwomenstalk.com/simple-steps-to-wake-up-your-makeup-in-less-than-a-minute/)
 - [7 Tips for Naturally Looking False Lashes ...](https://makeup.allwomenstalk.com/tips-for-naturally-looking-false-lashes/)
+- [7 Ways to Keep Your Makeup Fresh in the Heat ...](https://makeup.allwomenstalk.com/ways-to-keep-your-makeup-fresh-in-the-heat/)
+- [7 Makeup Mistakes That Make You Look Older ...](https://beauty.allwomenstalk.com/makeup-mistakes-that-make-you-look-older/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

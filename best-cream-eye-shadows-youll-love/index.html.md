@@ -112,16 +112,16 @@ Do you love cream shadow as much as I do? If so, what do you look for when youâ€
 
 ## Related Posts
 
-- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
-- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
 - [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
+- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
 - [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
-- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
+- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
 - [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
-- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
 - [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
+- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
 - [5 Best Eyeshadows for Falls Smoky Eye ...](https://allwomenstalk.com/smoky-fall-makeup-must-have-eye-shadows-for-this-fall/)
 - [6 Best Eyeshadows - Expert Reviews ...](https://allwomenstalk.com/best-eyeshadows-expert-reviews/)
 

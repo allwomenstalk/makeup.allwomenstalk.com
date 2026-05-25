@@ -50,16 +50,16 @@ $19.00 at nyxcosmetics.com_
 
 ## Related Posts
 
-- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
+- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
 - [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
 - [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
 - [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
+- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
+- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
 - [8 Best Drugstore Beauty Products ...](https://makeup.allwomenstalk.com/best-drugstore-beauty-products-3/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 

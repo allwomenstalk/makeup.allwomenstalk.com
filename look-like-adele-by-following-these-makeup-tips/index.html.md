@@ -56,16 +56,16 @@ These are 7 tips to give you Adele’s makeup look. Are there other celebrities 
 
 ## Related Posts
 
-- [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
-- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
-- [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
-- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
-- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
-- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
-- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
-- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
-- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
 - [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
+- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
+- [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
+- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
+- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
+- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
+- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
+- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

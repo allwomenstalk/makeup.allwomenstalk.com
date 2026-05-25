@@ -52,16 +52,16 @@ I love the lipstick colors that were found on the catwalks this season. I plan o
 
 ## Related Posts
 
-- [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
+- [color of your lips](https://beauty.allwomenstalk.com/unique-ways-to-add-color-to-your-lips/)
 - [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
 - [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
-- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
-- [paris color riche stylo eye shadow timeless spark](https://wedding.allwomenstalk.com/tips-to-choosing-the-perfect-wedding-lipstick/)
-- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
-- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
-- [color of your lips](https://beauty.allwomenstalk.com/unique-ways-to-add-color-to-your-lips/)
-- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
 - [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
+- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
+- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
+- [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
+- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
+- [paris color riche stylo eye shadow timeless spark](https://wedding.allwomenstalk.com/tips-to-choosing-the-perfect-wedding-lipstick/)
+- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

@@ -80,16 +80,16 @@ Here's to the new year and lust-worthy makeup trends to come. Which of these new
 
 ## Related Posts
 
-- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
-- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
-- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
-- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
 - [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
-- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
+- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
+- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
 - [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
-- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
-- [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
+- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
+- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
 - [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
+- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
+- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
+- [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)
 

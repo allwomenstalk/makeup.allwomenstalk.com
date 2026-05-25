@@ -22,16 +22,16 @@ Good stuff, right? Do not forget to share this video with your besties, they'll 
 
 ## Related Posts
 
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
 - [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
-- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
-- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
 - [valentines day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
 - [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
-- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
-- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
 - [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
+- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
+- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [13 Best Eyeliners You Wont Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 

@@ -34,16 +34,16 @@ Eyes are agreeably one of the most beautiful parts of the face, and well-decorat
 
 ## Related Posts
 
-- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
-- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
-- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
-- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
-- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
-- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
 - [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
+- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
+- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
+- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
 - [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
+- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
+- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Eye Makeup Tips: 7 Ways to Play up Your Eyes ...](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 

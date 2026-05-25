@@ -36,16 +36,16 @@ Please, please, please don’t work out with a full face of makeup! The sweat co
 
 ## Related Posts
 
-- [how to make your makeup last all day](https://makeup.allwomenstalk.com/the-secret-process-to-make-your-makeup-last-all-day/)
-- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
-- [good make up looks](https://makeup.allwomenstalk.com/reasons-your-makeup-never-looks-as-good-as-it-could/)
-- [how to cover freckles with makeup](https://makeup.allwomenstalk.com/how-to-wear-foundation-without-hiding-your-freckles/)
-- [how to determine best eyebrow shape](https://beauty.allwomenstalk.com/how-to-choose-your-perfect-eyebrow-shape/)
-- [paris color le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/whats-actually-in-your-makeup/)
-- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
 - [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
-- [why do men hate makeup](https://makeup.allwomenstalk.com/read-me-to-discover-makeup-mistakes-men-hate/)
+- [how to cover freckles with makeup](https://makeup.allwomenstalk.com/how-to-wear-foundation-without-hiding-your-freckles/)
+- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
+- [paris color le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/whats-actually-in-your-makeup/)
 - [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [how to determine best eyebrow shape](https://beauty.allwomenstalk.com/how-to-choose-your-perfect-eyebrow-shape/)
+- [good make up looks](https://makeup.allwomenstalk.com/reasons-your-makeup-never-looks-as-good-as-it-could/)
+- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
+- [why do men hate makeup](https://makeup.allwomenstalk.com/read-me-to-discover-makeup-mistakes-men-hate/)
+- [how to make your makeup last all day](https://makeup.allwomenstalk.com/the-secret-process-to-make-your-makeup-last-all-day/)
 - [Beauty Tips: Acne Skin Clear Methods ...](https://allwomenstalk.com/beauty-tips-acne-skin-clear-methods/)
 - [Beauty Tips from a Regular Girls Makeup Bag ...](https://allwomenstalk.com/beauty-tips-from-a-regular-girls-makeup-bag/)
 

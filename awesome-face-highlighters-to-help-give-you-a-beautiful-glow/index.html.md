@@ -63,15 +63,15 @@ Highlighters at first may seem a bit scary because you don't want to look too "f
 
 ## Related Posts
 
-- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
-- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
-- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
 - [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
+- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
 - [bombshell beauty nails  lashes photos](https://makeup.allwomenstalk.com/bombshell-beauty-products-that-changes-your-look-in-seconds/)
-- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
 - [best beauty products splurge](https://beauty.allwomenstalk.com/beauty-products-to-splurge-and-to-save-on/)
+- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
+- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
 - [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
 - [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
+- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
 - [ewg eyeshadow](https://makeup.allwomenstalk.com/eco-friendly-makeup-products-that-you-should-try/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)

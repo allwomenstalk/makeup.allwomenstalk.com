@@ -154,16 +154,16 @@ So which one is going in your makeup bag?
 
 ## Related Posts
 
-- [light pink lips](https://makeup.allwomenstalk.com/makeup-trend-pale-pink-lips-inspos-you-must-try-for-yourself/)
-- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
-- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
-- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
-- [mike wazowski big lips](https://makeup.allwomenstalk.com/this-is-what-happens-when-makeup-artists-use-lips-as-their-canvas/)
 - [what brand of lipstick stays on all day](https://makeup.allwomenstalk.com/lipstick-that-actually-lasts-the-best-brands-thatll-stay-on-all-day/)
+- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
+- [mike wazowski big lips](https://makeup.allwomenstalk.com/this-is-what-happens-when-makeup-artists-use-lips-as-their-canvas/)
+- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
 - [how to find the right lipstick color](https://makeup.allwomenstalk.com/the-perfect-pout-lip-infographics-you-have-to-see/)
-- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
-- [is the kylie jenner challenge safe](https://beauty.allwomenstalk.com/the-anti-kyliejennerchallenge-here-is-all-you-need-to-know-to-have-healthy-sexy-lips/)
 - [ruby lips meaning](https://makeup.allwomenstalk.com/all-you-need-to-know-to-rock-a-bold-lip-easy-steps/)
+- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
+- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
+- [light pink lips](https://makeup.allwomenstalk.com/makeup-trend-pale-pink-lips-inspos-you-must-try-for-yourself/)
+- [is the kylie jenner challenge safe](https://beauty.allwomenstalk.com/the-anti-kyliejennerchallenge-here-is-all-you-need-to-know-to-have-healthy-sexy-lips/)
 - [8 Spring Lipstick Shades ...](https://makeup.allwomenstalk.com/spring-lipstick-shades/)
 - [13 Gorgeous Lipstick Shades for Pale Skin ...](https://makeup.allwomenstalk.com/gorgeous-lipstick-shades-for-pale-skin/)
 

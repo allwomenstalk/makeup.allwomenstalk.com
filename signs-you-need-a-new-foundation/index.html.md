@@ -42,16 +42,16 @@ These are 7 signs it’s time to change your foundation. Are you looking for a n
 
 ## Related Posts
 
-- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
-- [when to take a career break](https://money.allwomenstalk.com/these-are-the-signs-you-need-a-career-break/)
-- [are you ready to live the life you deserve](https://inspiration.allwomenstalk.com/signs-that-your-life-needs-a-major-makeover/)
-- [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
-- [netflix shows about addiction](https://movies.allwomenstalk.com/signs-youre-addicted-to-netflix/)
-- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
 - [how to know if your happy](https://inspiration.allwomenstalk.com/signs-youre-truly-happy/)
-- [travel addicted](https://travel.allwomenstalk.com/these-are-the-signs-you-are-addicted-to-travel/)
-- [on vacation signs](https://travel.allwomenstalk.com/signs-you-need-a-vacation/)
 - [daphliz](https://love.allwomenstalk.com/are-you-ready-to-live-with-your-so-the-signs/)
+- [on vacation signs](https://travel.allwomenstalk.com/signs-you-need-a-vacation/)
+- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
+- [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
+- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
+- [travel addicted](https://travel.allwomenstalk.com/these-are-the-signs-you-are-addicted-to-travel/)
+- [when to take a career break](https://money.allwomenstalk.com/these-are-the-signs-you-need-a-career-break/)
+- [netflix shows about addiction](https://movies.allwomenstalk.com/signs-youre-addicted-to-netflix/)
+- [are you ready to live the life you deserve](https://inspiration.allwomenstalk.com/signs-that-your-life-needs-a-major-makeover/)
 - [7 Signs You Need to Move out of Your Home ...](https://allwomenstalk.com/7-signs-you-need-to-move-out-of-your-home/)
 - [8 Signs Its Time to Move Your Bed ...](https://allwomenstalk.com/8-signs-its-time-to-move-your-bed/)
 

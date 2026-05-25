@@ -72,16 +72,16 @@ Urban Decay | $54 [SHOP IT](https://goo.gl/QyKlUF)
 
 ## Related Posts
 
+- [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
 - [best makeup for moms](https://makeup.allwomenstalk.com/makeup-products-for-moms-who-like-looking-their-best/)
 - [too faced natural love ultimate neutral eyeshadow ...](https://makeup.allwomenstalk.com/gorgeous-eye-shadow-looks-created-with-the-must-have-eyeshadow-palettes-of/)
+- [which eyeshadow brand is best](https://makeup.allwomenstalk.com/best-eyeshadow-palette-brands/)
+- [kylie cosmetics font](https://makeup.allwomenstalk.com/breaking-news-whats-in-kylie-cosmetics-summer-vacation-collection/)
+- [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
 - [waterproof concealer sephora](https://makeup.allwomenstalk.com/the-best-waterproof-makeup-to-wear-all-summer-long-for-girls-who-stay-in-the-water/)
+- [makeup rose gold](https://makeup.allwomenstalk.com/gorgeously-versatile-rose-gold-makeup-looks-for-any-occasion/)
 - [herbivore skin](https://beauty.allwomenstalk.com/amazing-all-natural-beauty-brands-to-try-today/)
 - [new makeup look](https://makeup.allwomenstalk.com/fab-new-makeup-trends-every-girl-must-try-this-summmer/)
-- [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
-- [makeup rose gold](https://makeup.allwomenstalk.com/gorgeously-versatile-rose-gold-makeup-looks-for-any-occasion/)
-- [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
-- [kylie cosmetics font](https://makeup.allwomenstalk.com/breaking-news-whats-in-kylie-cosmetics-summer-vacation-collection/)
-- [which eyeshadow brand is best](https://makeup.allwomenstalk.com/best-eyeshadow-palette-brands/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)
 

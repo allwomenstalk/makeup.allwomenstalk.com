@@ -42,16 +42,16 @@ Although cosmetics have changed drastically throughout the course of history, th
 
 ## Related Posts
 
-- [loreal color riche stylo smoky shadow icon](https://beauty.allwomenstalk.com/best-beauty-icons-to-get-beauty-inspiration-from/)
-- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
-- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
-- [how to have a pamper night](https://beauty.allwomenstalk.com/luxurious-tips-for-the-perfect-pamper-evening/)
 - [beauty habits](https://beauty.allwomenstalk.com/popular-beauty-habits-you-should-be-trying/)
-- [smokey eye kate moss makeup](https://beauty.allwomenstalk.com/great-beauty-lessons-kate-moss-taught-me/)
-- [toebesity](https://beauty.allwomenstalk.com/controversial-cosmetic-procedures-that-will-boggle-your-mind/)
-- [beauty and confidence](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
 - [blue eyes meaning spiritual](https://inspiration.allwomenstalk.com/significant-signs-of-true-beauty-that-you-will-agree-with/)
+- [how to have a pamper night](https://beauty.allwomenstalk.com/luxurious-tips-for-the-perfect-pamper-evening/)
+- [beauty and confidence](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
+- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
+- [toebesity](https://beauty.allwomenstalk.com/controversial-cosmetic-procedures-that-will-boggle-your-mind/)
+- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
+- [smokey eye kate moss makeup](https://beauty.allwomenstalk.com/great-beauty-lessons-kate-moss-taught-me/)
 - [baking soda and olive oil for face](https://beauty.allwomenstalk.com/amazing-beauty-uses-for-baking-soda-you-will-want-to-try/)
+- [loreal color riche stylo smoky shadow icon](https://beauty.allwomenstalk.com/best-beauty-icons-to-get-beauty-inspiration-from/)
 - [9 Ways to save Money on Cosmetics ...](https://money.allwomenstalk.com/ways-to-save-money-on-cosmetics/)
 - [10 Random Beauty Tricks You Didnt Know about ...](https://beauty.allwomenstalk.com/random-beauty-tricks-you-didnt-know-about/)
 

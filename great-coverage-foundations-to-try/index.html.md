@@ -56,16 +56,16 @@ So girls, you asked for it! These are all of my top foundations that are truly a
 
 ## Related Posts
 
-- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
-- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
-- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
 - [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
+- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
 - [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
-- [while analyzing sonias features you noticed that s...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
-- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
 - [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
+- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
+- [while analyzing sonias features you noticed that s...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [My Top 5 Foundations ...](https://allwomenstalk.com/my-top-5-foundations/)
 

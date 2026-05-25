@@ -54,16 +54,16 @@ I am a firm believer that every one should use purple in their beauty routine. I
 
 ## Related Posts
 
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
-- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
+- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
 - [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
 - [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
-- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
-- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
+- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
+- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
 - [how to become a cerave ambassador](https://beauty.allwomenstalk.com/drugstore-beauty-products-recommended-by-celebrities/)
 - [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
 - [diorshow blackout mascara discontinued](https://makeup.allwomenstalk.com/awesome-mascaras-to-test-out-now/)
-- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
+- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

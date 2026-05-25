@@ -54,16 +54,16 @@ The light shades in this unexpected palette brighten up the eye while the darker
 
 ## Related Posts
 
-- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
 - [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
-- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
-- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [herbivore skin](https://beauty.allwomenstalk.com/amazing-all-natural-beauty-brands-to-try-today/)
-- [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
-- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
-- [new makeup look](https://makeup.allwomenstalk.com/fab-new-makeup-trends-every-girl-must-try-this-summmer/)
 - [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
+- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
 - [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
+- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
+- [new makeup look](https://makeup.allwomenstalk.com/fab-new-makeup-trends-every-girl-must-try-this-summmer/)
+- [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
+- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
+- [herbivore skin](https://beauty.allwomenstalk.com/amazing-all-natural-beauty-brands-to-try-today/)
+- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [7 of My Favorite Eyeshadow Palettes ...](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
 

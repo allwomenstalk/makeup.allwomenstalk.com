@@ -40,16 +40,16 @@ And there you have it - the five makeup products you need to create a simple eve
 
 ## Related Posts
 
+- [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
 - [Beauty Beat:  Mascara Madness](https://allwomenstalk.com/beauty-beat-mascara-madness/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
+- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
 - [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
 - [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
 - [Korres Natural Beauty for Men and Women at ASOS](https://allwomenstalk.com/korres-natural-beauty-for-men-and-women-at-asos/)
-- [Fake Bake Month: ModelCo Tan Airbrush in a Can ...](https://allwomenstalk.com/fake-bake-month-modelco-tan-airbrush-in-a-can/)
-- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
-- [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
 - [sephora sun kit](https://allwomenstalk.com/sephoras-sun-safety-kit/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [Fake Bake Month: ModelCo Tan Airbrush in a Can ...](https://allwomenstalk.com/fake-bake-month-modelco-tan-airbrush-in-a-can/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 - [7 Must Haves for Your Perfect HD Makeup ...](https://allwomenstalk.com/7-must-haves-for-your-perfect-hd-makeup/)
 

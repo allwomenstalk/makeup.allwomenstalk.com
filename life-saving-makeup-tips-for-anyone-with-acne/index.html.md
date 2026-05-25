@@ -42,16 +42,16 @@ What are your tips and tricks for wearing makeup when you have acne? What tips d
 
 ## Related Posts
 
-- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
-- [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
-- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
 - [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
-- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
-- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
 - [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
 - [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
 - [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
+- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
+- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
+- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
 - [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
+- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
 - [Acne Advice: Blemish Free Skin ...](https://allwomenstalk.com/acne-advice-blemish-free-skin/)
 - [Beauty Tips: Acne Skin Clear Methods ...](https://allwomenstalk.com/beauty-tips-acne-skin-clear-methods/)
 

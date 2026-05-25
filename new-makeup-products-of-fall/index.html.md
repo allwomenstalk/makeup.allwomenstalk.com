@@ -84,16 +84,16 @@ I hope y'all love these new makeup products as much as I do. Of course, buying n
 
 ## Related Posts
 
-- [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
-- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
-- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
-- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
-- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
-- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
-- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
-- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 - [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
+- [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
+- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
+- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
+- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
+- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
+- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 - [10 Best Foundations for Fall and Winter ...](https://allwomenstalk.com/10-best-foundations-for-fall-and-winter/)
 - [10 Classic Beauty Buys for 2010 ...](https://allwomenstalk.com/classic-beauty-buys-for/)
 

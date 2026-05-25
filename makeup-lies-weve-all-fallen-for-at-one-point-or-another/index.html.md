@@ -86,16 +86,16 @@ So when should you dump that old lipstick? Dr. Tanzi says six months after the e
 
 ## Related Posts
 
-- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
 - [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
-- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
-- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
-- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
 - [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
 - [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
+- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
+- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
 - [Why Its Time to Consider Dollar Store Make-up ...](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
 - [Witty Makeup Memes All Makeup Lovers Can Relate to...](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
 

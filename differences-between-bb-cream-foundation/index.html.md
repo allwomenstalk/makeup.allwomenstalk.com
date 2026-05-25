@@ -43,15 +43,15 @@ These are just a few of the many differences between BB cream and foundation. Ha
 ## Related Posts
 
 - [dr bronners 18 uses](https://skincare.allwomenstalk.com/handy-dandy-uses-for-dr-bronners-soap/)
-- [good face washes](https://skincare.allwomenstalk.com/best-face-washes/)
-- [luxury hand lotion](https://skincare.allwomenstalk.com/luxurious-hand-creams-for-your-softest-hands-ever/)
-- [best face cream for dark spots 2013](https://beauty.allwomenstalk.com/of-the-best-face-creams-for/)
-- [dark circles hide cream](https://skincare.allwomenstalk.com/excellent-eye-creams-thatll-hide-your-bags-and-dark-circles/)
+- [foundation for fair skin with pink undertones](https://makeup.allwomenstalk.com/best-foundations-for-pale-skin-for-that-flawless-look/)
 - [substitutes for moisturizer](https://beauty.allwomenstalk.com/chemical-free-moisturizing-substitutes-for-skin-and-hair/)
 - [best whole foods beauty products](https://food.allwomenstalk.com/hydrating-whole-foods-that-will-give-you-the-beautiful-glowing-skin-of-your-dreams/)
+- [dark circles hide cream](https://skincare.allwomenstalk.com/excellent-eye-creams-thatll-hide-your-bags-and-dark-circles/)
 - [face sunscreen that wont break you out](https://skincare.allwomenstalk.com/super-sunscreens-that-wont-cause-breakouts-and-acne/)
 - [pictures of cool things](https://lifestyle.allwomenstalk.com/super-cool-things-to-do-with-coconut-oil/)
-- [foundation for fair skin with pink undertones](https://makeup.allwomenstalk.com/best-foundations-for-pale-skin-for-that-flawless-look/)
+- [good face washes](https://skincare.allwomenstalk.com/best-face-washes/)
+- [best face cream for dark spots 2013](https://beauty.allwomenstalk.com/of-the-best-face-creams-for/)
+- [luxury hand lotion](https://skincare.allwomenstalk.com/luxurious-hand-creams-for-your-softest-hands-ever/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

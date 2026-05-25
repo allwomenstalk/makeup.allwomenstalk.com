@@ -68,16 +68,16 @@ What other ideas do you have?
 
 ## Related Posts
 
+- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
 - [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
+- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
 - [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
 - [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
-- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
-- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
 - [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [11 Delightfully Fantastic Gift Ideas for the Beaut...](https://beauty.allwomenstalk.com/delightfully-fantastic-gift-ideas-for-the-beauty-junkie/)
 

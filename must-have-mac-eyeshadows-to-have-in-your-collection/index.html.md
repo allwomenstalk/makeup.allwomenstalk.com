@@ -140,16 +140,16 @@ So there you have it ladies. These are the 21 basic must-have MAC eyeshadows tha
 
 ## Related Posts
 
-- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
-- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
-- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
 - [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
 - [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
-- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
+- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
+- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
+- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
 - [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
 - [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [MAC Eyeshadow Review ...](https://allwomenstalk.com/mac-eyeshadow-review/)
 

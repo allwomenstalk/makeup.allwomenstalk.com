@@ -56,16 +56,16 @@ Finding your perfect holiday look doesn’t have to be limited to just one. Have
 
 ## Related Posts
 
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
-- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
-- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
-- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
-- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
-- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
-- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
 - [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
+- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
+- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
+- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
 - [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
+- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
 - [8 Makeup Tricks for Flawlessly Beautiful Skin ...](https://makeup.allwomenstalk.com/makeup-tricks-for-flawlessly-beautiful-skin/)
 

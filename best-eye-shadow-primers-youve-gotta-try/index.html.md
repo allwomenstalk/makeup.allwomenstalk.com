@@ -56,16 +56,16 @@ If priming isn’t already a part of your routine, it is time to incorporate it.
 
 ## Related Posts
 
+- [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
+- [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
 - [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
+- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
+- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
+- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
 - [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
 - [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
 - [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
-- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
-- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
 - [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
-- [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
-- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 

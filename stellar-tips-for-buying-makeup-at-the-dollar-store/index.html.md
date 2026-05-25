@@ -42,16 +42,16 @@ I love shopping for purple eye liner and bright eye shadows when I’m feeling d
 
 ## Related Posts
 
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
+- [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
+- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
+- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
+- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
+- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
 - [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
 - [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
-- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
-- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
-- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
 - [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
-- [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
-- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
 - [9 Ways to save Money on Cosmetics ...](https://money.allwomenstalk.com/ways-to-save-money-on-cosmetics/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 

@@ -20,16 +20,16 @@ These are super awesome makeup tricks that we can all do. Enjoy the video.
 
 ## Related Posts
 
-- [guy eye liner](https://makeup.allwomenstalk.com/what-guys-really-think-about-makeup/)
 - [How to Slay at Shopping for Makeup ...](https://makeup.allwomenstalk.com/shopping-for-makeup/)
-- [6 Small Tips to Follow for the Perfect Eyebrows .....](https://beauty.allwomenstalk.com/tips-for-perfect-eyebrows/)
+- [Things to Know about Your Face for Better Makeup A...](https://makeup.allwomenstalk.com/what-you-should-know-about-your-face-for-better-makeup/)
+- [guy eye liner](https://makeup.allwomenstalk.com/what-guys-really-think-about-makeup/)
 - [Basic Makeup Routine for Everyday Life ...](https://beauty.allwomenstalk.com/basic-makeup-routine-for-every-day/)
+- [paris color riche stylo eye infinite](https://makeup.allwomenstalk.com/how-to-clean-makeup-brushes/)
 - [Easy Hacks to Help You Get Thicker Eyebrows ...](https://beauty.allwomenstalk.com/hacks-to-get-thicker-eyebrows/)
 - [stylo smoky brilliant](https://makeup.allwomenstalk.com/how-to-wear-summers-biggest-makeup-trends/)
-- [paris color riche stylo eye infinite](https://makeup.allwomenstalk.com/how-to-clean-makeup-brushes/)
-- [Pro Tips to Rid Your Eyes of Dark Circles ...](https://skincare.allwomenstalk.com/tips-to-get-rid-of-dark-circles-under-your-eyes/)
-- [Things to Know about Your Face for Better Makeup A...](https://makeup.allwomenstalk.com/what-you-should-know-about-your-face-for-better-makeup/)
+- [6 Small Tips to Follow for the Perfect Eyebrows .....](https://beauty.allwomenstalk.com/tips-for-perfect-eyebrows/)
 - [Pro Tips to Growing Long Gorgeous Lashes ...](https://beauty.allwomenstalk.com/tips-on-how-to-grow-your-eyelashes/)
+- [Pro Tips to Rid Your Eyes of Dark Circles ...](https://skincare.allwomenstalk.com/tips-to-get-rid-of-dark-circles-under-your-eyes/)
 - [Stop and Read These Makeup Tips to Look Good in An...](https://makeup.allwomenstalk.com/make-up-tips-to-look-good-in-pictures/)
 - [Beauty Tricks That Will Keep You Ahead of the Game...](https://beauty.allwomenstalk.com/beauty-tricks-to-keep-you-ahead-of-the-game/)
 

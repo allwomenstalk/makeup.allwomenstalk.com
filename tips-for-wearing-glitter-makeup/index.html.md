@@ -43,15 +43,15 @@ So now that I've shared these 7 tips for wearing glitter makeup, go ahead and tr
 ## Related Posts
 
 - [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
-- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
-- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
-- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
-- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
-- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
 - [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
-- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
+- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
 - [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
+- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
+- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
 - [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
+- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
+- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
+- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
 - [7 Makeup Tips for Those Who Wear Glasses ...](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

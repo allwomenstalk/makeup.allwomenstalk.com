@@ -58,14 +58,14 @@ The beauty of eyeliners is that you can pick up some great ones for just a few d
 
 - [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
 - [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
+- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
+- [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
+- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
 - [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
-- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
 - [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
-- [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
 - [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
-- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [13 Best Eyeliners You Wont Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 

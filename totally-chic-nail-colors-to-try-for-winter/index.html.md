@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19897389)
 
 ## Related Posts
 
-- [French Manicure](https://allwomenstalk.com/french-manicure/)
-- [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
 - [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
-- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
-- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
 - [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
-- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
 - [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
+- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
+- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
+- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
+- [French Manicure](https://allwomenstalk.com/french-manicure/)
 - [celebrity nail trends](https://allwomenstalk.com/10-nail-trends-celebs-are-following-this-spring/)
+- [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

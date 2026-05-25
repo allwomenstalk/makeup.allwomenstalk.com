@@ -42,16 +42,16 @@ Okay, ladies, so now that you have the scoop, ‘fess up -- have you ever made a
 
 ## Related Posts
 
-- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
 - [social issues teens](https://lifestyle.allwomenstalk.com/issues-teens-face-today/)
-- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
-- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
-- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
-- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
-- [victorian etiquette for gentlemen](https://lifestyle.allwomenstalk.com/rules-of-victorian-etiquette-we-should-still-observe/)
-- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
-- [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
 - [penguins facts about love](https://love.allwomenstalk.com/love-lessons-from-penguins/)
+- [victorian etiquette for gentlemen](https://lifestyle.allwomenstalk.com/rules-of-victorian-etiquette-we-should-still-observe/)
+- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
+- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
+- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
+- [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
+- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
+- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
+- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 

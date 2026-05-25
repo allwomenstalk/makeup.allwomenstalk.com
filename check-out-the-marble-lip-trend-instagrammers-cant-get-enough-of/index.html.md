@@ -54,16 +54,16 @@ There is a new beauty trend taking over Instagram that you will absolutely love 
 
 ## Related Posts
 
-- [Whats in  Your Lip Balm](https://skincare.allwomenstalk.com/ingredients-that-should-be-in-your-lip-balm/)
 - [Pro Tips on How to Choose the Right Lipstick Shade...](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-lipstick-shade/)
-- [Video Tutorial for DIY Chocolate Lip Balm in 60 Se...](https://beauty.allwomenstalk.com/video-tutorial-for-diy-chocolate-lip-balm-in-seconds/)
-- [Freebie Lipsticks for National Lipstick Day ...](https://makeup.allwomenstalk.com/freebie-lipsticks-for-national-lipstick-day/)
 - [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
-- [How to Choose Your Best Lip Color for Valentines D...](https://makeup.allwomenstalk.com/how-to-choose-your-best-lip-colour-for-valentines-day/)
+- [Video Tutorial for DIY Chocolate Lip Balm in 60 Se...](https://beauty.allwomenstalk.com/video-tutorial-for-diy-chocolate-lip-balm-in-seconds/)
 - [The Best Red Lipsticks of 2017 to Rock Next Year ....](https://makeup.allwomenstalk.com/the-best-red-lipsticks/)
-- [All You Need to Know to Get Fuller Lips with Lip F...](https://skincare.allwomenstalk.com/all-you-need-to-know-to-get-fuller-lips-with-lip-fillers/)
+- [Whats in  Your Lip Balm](https://skincare.allwomenstalk.com/ingredients-that-should-be-in-your-lip-balm/)
 - [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
 - [stylo smoky amber rush](https://makeup.allwomenstalk.com/the-most-popular-lipsticks-on-pinterest/)
+- [How to Choose Your Best Lip Color for Valentines D...](https://makeup.allwomenstalk.com/how-to-choose-your-best-lip-colour-for-valentines-day/)
+- [Freebie Lipsticks for National Lipstick Day ...](https://makeup.allwomenstalk.com/freebie-lipsticks-for-national-lipstick-day/)
+- [All You Need to Know to Get Fuller Lips with Lip F...](https://skincare.allwomenstalk.com/all-you-need-to-know-to-get-fuller-lips-with-lip-fillers/)
 - [8 Must-Have Trendy Pink Lipsticks for Spring ...](https://makeup.allwomenstalk.com/must-have-trendy-pink-lipsticks-for-spring/)
 - [9 Ways to Work the Lip Print Trend into Your Wardr...](https://fashion.allwomenstalk.com/ways-to-work-the-lip-print-trend-into-your-wardrobe/)
 

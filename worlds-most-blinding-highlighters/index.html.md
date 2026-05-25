@@ -56,16 +56,16 @@ Huda Beauty killed the beauty game with her lashes, and then she came with highl
 
 ## Related Posts
 
-- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
-- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
-- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
 - [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
 - [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
+- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
+- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
 - [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
-- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
+- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
 - [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
 - [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
+- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
+- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 - [My Top 5 Lip Glosses ...](https://allwomenstalk.com/my-top-5-lip-glosses/)
 

@@ -56,15 +56,15 @@ These are 7 eyeshadow palettes for cool skin tones. What are your favorite eyesh
 
 ## Related Posts
 
-- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
 - [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
-- [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
+- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
 - [moth face makeup](https://makeup.allwomenstalk.com/beauty-or-art-stunning-avant-garde-makeup/)
+- [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
+- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
 - [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
 - [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
 - [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
 - [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
-- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
 - [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [7 Dramatic Eyeshadow Looks for Winter ...](https://allwomenstalk.com/7-dramatic-eyeshadow-looks-for-winter/)
 - [7 Trendy Spring Makeup Palettes to Try ...](https://makeup.allwomenstalk.com/trendy-spring-makeup-palettes-to-try/)

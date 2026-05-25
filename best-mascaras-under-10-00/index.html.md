@@ -63,16 +63,16 @@ Some of the best mascaras might be behind the beauty counter at Nordstrom, but i
 
 ## Related Posts
 
-- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
-- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
-- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
 - [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
-- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
-- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
-- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
+- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
+- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
+- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
+- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
 - [WEBSITE FIND: Beauty Exclusive ...](https://allwomenstalk.com/website-find-beauty-exclusive/)
+- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [63 Best Affordable Mascaras ...](https://allwomenstalk.com/63-affordable-mascaras-expert-reviews/)
 

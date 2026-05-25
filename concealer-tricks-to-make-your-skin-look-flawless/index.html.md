@@ -42,16 +42,16 @@ Now that you have all of the top concealer tricks right at your fingertips, you'
 
 ## Related Posts
 
-- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
-- [how to use an eyebrow stamp](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
-- [brown outfit makeup](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
-- [if you trim your eyelashes will they grow longer](https://beauty.allwomenstalk.com/beauty-tips-for-long-luscious-lashes/)
-- [how to contour double chin for beginners](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-women-with-a-double-chin/)
 - [loreal riche le stylo shadow always pink](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
-- [makeup tips bronzer](https://makeup.allwomenstalk.com/fabulous-bronzer-application-tips-to-make-you-look-beautiful/)
-- [beauty tips for makeup](https://makeup.allwomenstalk.com/makeup-tips-to-make-you-look-prettier/)
 - [matt blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-mastering-matte-eyeshadow/)
+- [if you trim your eyelashes will they grow longer](https://beauty.allwomenstalk.com/beauty-tips-for-long-luscious-lashes/)
 - [how to hide dark circles with concealer](https://makeup.allwomenstalk.com/concealer-tricks-to-hide-dark-circles/)
+- [makeup tips bronzer](https://makeup.allwomenstalk.com/fabulous-bronzer-application-tips-to-make-you-look-beautiful/)
+- [how to use an eyebrow stamp](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
+- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
+- [brown outfit makeup](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
+- [beauty tips for makeup](https://makeup.allwomenstalk.com/makeup-tips-to-make-you-look-prettier/)
+- [how to contour double chin for beginners](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-women-with-a-double-chin/)
 - [7 Tips for Perfect Concealer ...](https://makeup.allwomenstalk.com/tips-for-perfect-concealer/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

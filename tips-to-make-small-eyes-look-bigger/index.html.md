@@ -42,16 +42,16 @@ Use these tips and now your small eyes should look bigger and wider.
 
 ## Related Posts
 
-- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
 - [holly richards permanent makeup  microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
 - [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
 - [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
-- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
+- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
 - [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
+- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
 

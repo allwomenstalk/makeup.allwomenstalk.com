@@ -42,16 +42,16 @@ So, you don't have to be a girly girl to wear makeup! Just use a couple of these
 
 ## Related Posts
 
-- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
-- [how to make hazel eyes pop with makeup](https://makeup.allwomenstalk.com/makeup-tips-for-hazel-eyes/)
-- [best makeup for someone who doesnt wear makeup](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-hate-makeup/)
-- [eye liner color for green eyes](https://makeup.allwomenstalk.com/best-eyeliners-for-green-eyes/)
 - [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
-- [wide set almond eyes](https://makeup.allwomenstalk.com/tips-on-how-to-find-out-your-eye-shape/)
-- [natural black makeup looks](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-black-white-photos/)
-- [how to make the eyes bigger](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-bigger/)
+- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
 - [office makeup tips](https://makeup.allwomenstalk.com/makeup-tips-for-the-office/)
 - [eating eyelashes](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes/)
+- [how to make hazel eyes pop with makeup](https://makeup.allwomenstalk.com/makeup-tips-for-hazel-eyes/)
+- [natural black makeup looks](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-black-white-photos/)
+- [how to make the eyes bigger](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-bigger/)
+- [wide set almond eyes](https://makeup.allwomenstalk.com/tips-on-how-to-find-out-your-eye-shape/)
+- [eye liner color for green eyes](https://makeup.allwomenstalk.com/best-eyeliners-for-green-eyes/)
+- [best makeup for someone who doesnt wear makeup](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-hate-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

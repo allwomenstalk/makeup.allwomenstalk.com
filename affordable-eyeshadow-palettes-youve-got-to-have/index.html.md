@@ -106,16 +106,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
 - [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
-- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
-- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
-- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
 - [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
+- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
+- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
+- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
+- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)
 

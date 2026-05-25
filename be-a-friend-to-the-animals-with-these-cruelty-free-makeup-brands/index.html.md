@@ -50,15 +50,15 @@ If your fave brand isn't on this list, no worries! It might still be totes cruel
 
 ## Related Posts
 
-- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
-- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
-- [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
 - [paris color riche le stylo smoky shadow azure](https://makeup.allwomenstalk.com/the-prettiest-eyeshadow-palettes-for-fall/)
-- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
-- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
 - [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
-- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
+- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
+- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
+- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
 - [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 - [Little Book of Cruelty Free](https://allwomenstalk.com/little-book-of-cruelty-free/)

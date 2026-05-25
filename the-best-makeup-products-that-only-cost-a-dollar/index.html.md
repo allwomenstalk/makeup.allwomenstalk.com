@@ -56,16 +56,16 @@ The best thing about all these items? They're only sold for a dollar. The qualit
 
 ## Related Posts
 
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
-- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
-- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
+- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
 - [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
+- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
 - [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
 - [paris color riche le stylo smoky shadow azure](https://makeup.allwomenstalk.com/the-prettiest-eyeshadow-palettes-for-fall/)
-- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
-- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
-- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
 - [7 Best Mascaras under 10.00 ...](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 - [10 Drugstore Make-up Picks That Wont Break the Ban...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 

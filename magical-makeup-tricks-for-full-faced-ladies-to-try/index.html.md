@@ -74,16 +74,16 @@ Do you have any makeup tips that can shape or minimize round faces?
 
 ## Related Posts
 
-- [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
-- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
-- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
-- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
-- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
-- [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
-- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
-- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
 - [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
+- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
+- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
 - [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
+- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
+- [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
+- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
+- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
+- [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [10 Great Beauty Tricks to Transform Your Look ...](https://allwomenstalk.com/10-great-beauty-tricks-to-transform-your-look/)
 

@@ -72,16 +72,16 @@ This fall you can put your matte lipstick back on the shelf. In addition to dewy
 
 ## Related Posts
 
-- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
 - [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
 - [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
-- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
 - [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
 - [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
+- [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)
 

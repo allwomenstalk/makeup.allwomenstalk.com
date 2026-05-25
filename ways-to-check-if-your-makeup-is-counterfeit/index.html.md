@@ -42,16 +42,16 @@ If you don't buy makeup from an authorised seller, you're taking a chance and bu
 
 ## Related Posts
 
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
 - [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
-- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
+- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
+- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
 - [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
 - [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
-- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
-- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
 - [7 Ways to Test Makeup ...](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 

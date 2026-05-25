@@ -55,15 +55,15 @@ I love wearing colored eyeliners to bring out my eyes. I have tried and love eac
 ## Related Posts
 
 - [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
-- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
-- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
-- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
-- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
-- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
-- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
-- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
 - [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
+- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
+- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
+- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
+- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
+- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
+- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
+- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
 - [13 Best Eyeliners You Wont Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 - [7 Knockout Coloured Eyeliners ...](https://allwomenstalk.com/7-knockout-coloured-eyeliners/)
 

@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25800145)
 
 ## Related Posts
 
-- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
-- [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
-- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
 - [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
 - [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
-- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
-- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
 - [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
+- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
+- [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 

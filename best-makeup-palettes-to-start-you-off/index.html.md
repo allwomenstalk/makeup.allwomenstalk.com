@@ -77,15 +77,15 @@ As you can see, there are so many great **makeup palettes** to start you off! No
 
 ## Related Posts
 
-- [paris stylo amber rush](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
+- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
+- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
+- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
+- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
 - [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [junkie look](https://beauty.allwomenstalk.com/delightfully-fantastic-gift-ideas-for-the-beauty-junkie/)
-- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 - [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
 - [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
-- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
-- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
-- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
+- [paris stylo amber rush](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
 - [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)

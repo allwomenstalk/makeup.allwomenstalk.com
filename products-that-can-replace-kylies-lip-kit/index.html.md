@@ -159,16 +159,16 @@ There's no match to this color in Kylie's Lip Kit, but there ought to be... I th
 
 ## Related Posts
 
-- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
-- [how to make homemade lip plumper](https://beauty.allwomenstalk.com/diy-recipes-thatll-give-you-plumper-lips/)
-- [makeup for very dark skin](https://makeup.allwomenstalk.com/how-ladies-with-dark-skin-can-cheat-the-sexy-nude-lip/)
-- [loreal riche stylo golden emerald](https://makeup.allwomenstalk.com/geode-lip-inspos-youll-absolutely-worship/)
-- [bold lipstick shades](https://makeup.allwomenstalk.com/bold-lipstick-shades-all-celebs-are-wearing-now/)
-- [color life lipstick](https://makeup.allwomenstalk.com/tips-to-extend-the-life-of-your-lipstick-on-your-lips/)
-- [riche stylo smoky azure](https://makeup.allwomenstalk.com/best-vampy-lip-colors-for-women-who-want-to-look-sexy-this-fall/)
-- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
-- [best budget lip plumper](https://beauty.allwomenstalk.com/tried-and-true-lip-pumping-products-that-all-thin-lipped-girls-should-be-using/)
 - [paris le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/bottom-lashes-to-die-for-when-yours-just-dont-make-the-cut/)
+- [riche stylo smoky azure](https://makeup.allwomenstalk.com/best-vampy-lip-colors-for-women-who-want-to-look-sexy-this-fall/)
+- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
+- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
+- [loreal riche stylo golden emerald](https://makeup.allwomenstalk.com/geode-lip-inspos-youll-absolutely-worship/)
+- [how to make homemade lip plumper](https://beauty.allwomenstalk.com/diy-recipes-thatll-give-you-plumper-lips/)
+- [best budget lip plumper](https://beauty.allwomenstalk.com/tried-and-true-lip-pumping-products-that-all-thin-lipped-girls-should-be-using/)
+- [makeup for very dark skin](https://makeup.allwomenstalk.com/how-ladies-with-dark-skin-can-cheat-the-sexy-nude-lip/)
+- [color life lipstick](https://makeup.allwomenstalk.com/tips-to-extend-the-life-of-your-lipstick-on-your-lips/)
+- [bold lipstick shades](https://makeup.allwomenstalk.com/bold-lipstick-shades-all-celebs-are-wearing-now/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

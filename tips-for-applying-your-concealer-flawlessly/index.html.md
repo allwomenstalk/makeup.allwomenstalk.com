@@ -56,16 +56,16 @@ What’s your go-to concealer tip? Will you try any of these?
 
 ## Related Posts
 
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
-- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
-- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
+- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
+- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
 - [Foolproof Tips for Flawless Holiday Makeup ...](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
 - [Heres What a Concealer Kit Can do for Yo ...](https://makeup.allwomenstalk.com/heres-what-a-concealer-kit-can-do-for-yo/)
 

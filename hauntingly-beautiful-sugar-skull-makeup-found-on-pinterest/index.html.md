@@ -56,16 +56,16 @@ Which of these is your favorite? Are you considering doing some sugar skull make
 
 ## Related Posts
 
-- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
-- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
-- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
-- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
 - [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
-- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
 - [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
+- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
+- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
 - [7 Cool Halloween Masks ...](https://allwomenstalk.com/7-cool-halloween-masks/)
 - [10 Hauntingly Good Halloween Makeup Tutorials ...](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
 

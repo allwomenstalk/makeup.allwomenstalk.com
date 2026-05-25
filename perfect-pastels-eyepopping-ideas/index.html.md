@@ -189,16 +189,16 @@ I seriously struggled to find any step by step diagrams and non-video tutorials 
 
 ## Related Posts
 
-- [identify the place shown in the picture. photograp...](https://diy.allwomenstalk.com/ways-to-make-your-dorm-room-whimsical/)
-- [files decorations ideas](https://diy.allwomenstalk.com/fabulous-ways-to-decorate-your-folders-for-class/)
 - [ways to store towels](https://lifestyle.allwomenstalk.com/shabby-chic-ways-to-store-your-towels/)
-- [fabulous kitchens](https://diy.allwomenstalk.com/these-kitchens-will-inspire-you-to-renovate-your-own/)
 - [how to make your dorm room feel like home](https://lifestyle.allwomenstalk.com/ways-to-make-your-dorm-room-feel-like-home/)
-- [flea market to fabulous](https://diy.allwomenstalk.com/reasons-why-you-should-be-shopping-at-the-flea-market/)
-- [inspos](https://diy.allwomenstalk.com/inspos-for-decor-with-a-pop-of-pink/)
-- [bed risers kmart](https://teen.allwomenstalk.com/this-is-all-the-inspiration-you-need-for-a-fabulous-dorm-room/)
-- [what to do with old ottoman](https://diy.allwomenstalk.com/unique-items-you-can-reuse-to-make-a-stool-or-ottoman-for-your-home/)
+- [fabulous kitchens](https://diy.allwomenstalk.com/these-kitchens-will-inspire-you-to-renovate-your-own/)
 - [gold accents in bedroom](https://diy.allwomenstalk.com/gold-accents-thatll-add-a-chic-touch-to-your-house/)
+- [flea market to fabulous](https://diy.allwomenstalk.com/reasons-why-you-should-be-shopping-at-the-flea-market/)
+- [bed risers kmart](https://teen.allwomenstalk.com/this-is-all-the-inspiration-you-need-for-a-fabulous-dorm-room/)
+- [identify the place shown in the picture. photograp...](https://diy.allwomenstalk.com/ways-to-make-your-dorm-room-whimsical/)
+- [inspos](https://diy.allwomenstalk.com/inspos-for-decor-with-a-pop-of-pink/)
+- [files decorations ideas](https://diy.allwomenstalk.com/fabulous-ways-to-decorate-your-folders-for-class/)
+- [what to do with old ottoman](https://diy.allwomenstalk.com/unique-items-you-can-reuse-to-make-a-stool-or-ottoman-for-your-home/)
 - [7 Lovely Pastel Nail Polishes for a Delicious Summ...](https://nails.allwomenstalk.com/lovely-pastel-nail-polishes-for-a-delicious-summer-manicure/)
 - [10 Pretty Pink Pinterest DIYs ...](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
 

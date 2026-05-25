@@ -116,16 +116,16 @@ Which look is your favorite? Are you going to try double winged liner today?
 
 ## Related Posts
 
+- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
-- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
-- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
 - [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
 - [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
 - [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
 - [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
 - [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
 - [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
+- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
+- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [13 Best Eyeliners You Wont Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 

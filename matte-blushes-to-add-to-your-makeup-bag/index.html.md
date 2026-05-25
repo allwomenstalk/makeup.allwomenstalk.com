@@ -50,16 +50,16 @@ If you love matte lipsticks and eye shadows, it is time to incorporate matte blu
 
 ## Related Posts
 
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
-- [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
-- [ped egg pink](https://beauty.allwomenstalk.com/egg-shaped-beauty-products-for-easter-and-spring/)
-- [overrated makeup brands](https://makeup.allwomenstalk.com/overrated-makeup-items-i-was-so-disappointed-with/)
 - [how to become a cerave ambassador](https://beauty.allwomenstalk.com/drugstore-beauty-products-recommended-by-celebrities/)
-- [diorshow blackout mascara discontinued](https://makeup.allwomenstalk.com/awesome-mascaras-to-test-out-now/)
-- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
-- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
-- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
 - [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
+- [overrated makeup brands](https://makeup.allwomenstalk.com/overrated-makeup-items-i-was-so-disappointed-with/)
+- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
+- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
+- [diorshow blackout mascara discontinued](https://makeup.allwomenstalk.com/awesome-mascaras-to-test-out-now/)
+- [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
+- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
+- [ped egg pink](https://beauty.allwomenstalk.com/egg-shaped-beauty-products-for-easter-and-spring/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 

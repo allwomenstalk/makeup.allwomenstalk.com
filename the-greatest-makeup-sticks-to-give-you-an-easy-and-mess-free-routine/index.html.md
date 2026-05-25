@@ -84,16 +84,16 @@ What were your favorite makeup sticks? Will you swap your current makeup for the
 
 ## Related Posts
 
-- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
-- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
 - [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
 - [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
-- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
-- [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
 - [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
+- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
+- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
+- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
 - [Foolproof Tips for Flawless Holiday Makeup ...](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
 - [The Best Makeup Hacks Cosmo Has to Offer ...](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
 

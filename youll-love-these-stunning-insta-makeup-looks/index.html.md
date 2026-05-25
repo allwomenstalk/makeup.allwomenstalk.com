@@ -177,16 +177,16 @@ Are you ready to get your glam on? Let Canadian multihyphenate Janice Joostema s
 
 ## Related Posts
 
-- [amber scholl](https://fashion.allwomenstalk.com/snapchat-adventures-with-amber-scholl/)
-- [spicy selfie](https://beauty.allwomenstalk.com/fun-poses-for-girls-who-love-selfies/)
+- [female fitness pics](https://fitness.allwomenstalk.com/this-girl-will-give-you-a-pics-worth-of-fintess-inspo-that-you-secretly-needed/)
+- [fit and curvy](https://fashion.allwomenstalk.com/curvy-fit-girls-will-love-these-photos/)
+- [la dolce vita outfit](https://lifestyle.allwomenstalk.com/tantalizing-pics-of-la-dolce-vita-we-all-crave/)
 - [womens body inspiration](https://fitness.allwomenstalk.com/inspiring-photos-for-girls-who-want-6-pack-abs/)
+- [spicy selfie](https://beauty.allwomenstalk.com/fun-poses-for-girls-who-love-selfies/)
+- [confident plus size body positive quotes](https://inspiration.allwomenstalk.com/body-positive-instagram-accounts-for-girls-who-need-a-self-confidence-boost/)
+- [amber scholl](https://fashion.allwomenstalk.com/snapchat-adventures-with-amber-scholl/)
 - [genius packing hacks](https://travel.allwomenstalk.com/instagram-travel-hacks-that-are-borderline-genius/)
 - [kayla itsines instagram](https://fitness.allwomenstalk.com/instagram-fitspiration-for-girls-trying-to-lose-weight/)
-- [confident plus size body positive quotes](https://inspiration.allwomenstalk.com/body-positive-instagram-accounts-for-girls-who-need-a-self-confidence-boost/)
 - [salads instagram](https://diet.allwomenstalk.com/instagram-inspo-for-girls-who-are-trying-to-eat-more-salads/)
-- [la dolce vita outfit](https://lifestyle.allwomenstalk.com/tantalizing-pics-of-la-dolce-vita-we-all-crave/)
-- [fit and curvy](https://fashion.allwomenstalk.com/curvy-fit-girls-will-love-these-photos/)
-- [female fitness pics](https://fitness.allwomenstalk.com/this-girl-will-give-you-a-pics-worth-of-fintess-inspo-that-you-secretly-needed/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Lovely Ways to Achieve a Glamorous Makeup Look ....](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/)
 

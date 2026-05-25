@@ -56,16 +56,16 @@ Now that you have it down pat, take a look at the entire tutorial here: [glamour
 
 ## Related Posts
 
-- [all black costume characters](https://lifestyle.allwomenstalk.com/last-minute-halloween-costumes-for-cool-black-girls/)
+- [crown and coke costume](https://lifestyle.allwomenstalk.com/adorable-couple-costumes-for-halloween/)
 - [nore zodiac sign](https://travel.allwomenstalk.com/real-places-featured-in-your-fave-halloween-movies/)
-- [spirit halloween bogo](https://lifestyle.allwomenstalk.com/easy-and-super-fun-ways-to-get-into-the-halloween-spirit/)
-- [non alcoholic halloween drink](https://food.allwomenstalk.com/deliciously-spooky-halloween-punch-to-bring-fun-to-your-party/)
-- [batwoman makeup](https://makeup.allwomenstalk.com/greatest-halloween-makeup-tutorials-to-look-absolutely-awesome/)
-- [lady gaga halloween song](https://music.allwomenstalk.com/halloween-love-songs-for-those-who-didnt-think-it-was-possible/)
 - [loreal color le stylo eye shadow blue spark](https://movies.allwomenstalk.com/movies-to-get-you-in-the-halloween-spirit/)
 - [sims diamond diy](https://diy.allwomenstalk.com/cheap-diy-halloween-costumes/)
+- [batwoman makeup](https://makeup.allwomenstalk.com/greatest-halloween-makeup-tutorials-to-look-absolutely-awesome/)
+- [all black costume characters](https://lifestyle.allwomenstalk.com/last-minute-halloween-costumes-for-cool-black-girls/)
+- [lady gaga halloween song](https://music.allwomenstalk.com/halloween-love-songs-for-those-who-didnt-think-it-was-possible/)
+- [spirit halloween bogo](https://lifestyle.allwomenstalk.com/easy-and-super-fun-ways-to-get-into-the-halloween-spirit/)
+- [non alcoholic halloween drink](https://food.allwomenstalk.com/deliciously-spooky-halloween-punch-to-bring-fun-to-your-party/)
 - [halloween day decoration](https://diy.allwomenstalk.com/best-halloween-decor-ideas-from-insta-to-totally-make-the-day/)
-- [crown and coke costume](https://lifestyle.allwomenstalk.com/adorable-couple-costumes-for-halloween/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 

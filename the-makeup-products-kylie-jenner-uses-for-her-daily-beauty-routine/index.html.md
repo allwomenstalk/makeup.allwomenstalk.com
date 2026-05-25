@@ -92,16 +92,16 @@ Kylie dampens her beauty blender before applying her base coat of mixed foundati
 
 ## Related Posts
 
-- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
 - [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
 - [psl meaning beauty](https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/)
 - [loreal paris color stylo timeless blue spark](https://makeup.allwomenstalk.com/beyond-gorg-fall-eyeshadow-palettes-for-girls-with-brown-eyes/)
-- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
-- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
-- [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
-- [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
 - [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
 - [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
+- [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
+- [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
+- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
+- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
+- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [DIY Makeup and YouTube ...](https://allwomenstalk.com/diy-makeup-and-youtube/)
 

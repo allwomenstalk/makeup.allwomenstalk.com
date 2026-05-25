@@ -57,15 +57,15 @@ The next time you’re shopping makeup, make sure you check out some of these fa
 ## Related Posts
 
 - [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
-- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
-- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
 - [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
-- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
-- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
 - [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
+- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
 - [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
+- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
 - [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
+- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
 - [8 Best Bronzers You Need ...](https://allwomenstalk.com/8-best-bronzers-expert-reviews/)
 - [7 Beauty Buys That Will Change Your Skin Forever ....](https://allwomenstalk.com/7-beauty-buys-that-will-change-your-skin-forever/)
 

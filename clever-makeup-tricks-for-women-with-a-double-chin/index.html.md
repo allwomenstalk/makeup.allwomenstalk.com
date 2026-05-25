@@ -42,16 +42,16 @@ Having a double chin is really difficult to hide, but all of these makeup tips f
 
 ## Related Posts
 
-- [best bb cream for freckles](https://makeup.allwomenstalk.com/clever-makeup-tricks-to-enhance-your-freckles/)
-- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
-- [color stylo eye java](https://makeup.allwomenstalk.com/trendy-eyeliner-colors-you-need-to-try/)
 - [brown outfit makeup](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
-- [paris riche le stylo timeless blue](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-wear-metallic-makeup/)
-- [color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/)
-- [awesome makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-thin-lips/)
+- [best bb cream for freckles](https://makeup.allwomenstalk.com/clever-makeup-tricks-to-enhance-your-freckles/)
 - [too much eyeshadow](https://makeup.allwomenstalk.com/fab-ways-to-tell-if-youre-wearing-too-much-makeup/)
-- [brows and beauty room](https://beauty.allwomenstalk.com/steps-to-perfectly-manicured-brows/)
 - [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
+- [color stylo eye java](https://makeup.allwomenstalk.com/trendy-eyeliner-colors-you-need-to-try/)
+- [brows and beauty room](https://beauty.allwomenstalk.com/steps-to-perfectly-manicured-brows/)
+- [color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/)
+- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
+- [awesome makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-thin-lips/)
+- [paris riche le stylo timeless blue](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-wear-metallic-makeup/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
 - [7 Clever Makeup Tips for Oval Faces ...](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
 

@@ -52,16 +52,16 @@ If you are looking for silky soft lips, than you must try out these lip balms! N
 
 ## Related Posts
 
+- [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
 - [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
 - [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
 - [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
-- [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
-- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
-- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
 - [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
-- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
 - [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
 - [color of your lips](https://beauty.allwomenstalk.com/unique-ways-to-add-color-to-your-lips/)
+- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
+- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
+- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
 - [10 Best Lip Balms for Winter ...](https://allwomenstalk.com/10-best-lip-balms-for-winter/)
 - [7 Great Lip Balms with SPF for Summer ...](https://allwomenstalk.com/7-great-lip-balms-with-spf-for-summer/)
 

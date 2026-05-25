@@ -70,16 +70,16 @@ How, what do you think about these light, oil-free foundations? Hope you liked t
 
 ## Related Posts
 
-- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
-- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
-- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
-- [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
-- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
-- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
-- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
-- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
 - [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
+- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
+- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
+- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
+- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
+- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 - [8 Best Skincare Products ...](https://skincare.allwomenstalk.com/best-skincare-products/)
 - [10 Best Oil-Free Moisturizers ...](https://skincare.allwomenstalk.com/best-oil-free-moisturizers/)
 

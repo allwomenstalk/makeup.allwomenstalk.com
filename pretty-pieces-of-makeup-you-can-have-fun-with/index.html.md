@@ -121,16 +121,16 @@ Last but not least, there's a lip tint that's actually a powder... how fun is th
 
 ## Related Posts
 
-- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
-- [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
-- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
-- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
-- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
-- [new stylish tattoo for girl](https://beauty.allwomenstalk.com/stylish-tattoos-makeup-lovers-will-love/)
-- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
 - [riche le stylo smoky shadow bronzed](https://makeup.allwomenstalk.com/embellish-your-eyes-with-these-shimmery-spring-shadows/)
-- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
+- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
+- [new stylish tattoo for girl](https://beauty.allwomenstalk.com/stylish-tattoos-makeup-lovers-will-love/)
+- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
 - [makeup strobing](https://makeup.allwomenstalk.com/amazing-highlighters-for-girls-who-cannot-get-enough-of-their-strobing/)
+- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
+- [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
+- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
+- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Makeup Must-Haves for Teen Girls ...](https://allwomenstalk.com/7-makeup-must-haves-for-teen-girls/)
 

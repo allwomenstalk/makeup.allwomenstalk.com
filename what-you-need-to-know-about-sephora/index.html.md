@@ -42,16 +42,16 @@ We all know that Sephora is the go-to place for all of our makeup needs. Whateve
 
 ## Related Posts
 
-- [tend skin dupes](https://makeup.allwomenstalk.com/splurge-or-save-how-to-buy-makeup-like-a-pro/)
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
-- [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
-- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
-- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
-- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
+- [tend skin dupes](https://makeup.allwomenstalk.com/splurge-or-save-how-to-buy-makeup-like-a-pro/)
 - [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
+- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
+- [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
 - [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
+- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
+- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [8 Things You Need to Know about Mascara Brushes .....](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
 

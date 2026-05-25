@@ -42,16 +42,16 @@ What do you love about Sofia Vergara’s makeup routine? Will you follow any of 
 
 ## Related Posts
 
-- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
-- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
-- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
-- [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
-- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
-- [adeles makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
-- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
 - [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
+- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
+- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
+- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
+- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
+- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
+- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
+- [adeles makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 

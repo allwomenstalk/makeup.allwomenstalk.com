@@ -56,16 +56,16 @@ Want to be "pretty in pink" this year? These pink lip looks should motivate you 
 
 ## Related Posts
 
-- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
-- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
-- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
 - [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
-- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
-- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
-- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
-- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
 - [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
+- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
+- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
+- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
+- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
 - [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
+- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
+- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Pretty Pink Lipsticks ...](https://allwomenstalk.com/8-pretty-pink-lipsticks/)
 

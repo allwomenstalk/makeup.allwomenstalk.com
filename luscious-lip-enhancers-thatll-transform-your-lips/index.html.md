@@ -63,15 +63,15 @@ There are lots of lip enhancers out there and these are a few of the most-loved.
 
 ## Related Posts
 
-- [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
 - [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
-- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
 - [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
-- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
-- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
-- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
 - [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
+- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
+- [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
+- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
+- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [7 Best Lip Plumpers That Actually Work ...](https://allwomenstalk.com/3-best-lip-plumpers-that-would-make-angelina-jolie-jealous/)

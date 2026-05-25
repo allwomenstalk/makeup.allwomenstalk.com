@@ -57,14 +57,14 @@ These are 7 things you can do to make your eyes look brighter. What are your sec
 ## Related Posts
 
 - [make up artist to the stars](https://makeup.allwomenstalk.com/awesome-make-up-artists-to-the-stars/)
-- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
+- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
 - [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
 - [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
 - [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/makeup-tips-and-tricks-for-teens/)
 - [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
 - [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
-- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
 - [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
+- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
 - [color riche le stylo infinite sky](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-younger/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)

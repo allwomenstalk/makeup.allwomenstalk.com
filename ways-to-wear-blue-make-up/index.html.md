@@ -56,16 +56,16 @@ How do you wear blue make-up? Are you inspired to give it a try? I’m dying to 
 
 ## Related Posts
 
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
-- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
-- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
 - [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
-- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
 - [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
-- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
-- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
 - [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
+- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
+- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
+- [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
 - [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
+- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
+- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

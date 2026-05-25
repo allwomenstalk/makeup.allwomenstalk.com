@@ -46,16 +46,16 @@ Now that you know exactly what you need to watch out for and what signs are out 
 
 ## Related Posts
 
-- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
-- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
-- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
-- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
-- [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [paris riche le stylo timeless blue](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-wear-metallic-makeup/)
-- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
 - [awesome makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-thin-lips/)
-- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [best makeup remover towelettes for sensitive skin](https://beauty.allwomenstalk.com/best-makeup-removal-wipes-for-stubborn-makeup/)
+- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
+- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
+- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
+- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
 - [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
+- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [7 Ways to Test Makeup ...](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 

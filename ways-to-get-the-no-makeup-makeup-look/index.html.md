@@ -56,16 +56,16 @@ For some, the idea of stepping out of the house without a speck of makeup on can
 
 ## Related Posts
 
-- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
+- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
+- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
+- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
 - [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
-- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
+- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
 - [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
 - [makeup brushes quotes](https://makeup.allwomenstalk.com/pros-and-cons-of-using-makeup-brushes/)
+- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
 - [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
-- [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
-- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
-- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [7 Steps to Pulling off the Natural Look ...](https://makeup.allwomenstalk.com/7-steps-to-pulling-off-the-natural-look/)
 

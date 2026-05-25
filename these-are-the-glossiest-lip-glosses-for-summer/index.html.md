@@ -188,16 +188,16 @@ Patent Pout Lip Lacquer in Bee's Knees
 
 ## Related Posts
 
-- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
-- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
-- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
-- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
 - [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
-- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
-- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
+- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
 - [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
-- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
 - [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
+- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
+- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
+- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
+- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
+- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
 - [9 Charmingly Sweet  Pleasantly Fabulous Flavored L...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 - [Top 8 Super Glamorous Plumping Lip Glosses ...](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
 

@@ -42,15 +42,15 @@ What other tips and tricks do you have for keeping lipstick where it belongs? Wi
 
 ## Related Posts
 
-- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
-- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
-- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
 - [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
 - [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
+- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
+- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
 - [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
 - [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
-- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
 - [natural pink lips images](https://beauty.allwomenstalk.com/tricks-to-make-your-lips-look-pink-naturally/)
+- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
+- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
 - [lip gloss baby lips](https://makeup.allwomenstalk.com/the-best-lip-glosses-for-ladies-with-fair-skin/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)

@@ -134,15 +134,15 @@ Which of these are you going to buy today?
 
 ## Related Posts
 
-- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
-- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
-- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
 - [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
+- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
 - [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
-- [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
 - [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
 - [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
+- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [Cover Girl Fantastic Lash Waterproof Mascara  Expe...](https://allwomenstalk.com/cover-girl-fantastic-lash-waterproof-mascara-expert-review/)
 - [Cover Girl Professional Remarkable Washable Waterp...](https://allwomenstalk.com/cover-girl-professional-remarkable-washable-waterproof-mascara-expert-review/)

@@ -116,16 +116,16 @@ How do you define your own natural look? I stick with blush, mascara, and a ligh
 
 ## Related Posts
 
-- [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
-- [paris color stylo spark](https://makeup.allwomenstalk.com/you-can-put-a-spin-on-the-traditional-smoky-eye-with-these-tips/)
 - [what cancels purple](https://makeup.allwomenstalk.com/what-should-you-know-about-color-correcting-makeup/)
-- [glamor makeup looks](https://makeup.allwomenstalk.com/these-glamorous-makeup-tutorials-will-make-you-look-like-adele/)
-- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
-- [pretty grunge makeup](https://makeup.allwomenstalk.com/grunge-makeup-looks-that-any-girl-can-pull-off/)
-- [correcting makeup](https://makeup.allwomenstalk.com/color-correcting-makeup-thatll-hide-your-skin-sins/)
-- [le stylo smoky shadow and brilliant](https://beauty.allwomenstalk.com/how-to-make-your-eyes-look-big-and-beautiful/)
+- [paris color stylo spark](https://makeup.allwomenstalk.com/you-can-put-a-spin-on-the-traditional-smoky-eye-with-these-tips/)
 - [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
 - [alien eyebrow neglect](https://makeup.allwomenstalk.com/never-make-these-makeup-mistakes-if-you-wear-glasses/)
+- [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
+- [correcting makeup](https://makeup.allwomenstalk.com/color-correcting-makeup-thatll-hide-your-skin-sins/)
+- [pretty grunge makeup](https://makeup.allwomenstalk.com/grunge-makeup-looks-that-any-girl-can-pull-off/)
+- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
+- [le stylo smoky shadow and brilliant](https://beauty.allwomenstalk.com/how-to-make-your-eyes-look-big-and-beautiful/)
+- [glamor makeup looks](https://makeup.allwomenstalk.com/these-glamorous-makeup-tutorials-will-make-you-look-like-adele/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [15 Ways to Look Beautiful without Makeup ...](https://makeup.allwomenstalk.com/ways-to-look-beautiful-without-makeup/)
 

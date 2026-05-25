@@ -50,15 +50,15 @@ Makeup and beauty is just so much fun, isn’t it? Tumblr happens to be my inspi
 ## Related Posts
 
 - [kandee johnson house](https://beauty.allwomenstalk.com/fabulous-beauty-bloggers-to-get-inspired-by/)
-- [decorating bloggers](https://lifestyle.allwomenstalk.com/great-interior-decorating-blogs/)
 - [miss budget beauty](https://beauty.allwomenstalk.com/fantastic-budget-beauty-blogs-to-follow/)
-- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
-- [affordable fashion blogs](https://fashion.allwomenstalk.com/best-bargain-fashion-blogs-to-check-out/)
-- [butch style clothing](https://fashion.allwomenstalk.com/fabulous-fashion-blogs-for-lesbians/)
-- [lisa lam bag patterns](https://diy.allwomenstalk.com/great-bag-making-blogs-you-must-read/)
 - [tumblr blogs to follow](https://lifestyle.allwomenstalk.com/tumblr-blogs-to-follow-to-brighten-your-day/)
 - [the fit blog](https://fitness.allwomenstalk.com/fabulous-fitness-blogs-to-follow-right-now/)
 - [models blogs](https://fashion.allwomenstalk.com/cool-model-blogs/)
+- [butch style clothing](https://fashion.allwomenstalk.com/fabulous-fashion-blogs-for-lesbians/)
+- [decorating bloggers](https://lifestyle.allwomenstalk.com/great-interior-decorating-blogs/)
+- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
+- [affordable fashion blogs](https://fashion.allwomenstalk.com/best-bargain-fashion-blogs-to-check-out/)
+- [lisa lam bag patterns](https://diy.allwomenstalk.com/great-bag-making-blogs-you-must-read/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

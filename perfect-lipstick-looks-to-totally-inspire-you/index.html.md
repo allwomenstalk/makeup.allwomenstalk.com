@@ -126,16 +126,16 @@ What's your favorite lipstick shade? Are you inspired to try anything new after 
 
 ## Related Posts
 
-- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
 - [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
 - [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
+- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
+- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
 - [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
 - [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
-- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
-- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
+- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Best Lipsticks ...](https://allwomenstalk.com/best-lipstick-top-10/)
 

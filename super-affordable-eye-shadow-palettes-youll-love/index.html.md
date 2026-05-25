@@ -56,16 +56,16 @@ What’s your favorite eye shadow palette? How do you use it? Please share all y
 
 ## Related Posts
 
-- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
-- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
 - [ewg eyeshadow](https://makeup.allwomenstalk.com/eco-friendly-makeup-products-that-you-should-try/)
-- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
-- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
-- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
-- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
 - [best beauty products splurge](https://beauty.allwomenstalk.com/beauty-products-to-splurge-and-to-save-on/)
 - [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
 - [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
+- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
+- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
+- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
+- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
+- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

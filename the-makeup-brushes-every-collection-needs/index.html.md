@@ -81,16 +81,16 @@ Whether you’re going glam, sultry, or natural, the right tools are a necessity
 
 ## Related Posts
 
-- [Best Holiday Beauty Gifts under 50 ...](https://beauty.allwomenstalk.com/best-holiday-beauty-gifts-under-50/)
-- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
-- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
-- [Top 4 beauty products to invest in this Christmas ...](https://allwomenstalk.com/top-beauty-products-to-invest-in-this-christmas/)
-- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
 - [black friday 2017 sephora](https://beauty.allwomenstalk.com/best-black-friday-deals-from-sephora/)
 - [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
+- [Top 4 beauty products to invest in this Christmas ...](https://allwomenstalk.com/top-beauty-products-to-invest-in-this-christmas/)
+- [Best Holiday Beauty Gifts under 50 ...](https://beauty.allwomenstalk.com/best-holiday-beauty-gifts-under-50/)
+- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
+- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
+- [The Best Beauty Brands on Instagram 2018 ...](https://beauty.allwomenstalk.com/the-best-beauty-brands-on-instagram/)
+- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
 - [10 Mind-blowing Beauty Products to Try in 2018 ...](https://beauty.allwomenstalk.com/new-beauty-products-you-must-try/)
 - [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
-- [The Best Beauty Brands on Instagram 2018 ...](https://beauty.allwomenstalk.com/the-best-beauty-brands-on-instagram/)
 - [7 Makeup Brush Sets under 50 ...](https://makeup.allwomenstalk.com/makeup-brush-sets-under-50/)
 - [13 Best Make-up Brushes ...](https://allwomenstalk.com/13-best-make-up-brushes/)
 

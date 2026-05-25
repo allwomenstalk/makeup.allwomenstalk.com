@@ -56,16 +56,16 @@ These are just a few of my favorite spring collections, there are others out the
 
 ## Related Posts
 
+- [8 Hottest Summer Streetstyle Trends ...](https://streetstyle.allwomenstalk.com/hottest-summer-streetstyle-trends/)
+- [11 Fabulous Trends from the 90s That Wont Fade ...](https://fashion.allwomenstalk.com/fabulous-trends-from-the-90s-that-wont-fade/)
 - [8 Trends from the AW13 Shows ...](https://fashion.allwomenstalk.com/trends-from-the-aw13-shows/)
+- [13 Trends to Stop Wearing Now ...](https://fashion.allwomenstalk.com/trends-to-stop-wearing-now/)
+- [7 Lovely Summer Trends That Transition into Fall ....](https://fashion.allwomenstalk.com/lovely-summer-trends-that-transition-into-fall/)
+- [7 Trends I Find a Bit over the Top ...](https://fashion.allwomenstalk.com/trends-i-find-a-bit-over-the-top/)
+- [7 FallWinter Fashion Prints to Take Interest in .....](https://fashion.allwomenstalk.com/fallwinter-fashion-prints-to-take-interest-in/)
+- [8 Best Streetstyle Accessories for Spring ...](https://streetstyle.allwomenstalk.com/best-streetstyle-accessories-for-spring/)
 - [2013 fall outfits](https://fashion.allwomenstalk.com/chic-fall-fashion-trends-of-to-add-to-your-wardrobe/)
 - [7 Most Surprising Fashion Trends You Probably Didn...](https://fashion.allwomenstalk.com/most-surprising-fashion-trends-you-probably-didnt-know-about/)
-- [7 Lovely Summer Trends That Transition into Fall ....](https://fashion.allwomenstalk.com/lovely-summer-trends-that-transition-into-fall/)
-- [13 Trends to Stop Wearing Now ...](https://fashion.allwomenstalk.com/trends-to-stop-wearing-now/)
-- [8 Best Streetstyle Accessories for Spring ...](https://streetstyle.allwomenstalk.com/best-streetstyle-accessories-for-spring/)
-- [7 FallWinter Fashion Prints to Take Interest in .....](https://fashion.allwomenstalk.com/fallwinter-fashion-prints-to-take-interest-in/)
-- [8 Hottest Summer Streetstyle Trends ...](https://streetstyle.allwomenstalk.com/hottest-summer-streetstyle-trends/)
-- [7 Trends I Find a Bit over the Top ...](https://fashion.allwomenstalk.com/trends-i-find-a-bit-over-the-top/)
-- [11 Fabulous Trends from the 90s That Wont Fade ...](https://fashion.allwomenstalk.com/fabulous-trends-from-the-90s-that-wont-fade/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 

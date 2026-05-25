@@ -56,16 +56,16 @@ These 7 brushes are my favorites and I have drawers full of other brushes that I
 
 ## Related Posts
 
-- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
-- [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
-- [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
-- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
-- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
-- [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
+- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
 - [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
 - [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
-- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
+- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
+- [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
+- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
+- [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
+- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
+- [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
+- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Great off Brand Makeup Items ...](https://allwomenstalk.com/7-great-off-brand-makeup-items/)
 

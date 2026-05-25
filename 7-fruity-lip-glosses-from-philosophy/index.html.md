@@ -49,16 +49,16 @@ I can’t wait to try that Beach Girl lip shine, and I’ll bet the Orange Jelly
 
 ## Related Posts
 
-- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
-- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
-- [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
-- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
-- [REVIEW: Blissomas Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
-- [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
-- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
-- [Beauty Soundbites  Lips  ...](https://allwomenstalk.com/beauty-soundbites-lips/)
-- [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
 - [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
+- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
+- [Beauty Soundbites  Lips  ...](https://allwomenstalk.com/beauty-soundbites-lips/)
+- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
+- [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
+- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
+- [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
+- [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
+- [REVIEW: Blissomas Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
+- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 - [7 Great Skin Care Sets from Philosophy ...](https://skincare.allwomenstalk.com/7-great-skin-care-sets-from-philosophy/)
 - [7 Fab Spring Products from Philosophy ...](https://skincare.allwomenstalk.com/7-fab-spring-products-from-philosophy/)
 

@@ -80,16 +80,16 @@ Faux glasses have come to light as a must-have extension or accessory to complet
 
 ## Related Posts
 
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
 - [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
+- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
 - [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
-- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
-- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
-- [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
+- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
 - [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
+- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [7 Must Haves for Your Perfect HD Makeup ...](https://allwomenstalk.com/7-must-haves-for-your-perfect-hd-makeup/)
 

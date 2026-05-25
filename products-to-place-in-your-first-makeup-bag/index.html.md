@@ -56,16 +56,16 @@ Would you add anything else to your first makeup bag?
 
 ## Related Posts
 
-- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
 - [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
-- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
 - [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
-- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
-- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
-- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
+- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
 - [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
+- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
+- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
+- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
+- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [12 Things to Have in Your Make-up Bag ...](https://allwomenstalk.com/12-things-to-have-in-your-make-up-bag/)
 

@@ -56,15 +56,15 @@ There are a lot of different ways to achieve glamorous holiday makeup. What do y
 
 ## Related Posts
 
-- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
-- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
-- [overdo makeup](https://makeup.allwomenstalk.com/tips-to-make-your-makeup-look-better/)
-- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
 - [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [eyes makeup style](https://makeup.allwomenstalk.com/eye-makeup-tips-to-make-your-eyes-look-prettier/)
+- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
 - [find the perfect mascara](https://makeup.allwomenstalk.com/tips-to-finding-the-right-mascara-for-you/)
 - [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
-- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
+- [eyes makeup style](https://makeup.allwomenstalk.com/eye-makeup-tips-to-make-your-eyes-look-prettier/)
+- [overdo makeup](https://makeup.allwomenstalk.com/tips-to-make-your-makeup-look-better/)
+- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
+- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
 - [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 - [7 Wonderful Tips for Dramatic Eye Makeup ...](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)

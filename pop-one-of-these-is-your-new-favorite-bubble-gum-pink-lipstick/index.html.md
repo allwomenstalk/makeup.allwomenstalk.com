@@ -166,16 +166,16 @@ I saved the best for last... this is my own all-time fave bubble-gum pink gloss!
 
 ## Related Posts
 
-- [natural pink lips images](https://beauty.allwomenstalk.com/tricks-to-make-your-lips-look-pink-naturally/)
-- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
-- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
-- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
-- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
-- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
-- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
-- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
-- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
 - [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
+- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
+- [natural pink lips images](https://beauty.allwomenstalk.com/tricks-to-make-your-lips-look-pink-naturally/)
+- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
+- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
+- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
+- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
+- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
+- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
 - [7 Pretty Lip Glosses ...](https://allwomenstalk.com/7-pretty-lip-glosses/)
 - [8 Pretty Pink Lipsticks ...](https://allwomenstalk.com/8-pretty-pink-lipsticks/)
 

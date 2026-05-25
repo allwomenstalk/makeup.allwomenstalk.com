@@ -140,16 +140,16 @@ To see more of her work, follow Annelies on Instagram at [@bewitchedquills](http
 
 ## Related Posts
 
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
 - [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
-- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
-- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
-- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
-- [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
-- [sainte makeup](https://makeup.allwomenstalk.com/watch-a-makeup-artist-turn-herself-into-a-real-work-of-art/)
 - [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
+- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [sainte makeup](https://makeup.allwomenstalk.com/watch-a-makeup-artist-turn-herself-into-a-real-work-of-art/)
+- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
+- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
+- [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
 - [I Am 20 and Fabulous: Makeup for 20-something Year...](https://allwomenstalk.com/i-am-20-and-fabulous-makeup-for-20-something-year-olds/)
 - [7 Celebrity Makeup Transformations That Will Make ...](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
 

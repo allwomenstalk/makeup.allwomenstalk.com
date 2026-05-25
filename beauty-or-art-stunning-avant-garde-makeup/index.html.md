@@ -298,16 +298,16 @@ Source: [trendland.com](https://goo.gl/wIR2tA)
 
 ## Related Posts
 
-- [most expensive product at sephora](https://makeup.allwomenstalk.com/what-you-need-to-know-about-sephora/)
-- [what cosmetic companies are made in the usa](https://makeup.allwomenstalk.com/buyer-beware-makeup-brands-that-are-bad-for-your-skin/)
-- [eyebrow game](https://makeup.allwomenstalk.com/up-your-eyebrow-game-with-these-brow-products-for-your-makeup-bag/)
-- [beauty products to try](https://beauty.allwomenstalk.com/classic-beauty-products-to-try-that-have-stood-the-test-of-time/)
+- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
-- [tend skin dupes](https://makeup.allwomenstalk.com/splurge-or-save-how-to-buy-makeup-like-a-pro/)
-- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
 - [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
 - [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
+- [most expensive product at sephora](https://makeup.allwomenstalk.com/what-you-need-to-know-about-sephora/)
+- [tend skin dupes](https://makeup.allwomenstalk.com/splurge-or-save-how-to-buy-makeup-like-a-pro/)
+- [what cosmetic companies are made in the usa](https://makeup.allwomenstalk.com/buyer-beware-makeup-brands-that-are-bad-for-your-skin/)
+- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
+- [eyebrow game](https://makeup.allwomenstalk.com/up-your-eyebrow-game-with-these-brow-products-for-your-makeup-bag/)
+- [beauty products to try](https://beauty.allwomenstalk.com/classic-beauty-products-to-try-that-have-stood-the-test-of-time/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 

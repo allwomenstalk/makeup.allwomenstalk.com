@@ -58,16 +58,16 @@ If you are like me and always want to try the latest spring makeup trends, you c
 
 ## Related Posts
 
-- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
-- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
-- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
-- [trend chic](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
 - [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
+- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
+- [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/of-2014s-most-popular-hair-trends-for-the-fall/)
+- [trend chic](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
+- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
+- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
 - [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
 - [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
-- [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/of-2014s-most-popular-hair-trends-for-the-fall/)
 - [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
-- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

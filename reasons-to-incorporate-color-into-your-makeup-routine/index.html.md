@@ -58,14 +58,14 @@ These are just some of the reasons to incorporate color into your makeup routine
 
 - [paris riche le smoky eye shadow eternal sunshine](https://makeup.allwomenstalk.com/ways-to-wear-bold-eye-shadow-this-season/)
 - [nocturnelle dress](https://makeup.allwomenstalk.com/makeup-no-nos-to-avoid-at-all-costs/)
-- [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
-- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
-- [loreal color le stylo smoky shadow primped and](https://makeup.allwomenstalk.com/eye-shadow-color-combinations-you-should-try-today/)
 - [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
-- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
 - [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
+- [loreal color le stylo smoky shadow primped and](https://makeup.allwomenstalk.com/eye-shadow-color-combinations-you-should-try-today/)
 - [doable girl](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
+- [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
 - [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
+- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
+- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 - [7 Reasons Its Important to Replace Your Makeup ...](https://allwomenstalk.com/7-reasons-its-important-to-replace-your-makeup/)
 

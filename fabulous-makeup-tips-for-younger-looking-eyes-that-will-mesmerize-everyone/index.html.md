@@ -56,16 +56,16 @@ I’ve also found that less makeup overall is better for creating a more youthfu
 
 ## Related Posts
 
-- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
-- [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
-- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
-- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
-- [what keeps makeup on all day](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-last-all-day-long/)
-- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
-- [makeup bible](https://beauty.allwomenstalk.com/illuminating-face-and-makeup-commandments-from-the-beauty-bible/)
-- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
-- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
 - [how to make face thinner](https://makeup.allwomenstalk.com/ways-to-make-your-face-look-thinner-using-make-up/)
+- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
+- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
+- [makeup bible](https://beauty.allwomenstalk.com/illuminating-face-and-makeup-commandments-from-the-beauty-bible/)
+- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
+- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
+- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
+- [what keeps makeup on all day](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-last-all-day-long/)
+- [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
+- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Eye Makeup Tips: 7 Ways to Play up Your Eyes ...](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 

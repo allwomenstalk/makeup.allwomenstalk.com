@@ -68,16 +68,16 @@ I love looking at vintage advertising for most any product, and makeup is especi
 
 ## Related Posts
 
-- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
-- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
-- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
-- [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
-- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
 - [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
-- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
+- [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
 - [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
+- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
+- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
+- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
+- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
 - [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
 - [8 Fabulous Makeup Tips to Make You Look Younger .....](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
 

@@ -42,16 +42,16 @@ These’re some informational points to remember when you’re starting to use B
 
 ## Related Posts
 
-- [how to get smooth skin like korean](https://skincare.allwomenstalk.com/korean-skincare-tips-for-soft-smooth-skin/)
 - [young living hand cream](https://skincare.allwomenstalk.com/diy-hand-creams-and-lotions-for-beautiful-hands/)
-- [sephora tony moly](https://beauty.allwomenstalk.com/hide-your-holiday-party-skin-sins-with-these-fab-face-masks/)
 - [how to keep face young](https://skincare.allwomenstalk.com/can-face-oils-actually-keep-you-looking-young/)
 - [dark skinned beauties](https://skincare.allwomenstalk.com/a-list-of-skincare-tips-for-dark-skinned-women/)
-- [eye cream diy](https://beauty.allwomenstalk.com/homemade-products-to-keep-your-eyes-bright-and-beautiful/)
-- [weirdest makeup products](https://skincare.allwomenstalk.com/weird-ingredients-in-your-beauty-products/)
-- [top blotting papers](https://skincare.allwomenstalk.com/the-best-oil-blotting-products-for-pesky-skin/)
 - [glamglow youth cleanse daily exfoliating cleanser](https://skincare.allwomenstalk.com/you-should-be-using-these-exfoliators-daily-for-smooth-skin/)
+- [how to get smooth skin like korean](https://skincare.allwomenstalk.com/korean-skincare-tips-for-soft-smooth-skin/)
+- [eye cream diy](https://beauty.allwomenstalk.com/homemade-products-to-keep-your-eyes-bright-and-beautiful/)
 - [face foundation](https://makeup.allwomenstalk.com/best-liquid-foundations-for-winter-thatll-protect-your-skin-too/)
+- [weirdest makeup products](https://skincare.allwomenstalk.com/weird-ingredients-in-your-beauty-products/)
+- [sephora tony moly](https://beauty.allwomenstalk.com/hide-your-holiday-party-skin-sins-with-these-fab-face-masks/)
+- [top blotting papers](https://skincare.allwomenstalk.com/the-best-oil-blotting-products-for-pesky-skin/)
 - [Beauty Care - Beauty Tips ...](https://allwomenstalk.com/beauty-care-beauty-tips/)
 - [Benefit Beauty 101 ...](https://allwomenstalk.com/benefit-beauty-101/)
 

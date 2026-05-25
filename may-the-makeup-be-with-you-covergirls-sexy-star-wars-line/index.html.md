@@ -98,16 +98,16 @@ Nude nails are still totes on-trend, and this nerd-inspired nude is the trendies
 
 ## Related Posts
 
-- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
-- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
-- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
-- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
-- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
 - [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
+- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
+- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
+- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
+- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 

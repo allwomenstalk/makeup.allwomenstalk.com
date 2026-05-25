@@ -56,16 +56,16 @@ These’re 7 unique makeup styles, all beautiful in their own way. Which makeup 
 
 ## Related Posts
 
-- [what are sloppy kisses](https://love.allwomenstalk.com/what-does-your-kissing-style-say-about-your-relationship/)
-- [indecisive love](https://love.allwomenstalk.com/how-do-you-deal-with-an-indecisive-partner/)
-- [tinkerbell and best friend](https://movies.allwomenstalk.com/which-disney-bff-would-you-be/)
-- [what does slanted handwriting mean](https://lifestyle.allwomenstalk.com/what-does-your-handwriting-say-about-your-personality/)
-- [reason why hair falls out](https://hair.allwomenstalk.com/could-this-be-the-reason-your-hair-is-falling-out/)
-- [tan skin with black hair](https://hair.allwomenstalk.com/which-hair-color-fits-your-skin-tone-best/)
 - [busy or not interested](https://love.allwomenstalk.com/is-he-busy-or-blowing-you-off/)
-- [most annoying movies](https://movies.allwomenstalk.com/are-these-the-most-annoying-movie-characters-ever/)
-- [how to tell your lip shape](https://beauty.allwomenstalk.com/what-does-your-lip-shape-say-about-your-personality/)
 - [questions to ask your boyfriend about his ex](https://love.allwomenstalk.com/questions-we-wish-we-could-ask-our-exes/)
+- [indecisive love](https://love.allwomenstalk.com/how-do-you-deal-with-an-indecisive-partner/)
+- [what does slanted handwriting mean](https://lifestyle.allwomenstalk.com/what-does-your-handwriting-say-about-your-personality/)
+- [most annoying movies](https://movies.allwomenstalk.com/are-these-the-most-annoying-movie-characters-ever/)
+- [reason why hair falls out](https://hair.allwomenstalk.com/could-this-be-the-reason-your-hair-is-falling-out/)
+- [how to tell your lip shape](https://beauty.allwomenstalk.com/what-does-your-lip-shape-say-about-your-personality/)
+- [tan skin with black hair](https://hair.allwomenstalk.com/which-hair-color-fits-your-skin-tone-best/)
+- [what are sloppy kisses](https://love.allwomenstalk.com/what-does-your-kissing-style-say-about-your-relationship/)
+- [tinkerbell and best friend](https://movies.allwomenstalk.com/which-disney-bff-would-you-be/)
 - [13 Classic Makeup Looks to Rock ...](https://beauty.allwomenstalk.com/classic-makeup-looks-to-rock/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 

@@ -56,16 +56,16 @@ I’m totally loving these tips – who says you can’t do gorgeous eye make up
 
 ## Related Posts
 
-- [benefits of wearing no makeup](https://makeup.allwomenstalk.com/solid-reasons-to-have-occasional-makeup-free-days/)
-- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
-- [when is your shadow the longest](https://makeup.allwomenstalk.com/which-make-up-will-make-your-eyelashes-look-the-longest/)
 - [look like model](https://makeup.allwomenstalk.com/look-like-a-victoria-secret-model-with-these-makeup-tutorials/)
-- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
-- [funky makeup ideas](https://makeup.allwomenstalk.com/blondes-have-more-fun-makeup-tips-for-ladies-with-light-hair/)
-- [guy makeup looks](https://love.allwomenstalk.com/love-makeup-wait-till-you-learn-how-wearing-it-affects-your-relationship-with-your-guy/)
 - [foundation untuk menutupi tanda lahir](https://makeup.allwomenstalk.com/embarrassed-of-your-birthmarks-makeup-tips-for-covering-up-your-spots-and-dots/)
-- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
+- [loreal paris riche le smoky eye shadow neon](https://makeup.allwomenstalk.com/bored-of-your-natural-make-up-try-these-amazing-neon-colors-instead/)
+- [guy makeup looks](https://love.allwomenstalk.com/love-makeup-wait-till-you-learn-how-wearing-it-affects-your-relationship-with-your-guy/)
 - [flawless foundation makeup](https://makeup.allwomenstalk.com/secrets-for-a-flawless-foundation-finish/)
+- [how to choose make up](https://makeup.allwomenstalk.com/choose-the-right-colors-how-to-know-if-your-make-up-is-the-right-shade/)
+- [benefits of wearing no makeup](https://makeup.allwomenstalk.com/solid-reasons-to-have-occasional-makeup-free-days/)
+- [funky makeup ideas](https://makeup.allwomenstalk.com/blondes-have-more-fun-makeup-tips-for-ladies-with-light-hair/)
+- [when is your shadow the longest](https://makeup.allwomenstalk.com/which-make-up-will-make-your-eyelashes-look-the-longest/)
+- [color le stylo smoky eye silver couture](https://makeup.allwomenstalk.com/look-smoking-hot-by-watching-these-tutorials-for-the-perfect-smokey-eye/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Makeup Tips for Those Who Wear Glasses ...](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 

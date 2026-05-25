@@ -66,15 +66,15 @@ I’m so excited about these new beauty products and can’t wait to get my hand
 
 ## Related Posts
 
-- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
 - [7 Gorgeous Items from the Catching Fire Makeup Col...](https://makeup.allwomenstalk.com/gorgeous-items-from-the-catching-fire-makeup-collection/)
-- [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
 - [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
+- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
 - [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
 - [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
-- [best dramatic lashes](https://beauty.allwomenstalk.com/of-the-best-false-lashes-for-dramatic-eyes/)
 - [7 Pink Beauty Products for Your Makeup Bag ...](https://makeup.allwomenstalk.com/pink-beauty-products-for-your-makeup-bag/)
-- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
+- [best dramatic lashes](https://beauty.allwomenstalk.com/of-the-best-false-lashes-for-dramatic-eyes/)
+- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
+- [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
 - [7 of My Favorite Inexpensive Beauty Products ...](https://beauty.allwomenstalk.com/of-my-favorite-inexpensive-beauty-products/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 - [9 High-end Beauty Products That Are Actually Worth...](https://beauty.allwomenstalk.com/high-end-beauty-products-that-are-actually-worth-the-price/)

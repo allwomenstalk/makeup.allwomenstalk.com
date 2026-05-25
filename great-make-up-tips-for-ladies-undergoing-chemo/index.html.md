@@ -48,16 +48,16 @@ Top Image Source: [Redheart](https://www.yarnspirations.com/red-heart-chemo-cap/
 
 ## Related Posts
 
-- [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
-- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
 - [old makeup](https://makeup.allwomenstalk.com/great-uses-for-old-makeup/)
-- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
+- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
 - [makeup tips for darker skin](https://makeup.allwomenstalk.com/fantastic-make-up-tricks-for-dark-skin/)
-- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
+- [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
+- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
+- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
 - [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
 - [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
+- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
 - [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
-- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

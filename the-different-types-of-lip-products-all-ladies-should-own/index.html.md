@@ -56,16 +56,16 @@ What lip products do you love most? Do you use all of the items on this list?
 
 ## Related Posts
 
-- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
 - [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
+- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
+- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
 - [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
 - [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
+- [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
 - [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
-- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
 - [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
 - [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
 - [8 Things Every Woman Must Own ...](https://lifestyle.allwomenstalk.com/things-every-woman-must-own/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products/)
 

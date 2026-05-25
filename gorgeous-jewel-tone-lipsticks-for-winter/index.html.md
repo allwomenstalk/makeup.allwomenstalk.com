@@ -66,16 +66,16 @@ It doesn’t matter if you prefer emeralds, rubies, or sapphires, there is a lip
 
 ## Related Posts
 
-- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
-- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
-- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
-- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
-- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
 - [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
+- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
+- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
 - [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
+- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
+- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
+- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

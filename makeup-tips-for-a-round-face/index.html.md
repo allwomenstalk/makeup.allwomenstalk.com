@@ -42,16 +42,16 @@ So ladies, those are all of the makeup tips for a round face that I use. What ot
 
 ## Related Posts
 
-- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
-- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
-- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
-- [color riche le stylo smoky eye always pink](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-keep-your-makeup-on-all-day/)
-- [make up for long face](https://makeup.allwomenstalk.com/makeup-tips-for-a-heart-shaped-face/)
-- [best eye makeup for blonde hair blue eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes/)
 - [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
-- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
 - [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
+- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
+- [make up for long face](https://makeup.allwomenstalk.com/makeup-tips-for-a-heart-shaped-face/)
+- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
+- [color riche le stylo smoky eye always pink](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-keep-your-makeup-on-all-day/)
+- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
+- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
 - [natural women over 50](https://beauty.allwomenstalk.com/fabulous-makeup-tips-for-women-over-50/)
+- [best eye makeup for blonde hair blue eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes/)
 - [7 Makeup Tips for Those Who Wear Glasses ...](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

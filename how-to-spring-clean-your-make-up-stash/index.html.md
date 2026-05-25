@@ -42,16 +42,16 @@ Do you clean out your make-up stash on a regular basis? Will you start now that 
 
 ## Related Posts
 
-- [how to treat tarnished gold](https://jewelry.allwomenstalk.com/hacks-to-clean-your-jewelry/)
-- [mom life hacks](https://parenting.allwomenstalk.com/how-to-make-your-mothers-life-easier/)
-- [how to get motivated to clean your house](https://lifestyle.allwomenstalk.com/ways-to-motivate-yourself-to-clean/)
-- [home a glow](https://lifestyle.allwomenstalk.com/its-time-to-stop-worrying-about-having-a-messy-house/)
 - [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
+- [home a glow](https://lifestyle.allwomenstalk.com/its-time-to-stop-worrying-about-having-a-messy-house/)
+- [disney cleaning](https://lifestyle.allwomenstalk.com/make-cleaning-easier-the-disney-way/)
+- [mom life hacks](https://parenting.allwomenstalk.com/how-to-make-your-mothers-life-easier/)
+- [how to treat tarnished gold](https://jewelry.allwomenstalk.com/hacks-to-clean-your-jewelry/)
+- [how to get motivated to clean your house](https://lifestyle.allwomenstalk.com/ways-to-motivate-yourself-to-clean/)
+- [forget the risk and take the fall](https://lifestyle.allwomenstalk.com/forget-spring-cleaning-things-that-should-be-cleaned-in-the-fall/)
 - [how to clean the phone screen](https://lifestyle.allwomenstalk.com/how-to-keep-your-phone-screen-clean/)
 - [laundress all purpose bleach alternative](https://lifestyle.allwomenstalk.com/laundry-hacks-thatll-help-keep-your-clothes-clean/)
-- [forget the risk and take the fall](https://lifestyle.allwomenstalk.com/forget-spring-cleaning-things-that-should-be-cleaned-in-the-fall/)
 - [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
-- [disney cleaning](https://lifestyle.allwomenstalk.com/make-cleaning-easier-the-disney-way/)
 - [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [7 Great Ways to Clean Your Makeup Brushes ...](https://makeup.allwomenstalk.com/great-ways-to-clean-your-makeup-brushes/)
 

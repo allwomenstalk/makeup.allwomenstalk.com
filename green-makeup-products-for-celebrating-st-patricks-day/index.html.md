@@ -100,16 +100,16 @@ This lipstick is hydrating and gives you the most glorious lip color imaginable.
 
 ## Related Posts
 
-- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
-- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
-- [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
 - [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
-- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
 - [new stylish tattoo for girl](https://beauty.allwomenstalk.com/stylish-tattoos-makeup-lovers-will-love/)
-- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
-- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
+- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [makeup strobing](https://makeup.allwomenstalk.com/amazing-highlighters-for-girls-who-cannot-get-enough-of-their-strobing/)
+- [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
+- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
+- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
 - [riche le stylo smoky shadow bronzed](https://makeup.allwomenstalk.com/embellish-your-eyes-with-these-shimmery-spring-shadows/)
+- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [Is There Such a Thing as Green Make up](https://allwomenstalk.com/is-there-such-a-thing-as-green-make-up/)
 

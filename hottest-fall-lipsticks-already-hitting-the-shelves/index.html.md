@@ -63,16 +63,16 @@ OK, ladies, you've gotta tell us which lipstick color you'd wear. As much as I'm
 
 ## Related Posts
 
-- [Pro Tips on How to Choose the Right Lipstick Shade...](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-lipstick-shade/)
-- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
-- [All You Need to Know to Get Fuller Lips with Lip F...](https://skincare.allwomenstalk.com/all-you-need-to-know-to-get-fuller-lips-with-lip-fillers/)
 - [The Best Red Lipsticks of 2017 to Rock Next Year ....](https://makeup.allwomenstalk.com/the-best-red-lipsticks/)
-- [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
-- [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
 - [How to Choose Your Best Lip Color for Valentines D...](https://makeup.allwomenstalk.com/how-to-choose-your-best-lip-colour-for-valentines-day/)
-- [Whats in  Your Lip Balm](https://skincare.allwomenstalk.com/ingredients-that-should-be-in-your-lip-balm/)
-- [Popular Lipsticks of 2017 You Need ASAP if Youre a...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [All You Need to Know to Get Fuller Lips with Lip F...](https://skincare.allwomenstalk.com/all-you-need-to-know-to-get-fuller-lips-with-lip-fillers/)
+- [Pro Tips on How to Choose the Right Lipstick Shade...](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-lipstick-shade/)
 - [Check out the Marble Lip Trend Instagrammers Cant ...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
+- [Whats in  Your Lip Balm](https://skincare.allwomenstalk.com/ingredients-that-should-be-in-your-lip-balm/)
+- [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
+- [Popular Lipsticks of 2017 You Need ASAP if Youre a...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
+- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
 - [10 Best Lipsticks for This Summer ...](https://allwomenstalk.com/10-best-lipsticks-for-this-summer/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

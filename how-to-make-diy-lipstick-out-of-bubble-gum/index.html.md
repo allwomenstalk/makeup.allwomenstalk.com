@@ -14,16 +14,16 @@ Now you know how to make your very own lipstick! Would you ever wear lipstick ma
 
 ## Related Posts
 
+- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
 - [burgundy lipstick on dark skin](https://makeup.allwomenstalk.com/bold-lipsticks-for-girls-who-want-to-make-a-statement/)
-- [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
-- [kylie lip kit sephora](https://makeup.allwomenstalk.com/products-that-can-replace-kylies-lip-kit/)
 - [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
 - [how to improve kissing](https://love.allwomenstalk.com/sweet-lips-tips-for-girls-who-want-to-be-better-kissers/)
-- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
-- [how to wear matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/)
-- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
-- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
 - [tarte lip therapy lip mask](https://skincare.allwomenstalk.com/lip-balms-thatll-give-you-a-sexy-summer-pout/)
+- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
+- [kylie lip kit sephora](https://makeup.allwomenstalk.com/products-that-can-replace-kylies-lip-kit/)
+- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [how to wear matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/)
+- [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
 - [Guest Post: Popping My Lipstick Cherry ...](https://allwomenstalk.com/guest-post-popping-my-lipstick-cherry/)
 - [DIY Makeup and YouTube ...](https://allwomenstalk.com/diy-makeup-and-youtube/)
 

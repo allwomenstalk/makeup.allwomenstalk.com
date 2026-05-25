@@ -56,16 +56,16 @@ So girlies, now that you know exactly what makeup tips are out there for you, do
 
 ## Related Posts
 
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
-- [makeup hacks to look younger](https://makeup.allwomenstalk.com/simple-makeup-tricks-to-make-you-look-younger/)
-- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
 - [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
-- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
-- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
 - [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
-- [girls who wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-wear-glasses/)
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
+- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
+- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
 - [loreal color riche le stylo smoky eye silver coutu...](https://makeup.allwomenstalk.com/awesome-makeup-shortcuts-for-busy-babes/)
+- [girls who wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-wear-glasses/)
+- [makeup hacks to look younger](https://makeup.allwomenstalk.com/simple-makeup-tricks-to-make-you-look-younger/)
+- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 

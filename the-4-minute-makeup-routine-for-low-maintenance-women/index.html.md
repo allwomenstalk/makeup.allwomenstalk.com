@@ -74,16 +74,16 @@ How long does your morning makeup routine take? Will you try this one instead?
 
 ## Related Posts
 
-- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
-- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
-- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
-- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
-- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
-- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
-- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
-- [pear face haircut](https://beauty.allwomenstalk.com/face-shapes-and-their-typical-characteristics-for-curious-girls/)
-- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
 - [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
+- [pear face haircut](https://beauty.allwomenstalk.com/face-shapes-and-their-typical-characteristics-for-curious-girls/)
+- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
+- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
+- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
+- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
+- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
+- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
+- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
+- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Fabulous 5-Minute Beauty Tips ...](https://beauty.allwomenstalk.com/fabulous-minute-beauty-tips/)
 

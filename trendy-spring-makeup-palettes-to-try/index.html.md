@@ -63,16 +63,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2444610859932567
 
 ## Related Posts
 
-- [best bare minerals foundation](https://makeup.allwomenstalk.com/mineral-based-foundations-to-try/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
-- [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
-- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
-- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
 - [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
-- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
 - [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
+- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
+- [best bare minerals foundation](https://makeup.allwomenstalk.com/mineral-based-foundations-to-try/)
+- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
 - [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
+- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [8 Colourful Makeup Palettes ...](https://allwomenstalk.com/8-colourful-makeup-palettes/)
 

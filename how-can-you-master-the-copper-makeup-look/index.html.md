@@ -56,16 +56,16 @@ Have you ever worn copper makeup? What tips can you add?
 
 ## Related Posts
 
-- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
-- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
 - [easy day makeup](https://makeup.allwomenstalk.com/the-4-minute-makeup-routine-for-low-maintenance-women/)
-- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
-- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
-- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
-- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
-- [taylor swift cat eyeliner](https://makeup.allwomenstalk.com/sexy-makeup-tutorials-taylor-swift-fans-will-love/)
-- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
 - [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
+- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
+- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
+- [taylor swift cat eyeliner](https://makeup.allwomenstalk.com/sexy-makeup-tutorials-taylor-swift-fans-will-love/)
+- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
+- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
+- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
+- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
+- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
 - [Elkes Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 

@@ -70,16 +70,16 @@ Top image source: misskika.com_
 
 ## Related Posts
 
-- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
-- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
-- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
+- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
 - [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
-- [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
-- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
-- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
-- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
+- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
+- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
+- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
+- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
+- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
+- [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [8 Gorgeous Eye Dusts by Lime Crime ...](https://makeup.allwomenstalk.com/8-gorgeous-eye-dusts-by-lime-crime/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 

@@ -159,16 +159,16 @@ I love how all of the colors combine to give a perfect subtle glow.
 
 ## Related Posts
 
-- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
-- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
-- [whats baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
 - [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
 - [cyber monday deals for womens clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
 - [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
+- [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
+- [whats baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
+- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
+- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
 - [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
 - [8 Tips to Apply Bronzer like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-bronzer-like-a-pro/)
 - [12 Best Luminizers ...](https://allwomenstalk.com/12-best-luminizers/)
 

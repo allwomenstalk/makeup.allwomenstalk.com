@@ -28,16 +28,16 @@ Purple is probably the most versatile of the coloured mascaras, going perfectly 
 
 ## Related Posts
 
+- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
+- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
+- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
+- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
 - [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
+- [how to make your makeup last all day](https://makeup.allwomenstalk.com/the-secret-process-to-make-your-makeup-last-all-day/)
+- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
 - [how to determine best eyebrow shape](https://beauty.allwomenstalk.com/how-to-choose-your-perfect-eyebrow-shape/)
 - [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
-- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
-- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
-- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
-- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
-- [how to make your makeup last all day](https://makeup.allwomenstalk.com/the-secret-process-to-make-your-makeup-last-all-day/)
-- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
 - [7 Impressively Useful Tips on How to Avoid Messy a...](https://makeup.allwomenstalk.com/impressively-useful-tips-on-how-to-avoid-messy-and-clumpy-mascara/)
 - [7 Mascara Tips: How to Apply Mascara ...](https://allwomenstalk.com/7-rules-of-applying-mascara-the-right-way/)
 

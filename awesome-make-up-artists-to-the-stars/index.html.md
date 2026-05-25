@@ -56,16 +56,16 @@ Wouldn’t it be awesome to have a make-up artist to glam you up every day? I’
 
 ## Related Posts
 
-- [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
 - [color riche le stylo infinite sky](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-younger/)
+- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
+- [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
+- [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
+- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
 - [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
 - [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
 - [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
-- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
-- [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
-- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
 - [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/makeup-tips-and-tricks-for-teens/)
-- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
+- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
 - [7 Tips on Finding a Great Makeup Artist for Your W...](https://wedding.allwomenstalk.com/7-tips-on-finding-a-great-makeup-artist-for-your-wedding/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 
