@@ -3,7 +3,7 @@ title: "Too Cool for School Makeup Tutorials to Wow Your Classmates ..."
 description: "The Beginner’s Guide to Makeup; A Simple Guide to Eye Makeup; For Those Days when You’re Running Late; Back to School Beauty on a Budget; Everyone Needs a 5-Minute Face; More ..."
 url: "https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/"
 category: "makeup"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Too Cool for School Makeup Tutorials to Wow Your Classmates ...
@@ -42,16 +42,16 @@ These are some great tutorials for back to school makeup. Which one is your favo
 
 ## Related Posts
 
-- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
-- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
-- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
-- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
-- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
 - [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
-- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
+- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
 - [paris stylo smoky eye shadow hollywood icon](https://makeup.allwomenstalk.com/white-eyeliner-inspirations-that-you-can-copy-with-ease/)
-- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
+- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
+- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
+- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
+- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
 - [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
+- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
+- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
 - [8 Splendid Makeup Tricks to Follow for Pre-Teens ....](https://makeup.allwomenstalk.com/splendid-makeup-tricks-to-follow-for-pre-teens/)
 - [8 Awesome Vintage Makeup Tutorials ...](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 

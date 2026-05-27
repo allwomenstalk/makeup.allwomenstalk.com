@@ -3,7 +3,7 @@ title: "The History of Cosmetics and Creating a New Norm ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/the-history-of-cosmetics/"
 category: "makeup"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # The History of Cosmetics and Creating a New Norm ...
@@ -40,16 +40,16 @@ It's up to you - should we change the course of cosmetic history?
 
 ## Related Posts
 
-- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
-- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
-- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
 - [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
+- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
 - [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
-- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
 - [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
+- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
+- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [BEAUTY NEWS: Loreal Almay Coty Kiehls ...](https://allwomenstalk.com/beauty-news-loreal-almay-coty-kiehls/)
 

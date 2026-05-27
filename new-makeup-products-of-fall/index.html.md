@@ -3,7 +3,7 @@ title: "10 New Makeup Products of Fall 2011 ..."
 description: "Charlotte Ronson All Eye Need Eye Shadow Palette; Tarte Lip Service LipSurgence Collection; Lancome French Touch Absolu; Bobbi Brown Skin Foundation Mineral Makeup; Tarte SmolderEYES Amazonian Clay Waterproof Liner Collection; More ..."
 url: "https://makeup.allwomenstalk.com/new-makeup-products-of-fall/"
 category: "makeup"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 10 New Makeup Products of Fall 2011 ...
@@ -84,16 +84,16 @@ I hope y'all love these new makeup products as much as I do. Of course, buying n
 
 ## Related Posts
 
-- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
-- [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
+- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
+- [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
 - [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 - [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
 - [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
-- [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
-- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 - [10 Best Foundations for Fall and Winter ...](https://allwomenstalk.com/10-best-foundations-for-fall-and-winter/)
 - [10 Classic Beauty Buys for 2010 ...](https://allwomenstalk.com/classic-beauty-buys-for/)
 

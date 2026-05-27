@@ -3,7 +3,7 @@ title: "What Makes TOM FORDs Extreme Mascara So..."
 description: "Why TOM FORD Gel Eyeliner is a Game-Changer; The Magic of Extreme Mascara by TOM FORD; Perfecting the Dimensional Eye Look; A Personal Touch with TOM FORD; More ..."
 url: "https://makeup.allwomenstalk.com/tom-ford-beauty-eye-look/"
 category: "makeup"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # What Makes TOM FORDs Extreme Mascara So...
