@@ -3,7 +3,7 @@ title: "How to Wear Smokey Eyes - as Told by 23 Celebs ..."
 description: "Lily Rose Depp; Kate Hudson; Natalie Dormer; Daisy Ridley; Keirnan Shipka; More ..."
 url: "https://makeup.allwomenstalk.com/how-to-wear-smokey-eyes-as-told-by-celebs/"
 category: "makeup"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # How to Wear Smokey Eyes \- as Told by 23 Celebs ...
@@ -115,13 +115,13 @@ The smokey eye is kind of her signature look.
 - [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
 - [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
 - [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
-- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
-- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
-- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
-- [how to makeup tutorials](https://makeup.allwomenstalk.com/matte-makeup-tutorials-thatll-make-you-look-amazing/)
-- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
-- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
 - [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
+- [how to makeup tutorials](https://makeup.allwomenstalk.com/matte-makeup-tutorials-thatll-make-you-look-amazing/)
+- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
+- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
+- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
+- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
+- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 

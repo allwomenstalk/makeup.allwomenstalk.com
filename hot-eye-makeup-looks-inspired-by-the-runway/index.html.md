@@ -3,7 +3,7 @@ title: "7 Hot Eye Makeup Looks Inspired by the Runway ..."
 description: "Techno Butterflies; Sunrise, Sunset; Floating Eyeliner; Strong Eyes; Graphic Eyeliner; More ..."
 url: "https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/"
 category: "makeup"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Hot Eye Makeup Looks Inspired by the Runway ...
@@ -63,8 +63,8 @@ The runway provides us with so much inspiration! I love seeing all the different
 - [ivory colour skin](https://makeup.allwomenstalk.com/clever-makeup-tips-for-ivory-skin/)
 - [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
 - [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
-- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
 - [how to make hazel eyes pop with makeup](https://makeup.allwomenstalk.com/makeup-tips-for-hazel-eyes/)
+- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
 - [office makeup tips](https://makeup.allwomenstalk.com/makeup-tips-for-the-office/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)

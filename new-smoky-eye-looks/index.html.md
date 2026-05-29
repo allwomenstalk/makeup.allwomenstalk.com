@@ -3,7 +3,7 @@ title: "8 New Smoky Eye Looks ..."
 description: "Shimmery Beauty; Neutral Eyes; Rich Colors; Smoky Wings; Alluring Stare; More ..."
 url: "https://makeup.allwomenstalk.com/new-smoky-eye-looks/"
 category: "makeup"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 New Smoky Eye Looks ...
@@ -62,16 +62,16 @@ So ladies, if you've been excited about trying new smoky eyes, here they are! A 
 
 ## Related Posts
 
-- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
-- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
-- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
 - [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
 - [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
-- [best mascara for lengthening lashes](https://makeup.allwomenstalk.com/lengthening-mascaras-that-are-better-than-false-lashes/)
-- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
-- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
+- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
 - [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
+- [best mascara for lengthening lashes](https://makeup.allwomenstalk.com/lengthening-mascaras-that-are-better-than-false-lashes/)
+- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
+- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
+- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
+- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 - [7 Best Smokey Eye Videos ...](https://allwomenstalk.com/7-best-smokey-eye-videos/)
 
