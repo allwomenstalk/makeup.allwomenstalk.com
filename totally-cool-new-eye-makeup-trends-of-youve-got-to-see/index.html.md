@@ -3,7 +3,7 @@ title: "Totally Cool New Eye Makeup Trends of 2017 Youve Got to See ..."
 description: "Pastel Rainbow; Graphic Eyeliner; Mod '70s; Magnetic Eye Shadow; Glossy Pink Lids; More ..."
 url: "https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/"
 category: "makeup"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Totally Cool New Eye Makeup Trends of 2017 Youve Got to See ...
@@ -80,15 +80,15 @@ Here's to the new year and lust-worthy makeup trends to come. Which of these new
 
 ## Related Posts
 
-- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
-- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
-- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
-- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
-- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
-- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
-- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
 - [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
+- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
+- [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
+- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
+- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
+- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
+- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
 - [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
+- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
 - [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)

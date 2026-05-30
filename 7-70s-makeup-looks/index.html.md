@@ -3,7 +3,7 @@ title: "7 70s Makeup Looks ..."
 description: "False Eyelashes; Lots of Mascara; Thick Eyeliner; Bold Eyeshadow; Plenty of Bronzer; More ..."
 url: "https://makeup.allwomenstalk.com/7-70s-makeup-looks/"
 category: "makeup"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 70s Makeup Looks ...
@@ -44,16 +44,16 @@ Top Photo Credit: [shaecabriolo](https://www.flickr.com/photos/shaecabriolo/4799
 
 ## Related Posts
 
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [paris color stylo smoky eye azure](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
-- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
-- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
-- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
-- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
-- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
 - [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
+- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
+- [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
+- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
+- [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
+- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
+- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 
