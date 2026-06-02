@@ -3,7 +3,7 @@ title: "7 Wicked Winter Makeup Trends to Look out for ..."
 description: "Big, Beautiful Brows; Go Blush-free; Stained Lips; Barely-there Black Eyeliner; Dramatic Eyes; More ..."
 url: "https://makeup.allwomenstalk.com/wicked-winter-makeup-trends-to-look-out-for/"
 category: "makeup"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Wicked Winter Makeup Trends to Look out for ...
@@ -56,16 +56,16 @@ I’ve got to give it to the designers and their makeup teams who come up with t
 
 ## Related Posts
 
-- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
+- [were of course trend](https://fashion.allwomenstalk.com/recurring-fashion-trends-from-my-childhood-and-yours/)
 - [food trends 2014](https://food.allwomenstalk.com/food-trends-we-cant-wait-for-in/)
-- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/spring-trends-you-can-start-wearing-now/)
-- [english shoe designers](https://shoes.allwomenstalk.com/british-shoe-designers-that-are-on-trend-in/)
+- [lfw trends](https://fashion.allwomenstalk.com/lfw-trends-that-you-should-embrace-now/)
+- [overall trends](https://fashion.allwomenstalk.com/overall-trends-that-you-can-rock-this-year/)
+- [seventies fashion trends](https://fashion.allwomenstalk.com/fabulous-fashion-trends-from-the-70s-that-you-can-rock-today/)
 - [2013 trends](https://fashion.allwomenstalk.com/best-trends-of-that-we-all-loved/)
 - [60 fashion trends](https://fashion.allwomenstalk.com/60s-fashion-trends-you-can-still-wear-today/)
-- [overall trends](https://fashion.allwomenstalk.com/overall-trends-that-you-can-rock-this-year/)
+- [english shoe designers](https://shoes.allwomenstalk.com/british-shoe-designers-that-are-on-trend-in/)
+- [spring 2014 fashion trends](https://fashion.allwomenstalk.com/spring-trends-you-can-start-wearing-now/)
 - [most fashionable watches](https://fashion.allwomenstalk.com/most-trendy-watches/)
-- [lfw trends](https://fashion.allwomenstalk.com/lfw-trends-that-you-should-embrace-now/)
-- [were of course trend](https://fashion.allwomenstalk.com/recurring-fashion-trends-from-my-childhood-and-yours/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

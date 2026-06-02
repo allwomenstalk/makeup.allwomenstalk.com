@@ -3,7 +3,7 @@ title: "25 Shades of Everything: Rihannas Love of Lipstick ..."
 description: "Looking Hot Even when Her Lips Are Blue; Deep Berry with a Giant Gem to Match; Slicked with Gloss, Black Lips Look Anything but Goth; In the Mood for Nude; Orange like a Cone That's Enough to Stop Traffic; More ..."
 url: "https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/"
 category: "makeup"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 25 Shades of Everything: Rihannas Love of Lipstick ...
@@ -114,16 +114,16 @@ Rihanna is a true lipstick chameleon. Which of her colors do you like most?
 
 ## Related Posts
 
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
-- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
-- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
 - [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
+- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 

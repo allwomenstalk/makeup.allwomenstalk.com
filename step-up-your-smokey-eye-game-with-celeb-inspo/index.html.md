@@ -3,7 +3,7 @@ title: "Step up Your Smokey Eye Game with Celeb Inspo ..."
 description: "Ashley Olsen; Olivia Wilde; Cara Delevingne; Emma Roberts; Keira Knightley; More ..."
 url: "https://makeup.allwomenstalk.com/step-up-your-smokey-eye-game-with-celeb-inspo/"
 category: "makeup"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Step up Your Smokey Eye Game with Celeb Inspo ...
@@ -74,16 +74,16 @@ Who do you think had the best smokey eye?
 
 ## Related Posts
 
+- [loreal color riche stylo shadow paradise](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-eyes-look-beautifully-bright/)
+- [wine red eyeshadow](https://makeup.allwomenstalk.com/ideas-for-a-fall-makeup-look/)
 - [make up artist to the stars](https://makeup.allwomenstalk.com/awesome-make-up-artists-to-the-stars/)
 - [5 minute makeup tutorial for beginners](https://makeup.allwomenstalk.com/steps-for-a-five-minute-makeup-routine/)
-- [wine red eyeshadow](https://makeup.allwomenstalk.com/ideas-for-a-fall-makeup-look/)
-- [loreal color riche stylo shadow paradise](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-eyes-look-beautifully-bright/)
-- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
-- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
-- [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/makeup-tips-and-tricks-for-teens/)
+- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
 - [loreal color riche le stylo shadow eternal blue](https://makeup.allwomenstalk.com/should-your-makeup-match-your-outfit/)
 - [color riche le stylo infinite sky](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-younger/)
-- [makeup for thanksgiving](https://makeup.allwomenstalk.com/easy-tips-for-your-thanksgiving-make-up-look/)
+- [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
+- [loreal color riche le stylo smoky shadow bottomles...](https://makeup.allwomenstalk.com/makeup-tips-and-tricks-for-teens/)
+- [eye liner ideas](https://makeup.allwomenstalk.com/makeup-ideas-for-when-youre-bored/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 

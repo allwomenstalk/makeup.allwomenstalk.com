@@ -3,7 +3,7 @@ title: "Heres How to Adjust Your Makeup Routine for the Heat ..."
 description: "Don’t Wear as Much; Add a Primer if You Don’t Already Use One; Switch from Heavy Formulas to Something Lighter; Give Cream Blush a Try; Keep Blotting Papers Tucked in Your Purse for Touch-ups; More ..."
 url: "https://makeup.allwomenstalk.com/heres-how-to-adjust-your-makeup-routine-for-the-heat/"
 category: "makeup"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Heres How to Adjust Your Makeup Routine for the Heat ...

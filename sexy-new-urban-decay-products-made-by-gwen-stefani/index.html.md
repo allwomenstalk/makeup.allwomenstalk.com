@@ -3,7 +3,7 @@ title: "Sexy New Urban Decay Products Made by Gwen Stefani ..."
 description: "Eyeshadow Palette; Blush; Brow Box; Lipsticks; Lip Pencils; More ..."
 url: "https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/"
 category: "makeup"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Sexy New Urban Decay Products Made by Gwen Stefani ...
@@ -44,16 +44,16 @@ Would you buy any of these products?
 
 ## Related Posts
 
-- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
-- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
-- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
 - [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
+- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
-- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 
