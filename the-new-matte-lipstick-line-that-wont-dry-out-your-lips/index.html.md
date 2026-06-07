@@ -1,12 +1,12 @@
 ---
-title: "The New Matte Lipstick Line That Wont Dry out Your Lips ..."
+title: "The New Matte Lipstick Line That Won't Dry out Your Lips ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The New Matte Lipstick Line That Wont Dry out Your Lips ...
+# The New Matte Lipstick Line That Won't Dry out Your Lips ...
 
 [Charlotte Tillbury](http://www.charlottetilbury.com?ref=allwomenstalk.com) released a new line of lipsticks that are meant to keep you looking fashionable without drying out your pretty lips. They each cost $32, which is a low price for something so innovative. [Glamour](https://www.glamour.com/story/charlotte-tilbury-matte-revolution-lipstick) brought our attention to some of the most gorgeous lip colors in the new line, and here they are:
 
@@ -18,18 +18,18 @@ Those colors would look great on an autumn evening! Which one of them do you lik
 
 ## Related Posts
 
-- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
 - [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
 - [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
 - [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
 - [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
 - [7 Gorgeous Alternatives to Lipstick to Try ...](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
-- [7 Luscious Lipsticks for Summer That Youre Gonna L...](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
+- [7 Luscious Lipsticks for Summer That You're Gonna ...](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
 
 ## Site Information
 

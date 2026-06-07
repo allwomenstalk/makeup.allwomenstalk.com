@@ -1,12 +1,12 @@
 ---
-title: "If Youre a Brunette These Makeup Colors Will Look Gorge on You ..."
+title: "If You're a Brunette, These Makeup Colors Will Look Gorge on You ..."
 description: "Plum; Metallic; Gold-Based Bronzers; Burgundy; Navy; More ..."
 url: "https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# If Youre a Brunette These Makeup Colors Will Look Gorge on You ...
+# If You're a Brunette, These Makeup Colors Will Look Gorge on You ...
 
 As a brown-eyed brunette, finding fun colors that look good with my hair and eye color is, well, not fun. If you’re in a similar hair and eye color situation, you know my pain. I love my hair and eye color, but I wish that I could play up my makeup with something more fun. Today, though, that wish is over, because I’ve compiled a list of the some of the best shades for your makeup. Whether you have black hair, dark brown hair, or even lighter brown hair, these makeup shades will look great in your next amazing makeup look!
 
@@ -58,14 +58,14 @@ What is your go-to makeup color if you have dark hair? Have you ever tried any o
 
 - [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
 - [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
-- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
-- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
-- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
-- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
 - [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
-- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
+- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
 - [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
+- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
+- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
+- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
 - [8 Makeup Tricks for Brunettes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 - [6 Non-drab Ways to Wear Brown Makeup This Fall ...](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
 

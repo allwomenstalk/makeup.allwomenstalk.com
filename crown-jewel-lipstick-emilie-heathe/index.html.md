@@ -1,12 +1,12 @@
 ---
-title: "The Unexpected Charm of E M I L I E H E A T H Es Crown Jewel..."
+title: "The Unexpected Charm of E M I L I E H E A T H E's Crown Jewel..."
 description: "A Royal Experience with Crown Jewel; The Allure of Orange-Toned Red; Embracing a Royal Aesthetic; The Crown Jewel Community; More ..."
 url: "https://makeup.allwomenstalk.com/crown-jewel-lipstick-emilie-heathe/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The Unexpected Charm of E M I L I E H E A T H Es Crown Jewel...
+# The Unexpected Charm of E M I L I E H E A T H E's Crown Jewel...
 
 There’s something transformative about a bold, beautiful lip color. It was a chilly autumn night in New York City when I first discovered E M I L I E H E A T H E's [Crown Jewel lipstick](https://emilieheathe.com/products/crown-jewel-lipstick). At a cozy rooftop event, surrounded by the amber glow of city lights, I noticed a friend wearing the most captivating shade of red-an enchanting, orange-toned hue that seemed to command the room. Naturally, I had to know what it was.
 

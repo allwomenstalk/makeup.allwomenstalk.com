@@ -1,12 +1,12 @@
 ---
-title: "Make These New Years Resolutions with Your Makeup ..."
+title: "Make These New Year's Resolutions with Your Makeup ..."
 description: "Get Rid of the Old; Learn to Apply Eyeliner without Pulling Your Eyelid; Master Winged Eyeliner; Learn Contouring Basics; Revamp Your Skincare; More ..."
 url: "https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Make These New Years Resolutions with Your Makeup ...
+# Make These New Year's Resolutions with Your Makeup ...
 
 It’s good to consider making some New Year’s resolutions about your makeup. It’s easy to get caught in the same pattern of doing your makeup year after year. This can lead to your makeup style looking dated which is something no one wants. It’s also good to learn new techniques so your makeup will always be on fleek.
 
@@ -56,16 +56,16 @@ These’re 7 New Year’s Resolutions to consider about your makeup. Which ones 
 
 ## Related Posts
 
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
-- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
-- [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
 - [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
-- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
-- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
-- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
-- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
+- [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
+- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
+- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
+- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
+- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
+- [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
+- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [Stop and Read These Makeup Tips to Look Good in An...](https://makeup.allwomenstalk.com/make-up-tips-to-look-good-in-pictures/)
 

@@ -3,7 +3,7 @@ title: "13 Waterproof Mascaras That Live up to the Claim ..."
 description: "Blinc Mascara Amplified; Rimmel ScandalEyes Retroglam Mascara; BENEFIT COSMETICS BADGAL WATERPROOF MASCARA; Clinique Lash Power Mascara Long-wear Formula; DIOR DIORSHOW WATERPROOF MASCARA; More ..."
 url: "https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 13 Waterproof Mascaras That Live up to the Claim ...
@@ -114,17 +114,17 @@ Too Faced Better Than Sex Waterproof Mascara, $23; [sephora.com](http://www.seph
 
 ## Related Posts
 
-- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
-- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
+- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
 - [how to perfect lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-apply-matte-lipstick/)
 - [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
-- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
-- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
-- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
+- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [pouty look](https://beauty.allwomenstalk.com/natural-ways-to-make-your-lips-look-fuller/)
-- [7 Great New Mascaras Youve Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
+- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
+- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [13 Bourjois Mascaras - Reviews ...](https://allwomenstalk.com/13-bourjois-mascaras-reviews/)
 
 ## Site Information

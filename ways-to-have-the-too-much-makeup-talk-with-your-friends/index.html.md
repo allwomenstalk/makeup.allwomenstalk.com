@@ -1,12 +1,12 @@
 ---
-title: "7 Ways to Have the Too Much Makeup Talk with Your Friends ..."
+title: "7 Ways to Have the 'Too Much Makeup' Talk with Your Friends ..."
 description: "Timing; Don't Be Sarcastic; Be Gentle in How You Bring It up; Offer Suggestions; Try a Makeover; More ..."
 url: "https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Ways to Have the Too Much Makeup Talk with Your Friends ...
+# 7 Ways to Have the 'Too Much Makeup' Talk with Your Friends ...
 
 Wearing [too much makeup](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/) is a cardinal sin, but what if it is your BFF that is wearing too much makeup? How do you go about telling them? How do you have that talk with them? It's a delicate subject, girls, and you don't want to mess it up! If your friends are wearing way too much makeup and are caking on their foundation but you don't know how to tell them how to lighten up, take a look below! I've got all of the top ways you can have that talk with your besties!
 
@@ -42,16 +42,16 @@ Wearing too much makeup is something that we all do at some point, but just reme
 
 ## Related Posts
 
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
+- [best cream eyeshadow brush](https://makeup.allwomenstalk.com/best-eye-shadow-brushes-to-apply-makeup-like-a-pro/)
+- [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
+- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
+- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
+- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
+- [loreal color riche le stylo smoky eye silver coutu...](https://makeup.allwomenstalk.com/awesome-makeup-shortcuts-for-busy-babes/)
 - [makeup hacks to look younger](https://makeup.allwomenstalk.com/simple-makeup-tricks-to-make-you-look-younger/)
 - [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
 - [girls who wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-wear-glasses/)
-- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
-- [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
-- [loreal color riche le stylo smoky eye silver coutu...](https://makeup.allwomenstalk.com/awesome-makeup-shortcuts-for-busy-babes/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
-- [best cream eyeshadow brush](https://makeup.allwomenstalk.com/best-eye-shadow-brushes-to-apply-makeup-like-a-pro/)
-- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
-- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

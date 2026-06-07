@@ -1,12 +1,12 @@
 ---
-title: "Red White and Blue Makeup to Have You Rocking Your Pride This 4th of July ..."
+title: "Red, White, and Blue Makeup to Have You Rocking Your Pride This 4th of July ..."
 description: "Make It Shimmer; Add Some Glitter; Lips Go Blue (and Red and White Too); Red Lips, of Course; Bejeweled Flag; More ..."
 url: "https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Red White and Blue Makeup to Have You Rocking Your Pride This 4th of July ...
+# Red, White, and Blue Makeup to Have You Rocking Your Pride This 4th of July ...
 
 Are you ready to declare that it’s Independence Day? Go to town and be stars and stripes ready with these uber-cute red, white and blue makeup looks for 4th July.
 
@@ -118,16 +118,16 @@ Source: [4th of July Makeup](https://goo.gl/bH147m)
 
 ## Related Posts
 
-- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
-- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
-- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
-- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
-- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
-- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
 - [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
+- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
 - [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
 - [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
+- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
+- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
+- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
+- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
+- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
 - [7 Tips to Wear Bright Makeup for Summer ...](https://makeup.allwomenstalk.com/tips-to-wear-bright-makeup-for-summer/)
 - [7 Totally Wearable Tips to Rock the Red Eye Shadow...](https://makeup.allwomenstalk.com/totally-wearable-tips-to-rock-the-red-eye-shadow-trend/)
 

@@ -1,12 +1,12 @@
 ---
-title: "The French Glow Edit - 4 VIOLETTE_FR Summer Essentials to Elevate Your Beauty Routine"
+title: "The French Glow Edit - 4 VIOLETTE_FR Summer Essentials to Elevate Your Beauty Routine …"
 description: "VIOLETTE_FR: French Minimalism, Redefined; Lip Nectar: The Summer Lip, Perfected; Bisou Jelly: The Juicy French Kiss Reimagined; Bisou Balm: The Quintessential French Lip, Matte and Modern; Boum-Boum Milk: Skin’s Ultimate Summer Companion; More ..."
 url: "https://makeup.allwomenstalk.com/voilette-fr-summer-beauty-essentials/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The French Glow Edit \- 4 VIOLETTE\_FR Summer Essentials to Elevate Your Beauty Routine
+# The French Glow Edit \- 4 VIOLETTE\_FR Summer Essentials to Elevate Your Beauty Routine …
 
 There is something ineffably captivating about a **French summer**—hazy afternoons under the Provençal sun, the gentle glint of light off rosé glasses, the glow of skin kissed by salt air and effortless joy. To bottle that feeling is no easy feat, but **VIOLETTE_FR, the covetable beauty brand founded by French makeup artist and visionary Violette Serrat**, has done just that with their **exquisite collection of summer essentials**.
 

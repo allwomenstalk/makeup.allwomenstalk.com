@@ -1,12 +1,12 @@
 ---
-title: "7 Makeup Must-Haves when Youre on a Holiday ..."
+title: "7 Makeup Must-Haves when You're on a Holiday ..."
 description: "Soak up the Sunscreen; The Blushing Beauty; It’s All in the Eyes; Lasting Glow; The Wonder Called Petroleum Jelly; More ..."
 url: "https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/"
 category: "makeup"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Makeup Must\-Haves when Youre on a Holiday ...
+# 7 Makeup Must\-Haves when You're on a Holiday ...
 
 Most of us can't imagine going away on a trip without our favorite makeup! Guest contributor Korie Cantor shares some amazing tips on what you should pack in your makeup bag for a fabulous holiday.
 
@@ -60,16 +60,16 @@ So don’t forget to double check all your beauty essentials when packing for a 
 
 ## Related Posts
 
-- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
 - [most expensive beauty products](https://beauty.allwomenstalk.com/of-the-most-expensive-beauty-products-on-the-market/)
-- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
-- [best concealer for acne scars and blemishes drugst...](https://makeup.allwomenstalk.com/best-drugstore-concealers-you-need-to-get-your-hands-on/)
 - [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
+- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
+- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [best concealer for acne scars and blemishes drugst...](https://makeup.allwomenstalk.com/best-drugstore-concealers-you-need-to-get-your-hands-on/)
+- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
 - [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
 - [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
 - [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
-- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
-- [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
+- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
 - [7 Makeup Must-Haves for November ...](https://allwomenstalk.com/7-makeup-must-haves-for-november/)
 - [7 Things You Have to Check in Your Make up Bag ...](https://allwomenstalk.com/7-things-you-have-to-check-in-your-make-up-bag/)
 
