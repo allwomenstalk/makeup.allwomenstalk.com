@@ -3,7 +3,7 @@ title: "8 Pros & Cons of Drugstore Makeup ..."
 description: "Pro: Less Expensive; Con: Not a Lot of Pigment; Pro: Don't Have to Go to a Specialty Store; Con: Doesn't Last as Long; Pro: There Are Good Brands; More ..."
 url: "https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/"
 category: "makeup"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Pros & Cons of Drugstore Makeup ...
@@ -46,16 +46,16 @@ While I favor drugstore makeup over expensive makeup anyway, if I had an unlimit
 
 ## Related Posts
 
-- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
-- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
-- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
-- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
+- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
+- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
 - [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
+- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
+- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 - [8 Reasons Why Makeup is Good for You ...](https://allwomenstalk.com/8-reasons-why-makeup-is-good-for-you/)
 

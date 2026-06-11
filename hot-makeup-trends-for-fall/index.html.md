@@ -3,7 +3,7 @@ title: "Smoking Hot Makeup Trends for Fall You Have to Try ..."
 description: "Two-Tone Lip; Cold Weather Cheeks; Dark Eyes; Feathery Lashes; Neutral Lip; More ..."
 url: "https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/"
 category: "makeup"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Smoking Hot Makeup Trends for Fall You Have to Try ...
@@ -73,15 +73,15 @@ This fall you can put your matte lipstick back on the shelf. In addition to dewy
 ## Related Posts
 
 - [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
-- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
 - [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
 - [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)
 

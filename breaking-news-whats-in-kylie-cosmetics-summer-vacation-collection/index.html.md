@@ -3,7 +3,7 @@ title: "Breaking News! What's in Kylie Cosmetics Summer Vacation 2017 Collection
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/breaking-news-whats-in-kylie-cosmetics-summer-vacation-collection/"
 category: "makeup"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Breaking News! What's in Kylie Cosmetics Summer Vacation 2017 Collection ?
@@ -81,11 +81,11 @@ The [Kylie Cosmetics Summer 2017 Vacation Collection](https://kyliecosmetics.com
 - [herbivore skin](https://beauty.allwomenstalk.com/amazing-all-natural-beauty-brands-to-try-today/)
 - [waterproof concealer sephora](https://makeup.allwomenstalk.com/the-best-waterproof-makeup-to-wear-all-summer-long-for-girls-who-stay-in-the-water/)
 - [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
-- [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
-- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
 - [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
+- [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
 - [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
 - [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
+- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
 - [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
 - [BEAUTY NEWS: Loreal, Almay, Coty, Kiehl's ...](https://allwomenstalk.com/beauty-news-loreal-almay-coty-kiehls/)
 

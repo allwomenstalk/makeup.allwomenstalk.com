@@ -3,7 +3,7 @@ title: "7 Facts about the History of Cosmetics That You'll Love to Know ..."
 description: "Ancient Egyptians; Romans & Greeks; The Middle Ages; The 15th-16th Centuries; The 1800s; More ..."
 url: "https://makeup.allwomenstalk.com/facts-about-the-history-of-cosmetics/"
 category: "makeup"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Facts about the History of Cosmetics That You'll Love to Know ...
@@ -42,15 +42,15 @@ Although cosmetics have changed drastically throughout the course of history, th
 
 ## Related Posts
 
-- [beauty and confidence](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
-- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
-- [beauty habits](https://beauty.allwomenstalk.com/popular-beauty-habits-you-should-be-trying/)
-- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
-- [blue eyes meaning spiritual](https://inspiration.allwomenstalk.com/significant-signs-of-true-beauty-that-you-will-agree-with/)
-- [toebesity](https://beauty.allwomenstalk.com/controversial-cosmetic-procedures-that-will-boggle-your-mind/)
-- [how to have a pamper night](https://beauty.allwomenstalk.com/luxurious-tips-for-the-perfect-pamper-evening/)
 - [smokey eye kate moss makeup](https://beauty.allwomenstalk.com/great-beauty-lessons-kate-moss-taught-me/)
 - [loreal color riche stylo smoky shadow icon](https://beauty.allwomenstalk.com/best-beauty-icons-to-get-beauty-inspiration-from/)
+- [toebesity](https://beauty.allwomenstalk.com/controversial-cosmetic-procedures-that-will-boggle-your-mind/)
+- [how to have a pamper night](https://beauty.allwomenstalk.com/luxurious-tips-for-the-perfect-pamper-evening/)
+- [beauty and confidence](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
+- [beauty habits](https://beauty.allwomenstalk.com/popular-beauty-habits-you-should-be-trying/)
+- [blue eyes meaning spiritual](https://inspiration.allwomenstalk.com/significant-signs-of-true-beauty-that-you-will-agree-with/)
+- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
+- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
 - [baking soda and olive oil for face](https://beauty.allwomenstalk.com/amazing-beauty-uses-for-baking-soda-you-will-want-to-try/)
 - [9 Ways to save Money on Cosmetics ...](https://money.allwomenstalk.com/ways-to-save-money-on-cosmetics/)
 - [10 Random Beauty Tricks You Didn't Know about ...](https://beauty.allwomenstalk.com/random-beauty-tricks-you-didnt-know-about/)

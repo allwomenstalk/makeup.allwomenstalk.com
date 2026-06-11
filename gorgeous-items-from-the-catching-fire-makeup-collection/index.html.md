@@ -3,7 +3,7 @@ title: "7 Gorgeous Items from the Catching Fire Makeup Collection ..."
 description: "District 1: Ink It! by Perfect Point plus in Golden Ink; District 3: SmokyShadowBlast in Silver Sky; District 4: Flamed out Shadow Pencil in Lime Green; District 6: LipPerfection in Euphoria; District 7: Vivid Impact Eyeliner in Jade; More ..."
 url: "https://makeup.allwomenstalk.com/gorgeous-items-from-the-catching-fire-makeup-collection/"
 category: "makeup"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Gorgeous Items from the Catching Fire Makeup Collection ...
@@ -56,16 +56,16 @@ Are these not just stunningly gorgeous? I can pass on looking like Effie, I thin
 
 ## Related Posts
 
-- [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
-- [best dramatic lashes](https://beauty.allwomenstalk.com/of-the-best-false-lashes-for-dramatic-eyes/)
-- [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
-- [9 Cult Beauty Buys under $10 You've Got to Try out...](https://beauty.allwomenstalk.com/cult-beauty-buys-under-10-youve-got-to-try-out/)
-- [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
 - [7 of My Favorite Inexpensive Beauty Products ...](https://beauty.allwomenstalk.com/of-my-favorite-inexpensive-beauty-products/)
+- [best dramatic lashes](https://beauty.allwomenstalk.com/of-the-best-false-lashes-for-dramatic-eyes/)
+- [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
+- [7 Pink Beauty Products for Your Makeup Bag ...](https://makeup.allwomenstalk.com/pink-beauty-products-for-your-makeup-bag/)
+- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
 - [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
 - [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
-- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
-- [7 Pink Beauty Products for Your Makeup Bag ...](https://makeup.allwomenstalk.com/pink-beauty-products-for-your-makeup-bag/)
+- [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
+- [9 Cult Beauty Buys under $10 You've Got to Try out...](https://beauty.allwomenstalk.com/cult-beauty-buys-under-10-youve-got-to-try-out/)
+- [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 
