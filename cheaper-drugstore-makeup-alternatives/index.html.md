@@ -3,7 +3,7 @@ title: "8 Cheaper Drugstore Makeup Alternatives ..."
 description: "Urban Decay Vs. Elf Eye Primer; Urban Decay Naked Vs Elf Eye Shadow; Urban Decay Vs. NYX Pencil Eye Liners; L'Oreal Vs. Stila Liquid Eye Liner; Dior Vs. Maybelline Mascara; More ..."
 url: "https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/"
 category: "makeup"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 Cheaper Drugstore Makeup Alternatives ...
@@ -46,16 +46,16 @@ If you're looking to save a little extra money, trading in your beloved name bra
 
 ## Related Posts
 
+- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
+- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
 - [best chrome eyeshadow](https://makeup.allwomenstalk.com/amazing-metallic-eye-shadows/)
-- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
-- [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
-- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
-- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
-- [skin drink lush](https://beauty.allwomenstalk.com/must-have-lush-products/)
 - [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
+- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
+- [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
 - [gym beauty essentials](https://beauty.allwomenstalk.com/amazing-beauty-products-for-the-gym/)
 - [loreal paris color le stylo emerald](https://makeup.allwomenstalk.com/gorgeous-emerald-green-makeup-products/)
+- [skin drink lush](https://beauty.allwomenstalk.com/must-have-lush-products/)
 - [9 Ways to save Money on Cosmetics ...](https://money.allwomenstalk.com/ways-to-save-money-on-cosmetics/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 

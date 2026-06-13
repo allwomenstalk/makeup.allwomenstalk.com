@@ -3,7 +3,7 @@ title: "42 Gorgeous Vintage Compacts to Make You Go Ooh!"
 description: "Green Art Deco; Art Deco Red Breakers; Art Deco Guilloche Enamel; Art Nouveau Flower; Guilloche Enamel \"Tango Compact\"; More ..."
 url: "https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/"
 category: "makeup"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 42 Gorgeous Vintage Compacts to Make You Go Ooh!
@@ -335,16 +335,16 @@ What do you think of modern plastic compacts now you've seen the variety of stun
 
 ## Related Posts
 
+- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
 - [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
 - [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
 - [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
-- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
-- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
-- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
 - [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
-- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
+- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
+- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
+- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
 - [8 Gorgeous Sugarpill Eye Shadows ...](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 - [8 Gorgeous Tiffany Handbags ...](https://bags.allwomenstalk.com/8-gorgeous-tiffany-handbags/)
 

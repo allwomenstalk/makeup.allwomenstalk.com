@@ -3,7 +3,7 @@ title: "Wait until You See These Hunger Games Inspired Makeup Tutorials ..."
 description: "EYES on FIRE; GLITTER HUNGER GAMES; MOCKINGjAY on FIRE; The GIRL on FIRE; CAPITOL COUTURE; More ..."
 url: "https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/"
 category: "makeup"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Wait until You See These Hunger Games Inspired Makeup Tutorials ...
@@ -40,16 +40,16 @@ Ah, the ever so striking Katniss Everdeen glam look is to die for!
 
 ## Related Posts
 
-- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
-- [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
-- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
-- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
+- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
-- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
 - [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
+- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
+- [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
 - [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
+- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
+- [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [7 Makeup Tutorials You Must Watch ...](https://makeup.allwomenstalk.com/makeup-tutorials-you-must-watch/)
 

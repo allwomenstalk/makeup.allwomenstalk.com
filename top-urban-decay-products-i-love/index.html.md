@@ -3,7 +3,7 @@ title: "Top 9 Urban Decay Products I Love ..."
 description: "Urban Decay Book of Shadows Vol III; Urban Decay Naked Palette; Urban Decay Eyeshadow Primer Potion; Urban Decay Ammo Eye Palette; Urban Decay Wicked Lipstick Limited Edition; More ..."
 url: "https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/"
 category: "makeup"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Top 9 Urban Decay Products I Love ...
@@ -79,16 +79,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22712688)
 
 ## Related Posts
 
-- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
 - [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
-- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
+- [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
+- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
+- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
 - [makeup with cool packaging](https://beauty.allwomenstalk.com/worst-makeup-packaging-ever/)
 - [glow up checklist](https://beauty.allwomenstalk.com/top-beauty-products-you-need-on-your-fall-beauty-checklist/)
-- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
-- [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
-- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
-- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
+- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
 - [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
+- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
+- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products/)
 

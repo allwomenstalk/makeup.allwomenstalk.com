@@ -3,7 +3,7 @@ title: "Glowing into Summer with Westman Atelier..."
 description: "Discover the Perfect Highlight...; The Art of Bronzing...; Embrace the Coral Beauty...; Bringing It All Together...; More ..."
 url: "https://makeup.allwomenstalk.com/glowing-summer-westman-atelier/"
 category: "makeup"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Glowing into Summer with Westman Atelier...
