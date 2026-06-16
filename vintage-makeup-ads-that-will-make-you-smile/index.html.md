@@ -3,7 +3,7 @@ title: "9 Vintage Makeup Ads That Will Make You Smile ..."
 description: "Magic Mascara; Don’t It Make My Brown Eyes Blue; Slick Little Flicks; Patent Leather Eyeliner; The Birth of the Palette; More ..."
 url: "https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/"
 category: "makeup"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 9 Vintage Makeup Ads That Will Make You Smile ...
@@ -68,16 +68,16 @@ I love looking at vintage advertising for most any product, and makeup is especi
 
 ## Related Posts
 
-- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
-- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
-- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
-- [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
-- [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
-- [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
 - [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
+- [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
+- [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
 - [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
+- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
+- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
 - [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
+- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
 - [8 Fabulous Makeup Tips to Make You Look Younger .....](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
 

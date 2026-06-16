@@ -3,7 +3,7 @@ title: "Charlotte Tilbury's Pillow Talk: More Than Just a Shade, It's..."
 description: "Discovering the Iconic Pillow Talk Shade; Behind the Scenes at Beauty Wonderland; Experiences from the Pillow Talk Community; How to Achieve the Perfect Pillow Talk Look; Expanding the Pillow Talk Universe; More ..."
 url: "https://makeup.allwomenstalk.com/charlotte-tilbury-pillow-talk/"
 category: "makeup"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Charlotte Tilbury's Pillow Talk: More Than Just a Shade, It's...

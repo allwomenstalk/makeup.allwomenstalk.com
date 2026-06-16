@@ -3,7 +3,7 @@ title: "Video Guide on the Perfect Smoky Eye for Valentine's Day ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/"
 category: "makeup"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Video Guide on the Perfect Smoky Eye for Valentine's Day ...
@@ -18,15 +18,15 @@ There is something effortlessly sexy about a perfectly executed smoky eye, and t
 ## Related Posts
 
 - [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
-- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
-- [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
 - [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
 - [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
+- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
 - [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
 - [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

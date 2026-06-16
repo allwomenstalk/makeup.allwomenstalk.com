@@ -3,7 +3,7 @@ title: "21 Gorgeous Smokey Eyes That Don't Involve Black ..."
 description: "Shades of Purple; So Summery!; Blue and Silver; Such a Gorgeous Combination!; Shimmer Away; More ..."
 url: "https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/"
 category: "makeup"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 21 Gorgeous Smokey Eyes That Don't Involve Black ...
@@ -58,16 +58,16 @@ Are you a fan of the [smokey eye look](https://makeup.allwomenstalk.com/differen
 
 ## Related Posts
 
-- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
 - [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
-- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
-- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
 - [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
+- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 - [7 Best Smokey Eye Videos ...](https://allwomenstalk.com/7-best-smokey-eye-videos/)
 
