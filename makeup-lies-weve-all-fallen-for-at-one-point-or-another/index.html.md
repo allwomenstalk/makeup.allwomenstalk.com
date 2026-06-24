@@ -3,7 +3,7 @@ title: "Makeup Lies We've All Fallen for at One Point or Another ..."
 description: "Always Conceal Your Eyes First; Dark Eyebrows Work for Everyone; A Foundation Brush is a Must-have Beauty Tool; Never Apply Makeup with Your Fingers; Order Doesn't Matter; More ..."
 url: "https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/"
 category: "makeup"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Makeup Lies We've All Fallen for at One Point or Another ...
@@ -86,16 +86,16 @@ So when should you dump that old lipstick? Dr. Tanzi says six months after the e
 
 ## Related Posts
 
-- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
 - [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
 - [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
-- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
 - [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
+- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
 - [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
 - [Why It's Time to Consider Dollar Store Make-up ...](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
 - [Witty Makeup Memes All Makeup Lovers Can Relate to...](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
 

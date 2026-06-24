@@ -3,7 +3,7 @@ title: "Watch a Makeup Artist Turn Herself into a Real Work of Art ..."
 description: "Gustav Klimt's the Kiss; Matisse's Beasts of the Sea; Dali's Melting Watch; Degas' Two Dancers Entering the Stage; Marc Chagall's America Windows at the Art Institute of Chicago; More ..."
 url: "https://makeup.allwomenstalk.com/watch-a-makeup-artist-turn-herself-into-a-real-work-of-art/"
 category: "makeup"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Watch a Makeup Artist Turn Herself into a Real Work of Art ...
@@ -88,16 +88,16 @@ To see more of Lexie's stunning makeup art, follow her on Instagram at @lexielaz
 
 ## Related Posts
 
-- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
 - [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
 - [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
-- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
-- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
-- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
+- [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
+- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
+- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [Galaxy Makeup and Other Special Effects You've Got...](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
 

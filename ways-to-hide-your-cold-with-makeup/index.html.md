@@ -3,7 +3,7 @@ title: "The Right Makeup Application Can Hide That Icky Cold ..."
 description: "Exfoliate; Foundation; Concealer; Blush; Lip Balm; More ..."
 url: "https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/"
 category: "makeup"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # The Right Makeup Application Can Hide That Icky Cold ...
@@ -56,16 +56,16 @@ Being sick sucks but thankfully you don’t have to look as bad as you feel! Mak
 
 ## Related Posts
 
-- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
 - [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
 - [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
-- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
 - [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
-- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
+- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 
