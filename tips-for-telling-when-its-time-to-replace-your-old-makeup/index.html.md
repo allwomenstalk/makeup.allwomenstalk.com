@@ -3,7 +3,7 @@ title: "7 Tips for Telling when It's Time to Replace Your Old Makeup ..."
 description: "Throw That Frightful Foundation; Retire a Mature Mascara; Lob That Liner in the Bin; Love May Last a Lifetime, but Lipstick Doesn't; Everlasting Eyeshadow? Alas, No; More ..."
 url: "https://makeup.allwomenstalk.com/tips-for-telling-when-its-time-to-replace-your-old-makeup/"
 category: "makeup"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Tips for Telling when It's Time to Replace Your Old Makeup ...

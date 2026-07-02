@@ -3,7 +3,7 @@ title: "Makeup Mistakes That Are Making Your Eyes Look Smaller ..."
 description: "Skipping out on Concealer when You Have Serious Dark Circles; Ignoring Your Eye Shape when You Apply Eye Shadow; Ignoring Your Eye Shape when You Apply Eyeliner; Overpowering Your Lids with Faux Lashes; Filling in Your Waterline with Black Eyeliner; More ..."
 url: "https://makeup.allwomenstalk.com/makeup-mistakes-that-are-making-your-eyes-look-smaller/"
 category: "makeup"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Makeup Mistakes That Are Making Your Eyes Look Smaller ...
@@ -42,16 +42,16 @@ Do this before you apply your mascara and you'll thank us later. This will give 
 
 ## Related Posts
 
-- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
 - [eye makeup tends](https://makeup.allwomenstalk.com/seasons-hottest-eye-makeup-trends-for-perfect-fall-selfies/)
-- [how to fill in thin eyebrows](https://beauty.allwomenstalk.com/lifesaving-shaping-tips-for-girls-with-thin-eyebrows/)
-- [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
-- [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
 - [paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/ways-to-use-glitter-in-your-holiday-makeup-this-year/)
+- [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
+- [how to fill in thin eyebrows](https://beauty.allwomenstalk.com/lifesaving-shaping-tips-for-girls-with-thin-eyebrows/)
+- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
+- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
 - [makeup makes wrinkles look worse](https://makeup.allwomenstalk.com/makeup-mistakes-to-watch-out-for-that-are-making-you-look-tired/)
 - [girls makeup photo](https://makeup.allwomenstalk.com/this-girl-brings-indian-makeup-looks-to-a-whole-new-level-must-see/)
-- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
-- [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
+- [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
+- [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
 - [Top 8 Makeup Mistakes Beginners Make ...](https://beauty.allwomenstalk.com/top-makeup-mistakes-beginners-make/)
 - [7 Makeup Mistakes Mature Women Make ...](https://makeup.allwomenstalk.com/makeup-mistakes-mature-women-make/)
 

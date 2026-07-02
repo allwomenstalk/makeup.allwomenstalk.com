@@ -3,7 +3,7 @@ title: "If You're a Brunette, These Makeup Colors Will Look Gorge on You ..."
 description: "Plum; Metallic; Gold-Based Bronzers; Burgundy; Navy; More ..."
 url: "https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/"
 category: "makeup"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # If You're a Brunette, These Makeup Colors Will Look Gorge on You ...
@@ -56,14 +56,14 @@ What is your go-to makeup color if you have dark hair? Have you ever tried any o
 
 ## Related Posts
 
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
 - [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
-- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
 - [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
-- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
-- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
 - [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
+- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
+- [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
 - [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
 - [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
 - [8 Makeup Tricks for Brunettes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)

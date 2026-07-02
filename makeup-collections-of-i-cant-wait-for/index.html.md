@@ -3,7 +3,7 @@ title: "8 Makeup Collections of 2013 I Can't Wait for ..."
 description: "Chanel; MAC; NARS; Laura Mercier Arabesque; Bare Escentuals; More ..."
 url: "https://makeup.allwomenstalk.com/makeup-collections-of-i-cant-wait-for/"
 category: "makeup"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Makeup Collections of 2013 I Can't Wait for ...
@@ -46,16 +46,16 @@ So, these are some of my favorite makeup collections for 2013 that I can't wait 
 
 ## Related Posts
 
-- [8 Unique Benefits of Mineral Makeup ...](https://makeup.allwomenstalk.com/unique-benefits-of-mineral-makeup/)
-- [7 Versatile Beauty Products for Your Daily Beauty ...](https://beauty.allwomenstalk.com/versatile-beauty-products-for-your-daily-beauty-routine/)
-- [11 Beauty Products I'm Thankful for ...](https://beauty.allwomenstalk.com/beauty-products-im-thankful-for/)
-- [7 Multipurpose Beauty Products to save You Time .....](https://beauty.allwomenstalk.com/multipurpose-beauty-products-to-save-you-time/)
-- [7 Guilt-free Chocolate Beauty Products ...](https://beauty.allwomenstalk.com/guilt-free-chocolate-beauty-products/)
 - [8 Great Beauty Products from Fashion Brands ...](https://beauty.allwomenstalk.com/great-beauty-products-from-fashion-brands/)
-- [7 Marvelous Mary Kay Beauty Products ...](https://beauty.allwomenstalk.com/marvelous-mary-kay-beauty-products/)
+- [8 Unique Benefits of Mineral Makeup ...](https://makeup.allwomenstalk.com/unique-benefits-of-mineral-makeup/)
 - [8 Hot Beauty Gadgets to Check out ...](https://beauty.allwomenstalk.com/hot-beauty-gadgets-to-check-out/)
-- [7 Cool Glitter Beauty Buys ...](https://beauty.allwomenstalk.com/cool-glitter-beauty-buys/)
+- [7 Multipurpose Beauty Products to save You Time .....](https://beauty.allwomenstalk.com/multipurpose-beauty-products-to-save-you-time/)
+- [7 Versatile Beauty Products for Your Daily Beauty ...](https://beauty.allwomenstalk.com/versatile-beauty-products-for-your-daily-beauty-routine/)
+- [7 Marvelous Mary Kay Beauty Products ...](https://beauty.allwomenstalk.com/marvelous-mary-kay-beauty-products/)
 - [paris la palette timeless spark](https://makeup.allwomenstalk.com/amazing-color-palette-makeup-pieces-for-spring/)
+- [7 Cool Glitter Beauty Buys ...](https://beauty.allwomenstalk.com/cool-glitter-beauty-buys/)
+- [11 Beauty Products I'm Thankful for ...](https://beauty.allwomenstalk.com/beauty-products-im-thankful-for/)
+- [7 Guilt-free Chocolate Beauty Products ...](https://beauty.allwomenstalk.com/guilt-free-chocolate-beauty-products/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [13 Classic Makeup Looks to Rock ...](https://beauty.allwomenstalk.com/classic-makeup-looks-to-rock/)
 

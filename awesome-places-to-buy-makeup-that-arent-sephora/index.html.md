@@ -3,7 +3,7 @@ title: "Awesome Places to Buy Makeup That Aren't Sephora ..."
 description: "Target; Amazon; Nordstrom Rack; Urban Outfitters; Madewell; More ..."
 url: "https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/"
 category: "makeup"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Awesome Places to Buy Makeup That Aren't Sephora ...
@@ -38,14 +38,14 @@ I know, I know, you haven’t been to Hot Topic since your early teen Nightmare 
 
 - [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
 - [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
-- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
-- [Makeup for Darker Skins, Catwalk Catastrophe, Matt...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
-- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
 - [Beauty Beat:  Mascara Madness!](https://allwomenstalk.com/beauty-beat-mascara-madness/)
+- [Makeup for Darker Skins, Catwalk Catastrophe, Matt...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
 - [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
+- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 
