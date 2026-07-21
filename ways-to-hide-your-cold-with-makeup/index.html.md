@@ -3,7 +3,7 @@ title: "The Right Makeup Application Can Hide That Icky Cold ..."
 description: "Exfoliate; Foundation; Concealer; Blush; Lip Balm; More ..."
 url: "https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/"
 category: "makeup"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # The Right Makeup Application Can Hide That Icky Cold ...
@@ -56,16 +56,16 @@ Being sick sucks but thankfully you don’t have to look as bad as you feel! Mak
 
 ## Related Posts
 
-- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
-- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
 - [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
-- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
-- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
-- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
 - [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
+- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
+- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
+- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [close set eyes makeup](https://makeup.allwomenstalk.com/makeup-infographics-for-a-library-of-awesome-tips/)
+- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 
