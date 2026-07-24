@@ -3,7 +3,7 @@ title: "The New Makeup Trend for Smokey Eye Lovers ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/"
 category: "makeup"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # The New Makeup Trend for Smokey Eye Lovers ...
@@ -34,14 +34,14 @@ Do you like this trend, or will you never actually do what these women did?
 
 - [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
 - [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
-- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
+- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
-- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 
