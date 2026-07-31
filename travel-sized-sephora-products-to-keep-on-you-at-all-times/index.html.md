@@ -56,16 +56,16 @@ What is your favorite Sephora travel size? Let me know what you love and I shoul
 
 ## Related Posts
 
-- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
-- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
-- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
-- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
-- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
 - [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
+- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
+- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
+- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
 - [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [Exclusive to Sephora ...](https://allwomenstalk.com/exclusive-to-sephora-2/)
 - [8 Great Deals at Sephora's Online Shop ...](https://allwomenstalk.com/8-great-deals-at-sephoras-online-shop/)
 

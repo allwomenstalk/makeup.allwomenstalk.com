@@ -70,15 +70,15 @@ Any recommendations, y'all?
 
 ## Related Posts
 
-- [what shampoo does kylie jenner use](https://makeup.allwomenstalk.com/the-makeup-products-kylie-jenner-uses-for-her-daily-beauty-routine/)
+- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
 - [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
+- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
 - [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
 - [loreal paris color stylo timeless blue spark](https://makeup.allwomenstalk.com/beyond-gorg-fall-eyeshadow-palettes-for-girls-with-brown-eyes/)
+- [what shampoo does kylie jenner use](https://makeup.allwomenstalk.com/the-makeup-products-kylie-jenner-uses-for-her-daily-beauty-routine/)
+- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
 - [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
 - [suave keratin heat defense leave in conditioner](https://beauty.allwomenstalk.com/the-essential-beauty-kit-for-college-for-25/)
-- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
-- [ombryolisse](https://beauty.allwomenstalk.com/remarkable-french-beauty-products-for-women-with-serious-french-vibes/)
-- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
 - [psl meaning beauty](https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [Beauty Tips from a Regular Girls Makeup Bag ...](https://allwomenstalk.com/beauty-tips-from-a-regular-girls-makeup-bag/)

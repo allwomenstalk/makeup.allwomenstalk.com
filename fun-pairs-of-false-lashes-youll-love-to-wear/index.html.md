@@ -54,16 +54,16 @@ These fun falsies are guaranteed to amp up any outfit and turn some heads. I lov
 
 ## Related Posts
 
-- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
 - [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
 - [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
-- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
-- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
 - [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
-- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
-- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
+- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
+- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
 - [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
+- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
+- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
+- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
+- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
 - [11 Best Fake Eyelashes ...](https://allwomenstalk.com/6-best-fake-eyelashes/)
 - [8 Easy Steps to Natural Looking False Eyelashes .....](https://beauty.allwomenstalk.com/easy-steps-to-natural-looking-false-eyelashes/)
 

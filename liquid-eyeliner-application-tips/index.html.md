@@ -69,15 +69,15 @@ Allowing your liquid liner sufficient drying time prevents accidental transfer o
 ## Related Posts
 
 - [how to do makeup when you wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
+- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
+- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
+- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
 - [easy dramatic eye makeup](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
 - [make up test](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
-- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [paris color stylo smoky timeless spark](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
-- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 

@@ -58,16 +58,16 @@ What are some last minute tips and tricks that you swear by? Let us know in the 
 
 ## Related Posts
 
-- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
-- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
-- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
-- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
 - [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
-- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
+- [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
 - [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
-- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
 - [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
+- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
+- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

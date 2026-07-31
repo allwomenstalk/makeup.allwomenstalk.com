@@ -54,16 +54,16 @@ MAC is definitely one of my favorite makeup brands in the world. These are just 
 
 ## Related Posts
 
-- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
+- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
+- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
 - [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
 - [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
 - [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
-- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
-- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
-- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
 - [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
-- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
+- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
+- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
 - [Best of Mac: the Must-Have Products You Absolutely...](https://allwomenstalk.com/best-of-mac-the-must-have-products-you-absolutely-need/)
 - [MAC Eyeshadow Review ...](https://allwomenstalk.com/mac-eyeshadow-review/)
 

@@ -42,16 +42,16 @@ What’s your wedding day makeup going to look like? Did any of these videos hel
 
 ## Related Posts
 
-- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
-- [fix dry mascara](https://makeup.allwomenstalk.com/how-to-fix-a-mascara-smudge-without-ruining-all-of-your-makeup/)
-- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
-- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
-- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
 - [best face powder for sensitive skin](https://makeup.allwomenstalk.com/is-powder-essential-to-your-makeup-routine/)
-- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
+- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [fix dry mascara](https://makeup.allwomenstalk.com/how-to-fix-a-mascara-smudge-without-ruining-all-of-your-makeup/)
+- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
+- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
 - [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
+- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
 - [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
+- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [7 Gorgeous Eyeshadows for Your Wedding Day ...](https://allwomenstalk.com/7-gorgeous-eyeshadows-for-your-wedding-day/)
 

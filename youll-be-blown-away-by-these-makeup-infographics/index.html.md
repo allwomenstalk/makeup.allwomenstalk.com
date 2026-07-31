@@ -132,16 +132,16 @@ Source: [INFOGRAPHIC: 6,000 Years Of Makeup](https://www.businessinsider.com/inf
 
 ## Related Posts
 
-- [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
-- [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
-- [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
-- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
-- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
+- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
 - [how to makeup tutorials](https://makeup.allwomenstalk.com/matte-makeup-tutorials-thatll-make-you-look-amazing/)
 - [riche le stylo smoky shadow primped and previous](https://makeup.allwomenstalk.com/how-to-wear-smokey-eyes-as-told-by-celebs/)
-- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
-- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
 - [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
+- [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
+- [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
+- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
+- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
+- [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
+- [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
 - [12 Health Tips That Could Change Your Life ...](https://allwomenstalk.com/12-health-tips-that-could-change-your-life/)
 - [7 Apps That'll Make You Smarter ...](https://apps.allwomenstalk.com/apps-thatll-make-you-smarter/)
 

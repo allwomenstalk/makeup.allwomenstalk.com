@@ -56,16 +56,16 @@ Everyone loves finding a good bargain and these drugstore foundations are sure t
 
 ## Related Posts
 
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
-- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
+- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
+- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
+- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
+- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
-- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
-- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
-- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
-- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
-- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [8 Great Drugstore Beauty Buys ...](https://allwomenstalk.com/great-drugstore-beauty-buys/)
 

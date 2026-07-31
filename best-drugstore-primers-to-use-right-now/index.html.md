@@ -67,16 +67,16 @@ Get your hands on one of these fabulous drugstore primers so you can enjoy all t
 
 ## Related Posts
 
-- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
 - [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
+- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
+- [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
+- [margaret rose powder compact](https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/)
+- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
 - [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
 - [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
-- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
-- [margaret rose powder compact](https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/)
 - [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 

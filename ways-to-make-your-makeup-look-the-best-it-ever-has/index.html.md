@@ -188,16 +188,16 @@ So. Soothing.
 
 ## Related Posts
 
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
+- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
+- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
 - [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
 - [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
-- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 

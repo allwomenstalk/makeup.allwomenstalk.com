@@ -56,16 +56,16 @@ Themed beauty products come in all shapes, sizes and designs. Some beauty brands
 
 ## Related Posts
 
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
 - [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
-- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
-- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
 - [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
 - [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
 - [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
+- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

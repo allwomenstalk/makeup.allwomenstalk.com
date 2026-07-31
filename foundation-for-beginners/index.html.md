@@ -46,16 +46,16 @@ These’re 7 tips to help with foundation when it’s new to you. Did this artic
 
 ## Related Posts
 
+- [what to do before transferring to new phone](https://lifestyle.allwomenstalk.com/heres-how-to-prep-for-switching-your-phone-to-a-new-one/)
+- [life hacks for your car](https://lifestyle.allwomenstalk.com/car-life-hacks-thatll-help-any-driver/)
+- [how to improve your handwriting](https://lifestyle.allwomenstalk.com/how-to-improve-your-handwriting/)
+- [paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/websites-thatll-improve-your-social-skills/)
+- [can aligators climb trees](https://lifestyle.allwomenstalk.com/life-saving-tips-for-surviving-a-wild-animal-attack/)
+- [how to improve hand and eye coordination](https://fitness.allwomenstalk.com/how-to-improve-your-hand-eye-coordination/)
 - [how to make pictures clearer](https://apps.allwomenstalk.com/how-to-make-your-phone-pictures-come-out-clearer/)
 - [survival life hacks](https://lifestyle.allwomenstalk.com/survival-hacks-that-could-help-you-survive/)
-- [what to do before transferring to new phone](https://lifestyle.allwomenstalk.com/heres-how-to-prep-for-switching-your-phone-to-a-new-one/)
-- [can aligators climb trees](https://lifestyle.allwomenstalk.com/life-saving-tips-for-surviving-a-wild-animal-attack/)
-- [paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/websites-thatll-improve-your-social-skills/)
-- [life hacks for your car](https://lifestyle.allwomenstalk.com/car-life-hacks-thatll-help-any-driver/)
-- [how to use watercolors](https://diy.allwomenstalk.com/these-tutorials-will-help-you-learn-how-to-use-watercolor/)
-- [how to improve hand and eye coordination](https://fitness.allwomenstalk.com/how-to-improve-your-hand-eye-coordination/)
 - [rolling r words](https://lifestyle.allwomenstalk.com/how-to-roll-your-rs-like-an-italian/)
-- [how to improve your handwriting](https://lifestyle.allwomenstalk.com/how-to-improve-your-handwriting/)
+- [how to use watercolors](https://diy.allwomenstalk.com/these-tutorials-will-help-you-learn-how-to-use-watercolor/)
 - [7 Questions about Foundations ...](https://makeup.allwomenstalk.com/7-questions-about-foundations/)
 - [7 Ways to Learn New Craft Skills ...](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 

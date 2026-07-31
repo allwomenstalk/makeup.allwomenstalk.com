@@ -75,16 +75,16 @@ Let's keep the list going! What are some [nude lipsticks](https://allwomenstalk.
 
 ## Related Posts
 
-- [arab skin tone](https://makeup.allwomenstalk.com/how-to-choose-the-perfect-lipstick-for-your-skin-tone-for-girls-whove-bought-the-wrong-color-before/)
-- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
-- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
-- [loreal riche stylo golden emerald](https://makeup.allwomenstalk.com/geode-lip-inspos-youll-absolutely-worship/)
-- [color life lipstick](https://makeup.allwomenstalk.com/tips-to-extend-the-life-of-your-lipstick-on-your-lips/)
-- [riche stylo smoky azure](https://makeup.allwomenstalk.com/best-vampy-lip-colors-for-women-who-want-to-look-sexy-this-fall/)
 - [bold lipstick shades](https://makeup.allwomenstalk.com/bold-lipstick-shades-all-celebs-are-wearing-now/)
-- [best budget lip plumper](https://beauty.allwomenstalk.com/tried-and-true-lip-pumping-products-that-all-thin-lipped-girls-should-be-using/)
+- [loreal riche stylo golden emerald](https://makeup.allwomenstalk.com/geode-lip-inspos-youll-absolutely-worship/)
+- [riche stylo smoky azure](https://makeup.allwomenstalk.com/best-vampy-lip-colors-for-women-who-want-to-look-sexy-this-fall/)
+- [color life lipstick](https://makeup.allwomenstalk.com/tips-to-extend-the-life-of-your-lipstick-on-your-lips/)
 - [paris le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/bottom-lashes-to-die-for-when-yours-just-dont-make-the-cut/)
+- [arab skin tone](https://makeup.allwomenstalk.com/how-to-choose-the-perfect-lipstick-for-your-skin-tone-for-girls-whove-bought-the-wrong-color-before/)
+- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
+- [sephora sagittarius lipstick](https://makeup.allwomenstalk.com/best-lipstick-shade-for-your-star-sign/)
 - [dark hair red lipstick](https://makeup.allwomenstalk.com/how-anyone-can-pull-off-red-lipstick-for-girls-in-doubt/)
+- [best budget lip plumper](https://beauty.allwomenstalk.com/tried-and-true-lip-pumping-products-that-all-thin-lipped-girls-should-be-using/)
 - [Expert Beauty Tip: Get the Perfect Lip Stain ...](https://allwomenstalk.com/expert-beauty-tip-get-the-perfect-lip-stain/)
 - [8 Beauty Tips for Dark Skinned Girls ...](https://beauty.allwomenstalk.com/beauty-tips-for-dark-skinned-girls/)
 

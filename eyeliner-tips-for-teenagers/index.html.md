@@ -47,15 +47,15 @@ So girls, you asked for it and we delivered! These are our top eyeliner tips for
 ## Related Posts
 
 - [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
-- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
-- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
 - [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
 - [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
-- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
 - [makeup tips for darker skin](https://makeup.allwomenstalk.com/fantastic-make-up-tricks-for-dark-skin/)
-- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
 - [eye makeup and glasses](https://makeup.allwomenstalk.com/makeup-tricks-for-eyeglass-wearing-girls/)
 - [old makeup](https://makeup.allwomenstalk.com/great-uses-for-old-makeup/)
+- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
+- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [make up for fair skin](https://makeup.allwomenstalk.com/makeup-tips-for-fair-skin/)
+- [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

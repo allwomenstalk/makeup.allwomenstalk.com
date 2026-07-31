@@ -74,16 +74,16 @@ So girls, these are my top Chanel makeup products, what other Chanel products do
 
 ## Related Posts
 
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
-- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [what happens if you use expired face moisturizer](https://makeup.allwomenstalk.com/uses-for-expired-cosmetics/)
-- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
-- [loreal paris color le stylo emerald](https://makeup.allwomenstalk.com/gorgeous-emerald-green-makeup-products/)
 - [best makeup for uneven skin tone](https://makeup.allwomenstalk.com/makeup-products-for-uneven-skin-tone/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
 - [skin drink lush](https://beauty.allwomenstalk.com/must-have-lush-products/)
+- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
+- [tarte emphaseyes](https://makeup.allwomenstalk.com/fab-eyeliners-for-blue-eyes/)
+- [loreal paris color le stylo emerald](https://makeup.allwomenstalk.com/gorgeous-emerald-green-makeup-products/)
 - [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 

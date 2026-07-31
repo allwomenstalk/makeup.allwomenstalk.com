@@ -63,15 +63,15 @@ So ya'll, you have all of my favorite lipstick collections and palettes. What ar
 ## Related Posts
 
 - [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
-- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
 - [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
 - [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
 - [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
-- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
 - [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
+- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
+- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 

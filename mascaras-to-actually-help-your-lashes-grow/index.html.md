@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21555956)
 
 ## Related Posts
 
-- [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
-- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
+- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
+- [riche stylo eye shadow azure](https://makeup.allwomenstalk.com/natural-eye-makeup-ideas-to-try/)
+- [adam lambert eye makeup](https://makeup.allwomenstalk.com/cringe-worthy-makeup-trends-ever/)
 - [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
-- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
+- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 - [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
 - [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
-- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
-- [adam lambert eye makeup](https://makeup.allwomenstalk.com/cringe-worthy-makeup-trends-ever/)
+- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
 - [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
-- [riche stylo eye shadow azure](https://makeup.allwomenstalk.com/natural-eye-makeup-ideas-to-try/)
+- [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [8 Great Mascaras for Thin Lashes ...](https://allwomenstalk.com/8-great-mascaras-for-thin-lashes/)
 

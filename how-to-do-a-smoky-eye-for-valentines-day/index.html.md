@@ -17,16 +17,16 @@ There is something effortlessly sexy about a perfectly executed smoky eye, and t
 
 ## Related Posts
 
+- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
+- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
+- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
+- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
+- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
 - [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
 - [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
-- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
-- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
-- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
-- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
-- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

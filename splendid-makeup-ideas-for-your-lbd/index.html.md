@@ -56,14 +56,14 @@ Your little black dress is always beautiful and always looks great, but why not 
 
 ## Related Posts
 
-- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
-- [paris riche le stylo golden emerald](https://makeup.allwomenstalk.com/eyeshadow-mistakes-to-avoid/)
-- [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
-- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
-- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
 - [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
+- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
+- [paris riche le stylo golden emerald](https://makeup.allwomenstalk.com/eyeshadow-mistakes-to-avoid/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
+- [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
+- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
 - [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
 - [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)

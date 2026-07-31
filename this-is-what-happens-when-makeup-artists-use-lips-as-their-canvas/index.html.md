@@ -240,16 +240,16 @@ What do you think?
 
 ## Related Posts
 
+- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
+- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
 - [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
-- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
+- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
+- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
 - [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
 - [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
-- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
-- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
 - [homemade lip balm with vaseline](https://diy.allwomenstalk.com/diy-lip-balms-that-you-can-make-yourself/)
-- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
 - [lipstick hacks](https://makeup.allwomenstalk.com/ladies-youll-look-flawless-when-you-try-these-lipstick-hacks/)
-- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [The Hunt for Natural Looking Lips ...](https://allwomenstalk.com/the-hunt-for-natural-looking-lips/)
 

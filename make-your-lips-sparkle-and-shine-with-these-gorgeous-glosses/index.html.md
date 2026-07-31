@@ -159,16 +159,16 @@ This is the perfect color for New Year's Eve - ring in the new year with a kiss!
 
 ## Related Posts
 
-- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
-- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
-- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
-- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
 - [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
-- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
+- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
 - [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
+- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
+- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
+- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
 - [9 Charmingly Sweet & Pleasantly Fabulous Flavored ...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 - [Top 8 Super Glamorous Plumping Lip Glosses ...](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
 

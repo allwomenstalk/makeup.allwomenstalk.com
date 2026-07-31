@@ -78,16 +78,16 @@ Sephora is one of those brands that I didn't think about until I really started 
 
 ## Related Posts
 
+- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
+- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
+- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
+- [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
 - [paris riche smoky eye shadow twist](https://makeup.allwomenstalk.com/incredible-eyeshadow-must-haves-for-fall/)
 - [makeup with cool packaging](https://beauty.allwomenstalk.com/worst-makeup-packaging-ever/)
-- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
 - [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
-- [le smoky endless](https://makeup.allwomenstalk.com/great-eyeshadow-palettes/)
-- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
-- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
-- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
 - [glow up checklist](https://beauty.allwomenstalk.com/top-beauty-products-you-need-on-your-fall-beauty-checklist/)
-- [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
+- [le smoky endless](https://makeup.allwomenstalk.com/great-eyeshadow-palettes/)
+- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
 - [8 Best Skincare Products ...](https://skincare.allwomenstalk.com/best-skincare-products/)
 - [8 Best Skin Care Products Ever ...](https://skincare.allwomenstalk.com/best-skin-care-products-ever/)
 

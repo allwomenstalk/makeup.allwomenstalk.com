@@ -42,16 +42,16 @@ Well girls, there you have it! All of my top blush application tips that really 
 
 ## Related Posts
 
-- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
-- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
-- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
-- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
-- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
 - [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
-- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
+- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
+- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
+- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
 - [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
-- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
+- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
 - [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
+- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
 

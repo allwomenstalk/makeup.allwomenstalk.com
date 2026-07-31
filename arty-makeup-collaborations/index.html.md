@@ -62,16 +62,16 @@ These are just a few examples of arty makeup collections. It just goes to show t
 
 ## Related Posts
 
+- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
+- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
+- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
+- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
 - [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
 - [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
 - [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
 - [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
-- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
 - [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
-- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
-- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
-- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
-- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [8 Spring Makeup Lines I Love ...](https://makeup.allwomenstalk.com/spring-makeup-lines-i-love/)
 

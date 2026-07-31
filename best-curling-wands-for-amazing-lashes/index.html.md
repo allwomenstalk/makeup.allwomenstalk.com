@@ -137,15 +137,15 @@ These are our favorite 15 best curling wands, but we’d love to hear yours! Wha
 ## Related Posts
 
 - [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
-- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
 - [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
 - [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 10 High-Tech Beauty Tools for Your Beautyre .....](https://allwomenstalk.com/top-10-high-tech-beauty-tools-for-your-beauty/)
 

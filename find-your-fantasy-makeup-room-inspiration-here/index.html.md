@@ -228,16 +228,16 @@ So, what did you think? Did you see any makeup rooms that you would love to have
 
 ## Related Posts
 
+- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
 - [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
 - [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
-- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
-- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
-- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
-- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
 - [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
-- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
+- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
+- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
+- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
 - [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
+- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
 - [7 Unexpected Places to Get Beauty Inspiration from...](https://beauty.allwomenstalk.com/unexpected-places-to-get-beauty-inspiration-from/)
 - [9 Amazing Sultry Makeup Tips ...](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
 

@@ -56,16 +56,16 @@ Be honest - you don't use half the makeup you pack, do you? So streamline your m
 
 ## Related Posts
 
-- [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
-- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
-- [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
-- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
-- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
 - [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
-- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
-- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
+- [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
 - [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
+- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
+- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
+- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
+- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
+- [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
+- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [7 Beauty Products to Take with You on a Plane ...](https://beauty.allwomenstalk.com/beauty-products-to-take-with-you-on-a-plane/)
 

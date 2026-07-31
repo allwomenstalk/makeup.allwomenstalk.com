@@ -114,16 +114,16 @@ Too Faced Better Than Sex Waterproof Mascara, $23; [sephora.com](http://www.seph
 
 ## Related Posts
 
-- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
+- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
 - [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
-- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
-- [pouty look](https://beauty.allwomenstalk.com/natural-ways-to-make-your-lips-look-fuller/)
-- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
 - [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [how to perfect lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-apply-matte-lipstick/)
-- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
-- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
+- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
+- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
+- [pouty look](https://beauty.allwomenstalk.com/natural-ways-to-make-your-lips-look-fuller/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [13 Bourjois Mascaras - Reviews ...](https://allwomenstalk.com/13-bourjois-mascaras-reviews/)
 

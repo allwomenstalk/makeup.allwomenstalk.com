@@ -62,16 +62,16 @@ Top Image Source: lifeloveandlace.onsugar.com_
 
 ## Related Posts
 
-- [makeup during chemo](https://makeup.allwomenstalk.com/great-make-up-tips-for-ladies-undergoing-chemo/)
-- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
-- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
-- [oval shape face makeup](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-oval-faces/)
-- [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
 - [beauty tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-beginners/)
+- [oval shape face makeup](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-oval-faces/)
 - [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
-- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
 - [old makeup](https://makeup.allwomenstalk.com/great-uses-for-old-makeup/)
 - [makeup tips for darker skin](https://makeup.allwomenstalk.com/fantastic-make-up-tricks-for-dark-skin/)
+- [makeup during chemo](https://makeup.allwomenstalk.com/great-make-up-tips-for-ladies-undergoing-chemo/)
+- [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
+- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [how to organize your makeup](https://beauty.allwomenstalk.com/easy-ways-to-organize-your-makeup/)
+- [how to countor](https://makeup.allwomenstalk.com/marvelous-tips-on-how-to-contour-your-face/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

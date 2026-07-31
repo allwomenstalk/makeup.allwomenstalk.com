@@ -68,16 +68,16 @@ I hope you find these tips to make your makeup look better helpful! These are th
 
 ## Related Posts
 
-- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
-- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
-- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
-- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
-- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
 - [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
-- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
-- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
 - [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
+- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
+- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
+- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
+- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
+- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
+- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

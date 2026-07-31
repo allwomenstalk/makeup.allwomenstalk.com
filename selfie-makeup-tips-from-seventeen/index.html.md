@@ -14,16 +14,16 @@ If you follow the tips in this video, you'll be camera ready! Then you'll get mo
 
 ## Related Posts
 
-- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
 - [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
-- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
 - [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
 - [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
 - [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
+- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
 - [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
+- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

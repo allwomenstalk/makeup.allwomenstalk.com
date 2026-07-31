@@ -56,16 +56,16 @@ So, these are all of my makeup tips for a job interview! Do you have any others 
 
 ## Related Posts
 
-- [makeup pastel](https://makeup.allwomenstalk.com/pastel-makeup-tutorials/)
-- [paris riche le stylo golden emerald](https://makeup.allwomenstalk.com/eyeshadow-mistakes-to-avoid/)
-- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
-- [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
 - [simple eye makeup for black dress](https://makeup.allwomenstalk.com/splendid-makeup-ideas-for-your-lbd/)
-- [eyeliners for beginners](https://makeup.allwomenstalk.com/best-eyeliners-for-beginners/)
 - [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
-- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
+- [eyeliners for beginners](https://makeup.allwomenstalk.com/best-eyeliners-for-beginners/)
+- [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
 - [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
+- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
+- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
 - [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [paris riche le stylo golden emerald](https://makeup.allwomenstalk.com/eyeshadow-mistakes-to-avoid/)
+- [makeup pastel](https://makeup.allwomenstalk.com/pastel-makeup-tutorials/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

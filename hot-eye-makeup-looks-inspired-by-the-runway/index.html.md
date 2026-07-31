@@ -56,16 +56,16 @@ The runway provides us with so much inspiration! I love seeing all the different
 
 ## Related Posts
 
-- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
-- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
+- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
 - [ivory colour skin](https://makeup.allwomenstalk.com/clever-makeup-tips-for-ivory-skin/)
 - [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
-- [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
-- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
-- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
 - [office makeup tips](https://makeup.allwomenstalk.com/makeup-tips-for-the-office/)
+- [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
+- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
 - [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
+- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
 - [how to make hazel eyes pop with makeup](https://makeup.allwomenstalk.com/makeup-tips-for-hazel-eyes/)
+- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

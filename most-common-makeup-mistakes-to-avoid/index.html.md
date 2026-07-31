@@ -32,16 +32,16 @@ Brushes are an important key to your makeup. You would be surprised how effectiv
 
 ## Related Posts
 
-- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
-- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
-- [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
-- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
 - [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
 - [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
 - [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
+- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 - [8 Classic Make up Mistakes to Avoid ...](https://allwomenstalk.com/8-classic-make-up-mistakes-to-avoid/)
 

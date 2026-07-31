@@ -52,16 +52,16 @@ What’s your favorite lip product? I’m always looking for new products, so le
 
 ## Related Posts
 
-- [Forget the Duck Pout: 29 Statement Lipsticks for a...](https://makeup.allwomenstalk.com/forget-the-duck-pout-statement-lipsticks-for-a-much-sexier-you/)
-- [Want a Perfect Pout to Brag about? Use These 7 Lov...](https://makeup.allwomenstalk.com/want-a-perfect-pout-to-brag-about-use-these-lovely-lippies-for-spring/)
-- [7 Red Lipsticks You'll Never Want to Take off ...](https://makeup.allwomenstalk.com/red-lipsticks-youll-never-want-to-take-off/)
-- [paris color stylo smoky always](https://makeup.allwomenstalk.com/how-to-rock-the-bold-lipstick-shades-that-scare-you/)
-- [What do You Know about the Skin on Your Lips?](https://skincare.allwomenstalk.com/important-facts-about-the-skin-on-your-lips/)
-- [25 Unexpected Shades of Lipstick ...](https://makeup.allwomenstalk.com/unexpected-shades-of-lipstick/)
-- [how to apply dark lipstick](https://makeup.allwomenstalk.com/street-beauty-essential-tips-for-pulling-off-dark-lipstick/)
 - [2 toned lips](https://makeup.allwomenstalk.com/makeup-how-to-two-toned-ombre-lips/)
+- [how to apply dark lipstick](https://makeup.allwomenstalk.com/street-beauty-essential-tips-for-pulling-off-dark-lipstick/)
 - [7 Things You Need to Know about Lip Balm ...](https://skincare.allwomenstalk.com/things-you-need-to-know-about-lip-balm/)
+- [25 Unexpected Shades of Lipstick ...](https://makeup.allwomenstalk.com/unexpected-shades-of-lipstick/)
+- [What do You Know about the Skin on Your Lips?](https://skincare.allwomenstalk.com/important-facts-about-the-skin-on-your-lips/)
+- [7 Red Lipsticks You'll Never Want to Take off ...](https://makeup.allwomenstalk.com/red-lipsticks-youll-never-want-to-take-off/)
 - [color riche le stylo eye silver couture](https://makeup.allwomenstalk.com/what-does-your-lipstick-say-about-your-personality-find-out-here/)
+- [Forget the Duck Pout: 29 Statement Lipsticks for a...](https://makeup.allwomenstalk.com/forget-the-duck-pout-statement-lipsticks-for-a-much-sexier-you/)
+- [paris color stylo smoky always](https://makeup.allwomenstalk.com/how-to-rock-the-bold-lipstick-shades-that-scare-you/)
+- [Want a Perfect Pout to Brag about? Use These 7 Lov...](https://makeup.allwomenstalk.com/want-a-perfect-pout-to-brag-about-use-these-lovely-lippies-for-spring/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

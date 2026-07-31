@@ -49,15 +49,15 @@ Top Photo Credit: [stevendepolo](https://www.flickr.com/photos/stevendepolo/3514
 ## Related Posts
 
 - [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
-- [mascara dried out](https://makeup.allwomenstalk.com/impressively-useful-tips-on-how-to-avoid-messy-and-clumpy-mascara/)
-- [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
-- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
+- [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [top lid eyeliner](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
+- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
+- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
+- [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
-- [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
-- [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
-- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
+- [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
+- [mascara dried out](https://makeup.allwomenstalk.com/impressively-useful-tips-on-how-to-avoid-messy-and-clumpy-mascara/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 

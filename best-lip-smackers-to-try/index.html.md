@@ -46,16 +46,16 @@ These Lip Smacker flavors are surely fun! The fun colors and great scents are ju
 
 ## Related Posts
 
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
-- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
 - [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
-- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
-- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
-- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
 - [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
+- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
 - [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
+- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
+- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [7 Hot Orange Lipsticks to Try out ...](https://beauty.allwomenstalk.com/hot-orange-lipsticks-to-try-out/)
 

@@ -132,16 +132,16 @@ Expand your collection of lipsticks and pick up one of these awesome, moisturizi
 
 ## Related Posts
 
-- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
-- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
-- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
-- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
-- [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
 - [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
-- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
 - [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
+- [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
+- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
+- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
+- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
 - [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
+- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

@@ -46,16 +46,16 @@ There you have it ladies, all of my makeup tips for dark skin that will help you
 
 ## Related Posts
 
-- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 - [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
 - [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
+- [good makeup tricks](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-deep-set-eyes/)
+- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
+- [seven makeup foundation](https://makeup.allwomenstalk.com/practical-makeup-techniques-for-rainy-days/)
+- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
 - [celebrities makeup looks](https://beauty.allwomenstalk.com/craziest-celebrity-makeup-looks/)
 - [riche smoky eye shadow blinged brilliant](https://makeup.allwomenstalk.com/splendid-makeup-tips-to-enhance-the-gold-in-your-eyes/)
-- [good makeup tricks](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-deep-set-eyes/)
-- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
-- [fun eyeliner for hooded eyes](https://makeup.allwomenstalk.com/makeup-tips-for-hooded-eyes/)
-- [seven makeup foundation](https://makeup.allwomenstalk.com/practical-makeup-techniques-for-rainy-days/)
 - [how to get strawberry blonde hair at home](https://makeup.allwomenstalk.com/fab-makeup-tips-for-strawberry-blondes/)
+- [fun eyeliner for hooded eyes](https://makeup.allwomenstalk.com/makeup-tips-for-hooded-eyes/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [8 Makeup Tricks for Flawlessly Beautiful Skin ...](https://makeup.allwomenstalk.com/makeup-tricks-for-flawlessly-beautiful-skin/)
 

@@ -335,16 +335,16 @@ What do you think of modern plastic compacts now you've seen the variety of stun
 
 ## Related Posts
 
-- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
-- [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
 - [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
-- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
+- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
 - [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
 - [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
+- [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
+- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
-- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [8 Gorgeous Sugarpill Eye Shadows ...](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 - [8 Gorgeous Tiffany Handbags ...](https://bags.allwomenstalk.com/8-gorgeous-tiffany-handbags/)
 

@@ -60,16 +60,16 @@ Look at that fabulous person in the mirror and you're ready to get back to the r
 
 ## Related Posts
 
-- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
 - [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
+- [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
+- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

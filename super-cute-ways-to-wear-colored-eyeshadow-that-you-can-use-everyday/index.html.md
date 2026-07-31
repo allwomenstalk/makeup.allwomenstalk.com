@@ -56,16 +56,16 @@ So, there you have it, girls! There are tons of different ways to wear colored e
 
 ## Related Posts
 
-- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
 - [what keeps makeup on all day](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-last-all-day-long/)
-- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
+- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
 - [young makeup look](https://makeup.allwomenstalk.com/fabulous-makeup-tips-for-younger-looking-eyes-that-will-mesmerize-everyone/)
-- [makeup job](https://makeup.allwomenstalk.com/fabulous-makeup-tips-for-a-job-interview-that-will-help-you-stand-out/)
-- [best way to groom eyebrows](https://beauty.allwomenstalk.com/life-changing-tips-on-grooming-your-eyebrows/)
-- [how to make face thinner](https://makeup.allwomenstalk.com/ways-to-make-your-face-look-thinner-using-make-up/)
-- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
 - [famous makeup artist](https://makeup.allwomenstalk.com/amazing-makeup-artists-you-should-know-about/)
 - [makeup bible](https://beauty.allwomenstalk.com/illuminating-face-and-makeup-commandments-from-the-beauty-bible/)
+- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
+- [makeup job](https://makeup.allwomenstalk.com/fabulous-makeup-tips-for-a-job-interview-that-will-help-you-stand-out/)
+- [best way to groom eyebrows](https://beauty.allwomenstalk.com/life-changing-tips-on-grooming-your-eyebrows/)
+- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
+- [how to make face thinner](https://makeup.allwomenstalk.com/ways-to-make-your-face-look-thinner-using-make-up/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Gorgeous Ways to Wear Eye Shadow ...](https://allwomenstalk.com/7-gorgeous-ways-to-wear-eye-shadow/)
 

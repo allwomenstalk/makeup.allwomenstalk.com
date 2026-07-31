@@ -42,16 +42,16 @@ Being addicted to makeup can be a label you’re proud of but there can be a dar
 
 ## Related Posts
 
-- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
-- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
-- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
-- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
-- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
+- [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
 - [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
+- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
 - [signs you maybe pregnant](https://parenting.allwomenstalk.com/signs-you-may-be-pregnant/)
 - [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
 - [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
-- [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
+- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
+- [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
+- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
 - [7 Ways to Test Makeup ...](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 

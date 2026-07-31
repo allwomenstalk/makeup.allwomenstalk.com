@@ -46,16 +46,16 @@ I started using Neutrogena makeup as a teenager, and while I have tried and love
 
 ## Related Posts
 
+- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
+- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
 - [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
-- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
-- [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
 - [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
+- [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
 - [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
-- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 

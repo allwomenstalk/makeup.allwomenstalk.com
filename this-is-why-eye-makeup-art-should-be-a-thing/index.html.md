@@ -123,15 +123,15 @@ To see more of Tal's work, follow her on Instagram at @tal_peleg.
 ## Related Posts
 
 - [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
-- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
-- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
-- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
+- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
 - [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
 - [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
+- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
 - [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
-- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
 - [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
+- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
+- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
 - [7 Mindblowing Make up Art Images ...](https://beauty.allwomenstalk.com/mindblowing-make-up-art-images/)
 - [9 Incredibly Dramatic Makeup Looks to Try ...](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
 

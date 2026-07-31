@@ -42,16 +42,16 @@ These are some tips to help you know what to splurge or save on. Now it’s your
 
 ## Related Posts
 
-- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
-- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
-- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
-- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
-- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
 - [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
+- [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
+- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
 - [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
+- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
 - [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
+- [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
+- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
 - [More Bang for Fewer Bucks with Drugstore Eye Makeu...](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
 - [Stay in the Fashion Loop with These Dirt Cheap Mak...](https://makeup.allwomenstalk.com/stay-in-the-fashion-loop-with-these-dirt-cheap-makeup-dupes/)
 

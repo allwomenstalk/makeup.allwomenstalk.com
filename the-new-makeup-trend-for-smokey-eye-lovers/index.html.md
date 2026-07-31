@@ -32,16 +32,16 @@ Do you like this trend, or will you never actually do what these women did?
 
 ## Related Posts
 
-- [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
-- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
-- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
-- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
-- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
 - [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
+- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
+- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
 - [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
+- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
+- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

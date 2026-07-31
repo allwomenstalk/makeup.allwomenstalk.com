@@ -42,16 +42,16 @@ What other tips and tricks do you have for keeping lipstick where it belongs? Wi
 
 ## Related Posts
 
-- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
-- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
-- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
-- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
-- [natural pink lips images](https://beauty.allwomenstalk.com/tricks-to-make-your-lips-look-pink-naturally/)
-- [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
-- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
-- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
 - [lip gloss baby lips](https://makeup.allwomenstalk.com/the-best-lip-glosses-for-ladies-with-fair-skin/)
+- [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
+- [what are plump lips](https://makeup.allwomenstalk.com/secrets-for-plumper-sexier-lips/)
+- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
+- [how to draw lipgloss](https://makeup.allwomenstalk.com/tricks-to-draw-more-attention-to-your-lips/)
+- [natural pink lips images](https://beauty.allwomenstalk.com/tricks-to-make-your-lips-look-pink-naturally/)
+- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
 - [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
+- [mote lips](https://makeup.allwomenstalk.com/fun-and-fashionable-ideas-for-homemade-lip-gloss/)
+- [lovely lippy lips](https://makeup.allwomenstalk.com/radiant-red-lipsticks-thatll-shine-during-summertime/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

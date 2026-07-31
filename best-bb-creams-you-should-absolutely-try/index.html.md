@@ -102,16 +102,16 @@ Beauty balms are like lip balms, they are used to enhance your natural features 
 
 ## Related Posts
 
-- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
-- [fab feet](https://beauty.allwomenstalk.com/best-foot-creams/)
 - [gwyneth paltrow freckles](https://beauty.allwomenstalk.com/weird-facial-treatments-thatll-make-you-squirm/)
-- [facial soap brands](https://beauty.allwomenstalk.com/best-facial-cleansers/)
-- [top 10 tinted moisturizers](https://beauty.allwomenstalk.com/best-tinted-moisturizers/)
-- [yes to carrots daily facial moisturizer](https://skincare.allwomenstalk.com/best-skincare-products-you-can-buy-at-the-drugstore/)
-- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
-- [mac luminizer](https://makeup.allwomenstalk.com/best-facial-luminizers-for-the-most-perfect-looking-skin/)
-- [best body oils for skin](https://beauty.allwomenstalk.com/best-body-oils/)
 - [boscia willow bark spot treatment](https://beauty.allwomenstalk.com/best-acne-treatments/)
+- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
+- [mac luminizer](https://makeup.allwomenstalk.com/best-facial-luminizers-for-the-most-perfect-looking-skin/)
+- [top 10 tinted moisturizers](https://beauty.allwomenstalk.com/best-tinted-moisturizers/)
+- [facial soap brands](https://beauty.allwomenstalk.com/best-facial-cleansers/)
+- [fab feet](https://beauty.allwomenstalk.com/best-foot-creams/)
+- [yes to carrots daily facial moisturizer](https://skincare.allwomenstalk.com/best-skincare-products-you-can-buy-at-the-drugstore/)
+- [best body oils for skin](https://beauty.allwomenstalk.com/best-body-oils/)
+- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
 - [9 Best Bare Escentuals Products You've Got to Try ...](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
 - [11 Worst Makeup Brands out There ...](https://makeup.allwomenstalk.com/worst-makeup-brands-out-there/)
 

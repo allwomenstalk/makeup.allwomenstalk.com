@@ -54,16 +54,16 @@ Which one is your favorite? What brown eyed makeup tips can you share?
 
 ## Related Posts
 
-- [kylie jenner makeup tips](https://makeup.allwomenstalk.com/step-makeup-guide-for-girls-who-are-dying-to-look-like-kylie-jenner/)
-- [riche le stylo smoky eye primped and](https://beauty.allwomenstalk.com/top-tips-for-building-a-capsule-makeup-collection-all-minimalist-girls-will-love/)
-- [skinned eyebrow](https://makeup.allwomenstalk.com/stunning-makeup-looks-for-dark-skinned-girls/)
-- [eye makeup tends](https://makeup.allwomenstalk.com/seasons-hottest-eye-makeup-trends-for-perfect-fall-selfies/)
 - [clinque cosmetics](https://makeup.allwomenstalk.com/how-to-pick-the-right-makeup-for-your-skincare-needs/)
-- [blue eyes pop](https://makeup.allwomenstalk.com/makeup-looks-to-make-your-beautiful-blue-eyes-pop/)
-- [makeup night look](https://makeup.allwomenstalk.com/makeup-hacks-to-make-you-look-more-awake-for-girls-who-cant-get-the-rest-the-night-before/)
+- [skinned eyebrow](https://makeup.allwomenstalk.com/stunning-makeup-looks-for-dark-skinned-girls/)
 - [concealer hacks](https://makeup.allwomenstalk.com/easy-hacks-for-your-concealer-that-all-girls-should-know/)
 - [concealer makes eyes look smaller](https://makeup.allwomenstalk.com/makeup-mistakes-that-are-making-your-eyes-look-smaller/)
+- [eye makeup tends](https://makeup.allwomenstalk.com/seasons-hottest-eye-makeup-trends-for-perfect-fall-selfies/)
+- [riche le stylo smoky eye primped and](https://beauty.allwomenstalk.com/top-tips-for-building-a-capsule-makeup-collection-all-minimalist-girls-will-love/)
 - [history of blush makeup](https://makeup.allwomenstalk.com/contouring-is-history-now-that-draping-makeup-is-on-the-scene/)
+- [kylie jenner makeup tips](https://makeup.allwomenstalk.com/step-makeup-guide-for-girls-who-are-dying-to-look-like-kylie-jenner/)
+- [blue eyes pop](https://makeup.allwomenstalk.com/makeup-looks-to-make-your-beautiful-blue-eyes-pop/)
+- [makeup night look](https://makeup.allwomenstalk.com/makeup-hacks-to-make-you-look-more-awake-for-girls-who-cant-get-the-rest-the-night-before/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [17 Makeup Tricks for Brown Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
 

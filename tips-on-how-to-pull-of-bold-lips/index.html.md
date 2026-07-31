@@ -42,16 +42,16 @@ Just keep this in mind and you’ll be great! More than great actually, as dark 
 
 ## Related Posts
 
+- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
+- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
 - [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
 - [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
-- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
 - [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
-- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
-- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
 - [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
+- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [7 Ways to Pull off Orange Lips ...](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 

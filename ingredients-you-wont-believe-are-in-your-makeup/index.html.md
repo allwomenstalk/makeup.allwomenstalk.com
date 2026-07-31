@@ -40,16 +40,16 @@ This is used as a binding agent in things like mascara, lipstick, hairspray, sha
 
 ## Related Posts
 
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
 - [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
 - [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
-- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
-- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
+- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 

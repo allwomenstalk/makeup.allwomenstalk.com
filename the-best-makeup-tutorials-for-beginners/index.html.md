@@ -58,16 +58,16 @@ Which of these videos is your favorite? Can you think of any other makeup tips f
 
 ## Related Posts
 
-- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
-- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
 - [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
-- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
+- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
 - [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
 - [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
 - [sofia vergara età](https://makeup.allwomenstalk.com/makeup-tips-to-steal-from-sofia-vergara/)
-- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
+- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
 - [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
+- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
 - [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
+- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [Top 8 Makeup Mistakes Beginners Make ...](https://beauty.allwomenstalk.com/top-makeup-mistakes-beginners-make/)
 

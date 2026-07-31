@@ -116,16 +116,16 @@ Which look is your favorite? Are you going to try double winged liner today?
 
 ## Related Posts
 
-- [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
-- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
 - [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
-- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
-- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
-- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
 - [paris color le stylo smoky eye conquest](https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/)
-- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
 - [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
+- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
+- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
+- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
+- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
+- [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
+- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
+- [best contouring makeup products](https://makeup.allwomenstalk.com/makeup-sets-thatll-make-contouring-easier-on-you/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [13 Best Eyeliners You Won't Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 

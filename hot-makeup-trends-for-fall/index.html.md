@@ -72,16 +72,16 @@ This fall you can put your matte lipstick back on the shelf. In addition to dewy
 
 ## Related Posts
 
-- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
-- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
-- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
 - [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
+- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)
 

@@ -168,16 +168,16 @@ What's your favorite long lasting lipstick? Which of these do you want to try?
 
 ## Related Posts
 
-- [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
 - [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
-- [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
-- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
-- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
-- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
 - [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
-- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
+- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
 - [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
+- [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
+- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
+- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
+- [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [8 Best Lipsticks ...](https://allwomenstalk.com/best-lipstick-top-10/)
 

@@ -16,16 +16,16 @@ Now you can finish your face while you're on your way to work. Do you ever apply
 
 ## Related Posts
 
-- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
-- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
-- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
-- [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
-- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
-- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
-- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
 - [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
-- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
 - [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
+- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
+- [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
+- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
+- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
+- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
+- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
+- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
+- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 

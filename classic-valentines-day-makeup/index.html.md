@@ -18,16 +18,16 @@ Check out NikkieTutorials Matte **classic Valentine's Day makeup** tutorial belo
 
 ## Related Posts
 
-- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
+- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
 - [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
 - [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
-- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
-- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
 - [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
+- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
+- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [8 Awesome Vintage Makeup Tutorials ...](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 

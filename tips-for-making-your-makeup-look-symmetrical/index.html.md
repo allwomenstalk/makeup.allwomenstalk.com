@@ -42,16 +42,16 @@ Makeup can hide your flaws, accentuate your good features, and even make you loo
 
 ## Related Posts
 
-- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
-- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
-- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
-- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
-- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
 - [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
+- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
+- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
 - [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
+- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
+- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
 - [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
+- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
 - [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

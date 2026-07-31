@@ -102,16 +102,16 @@ When you're applying lipstick (especially if it's matte), it's better to work on
 
 ## Related Posts
 
-- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
-- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
 - [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
-- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
+- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
 - [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
 - [mac a girl's got needs lipstick](https://makeup.allwomenstalk.com/mac-lipstick-dupes-for-girls-who-want-to-look-fab-while-on-a-budget/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
-- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
 - [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
+- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
+- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
 - [7 Tips for Perfect Nude Lips ...](https://makeup.allwomenstalk.com/tips-for-perfect-nude-lips/)
 - [8 Tips for Party Perfect Sexy Lips ...](https://beauty.allwomenstalk.com/tips-for-party-perfect-sexy-lips/)
 

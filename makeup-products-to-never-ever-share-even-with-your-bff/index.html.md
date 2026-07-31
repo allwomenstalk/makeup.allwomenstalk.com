@@ -56,16 +56,16 @@ It kind of sucks that you have to avoid sharing some products (and it sucks even
 
 ## Related Posts
 
-- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
-- [hottest instagram accounts 2023](https://beauty.allwomenstalk.com/hottest-beauty-products-all-influencers-are-secretly-using/)
-- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
 - [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
-- [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
-- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
-- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
-- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
-- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
 - [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
+- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [hottest instagram accounts 2023](https://beauty.allwomenstalk.com/hottest-beauty-products-all-influencers-are-secretly-using/)
+- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
+- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
+- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
+- [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
+- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
+- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [7 Weird Makeup Trends to Avoid ...](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
 

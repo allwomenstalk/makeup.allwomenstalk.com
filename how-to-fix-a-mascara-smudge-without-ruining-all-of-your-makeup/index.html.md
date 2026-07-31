@@ -19,16 +19,16 @@ That's really all you need in order to fix your makeup. Have you ever used micel
 
 ## Related Posts
 
-- [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
-- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
 - [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
-- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
-- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
-- [best face powder for sensitive skin](https://makeup.allwomenstalk.com/is-powder-essential-to-your-makeup-routine/)
-- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
 - [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
+- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
+- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
+- [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
+- [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
+- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
 - [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [best face powder for sensitive skin](https://makeup.allwomenstalk.com/is-powder-essential-to-your-makeup-routine/)
 - [8 Mascara Tips for Short Eyelashes ...](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 

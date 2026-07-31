@@ -62,16 +62,16 @@ Whether you’re after a designer number or a chain store buy, there’s a styli
 
 ## Related Posts
 
-- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
-- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
 - [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
 - [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
-- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
+- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
+- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
+- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [12 Things to Have in Your Make-up Bag ...](https://allwomenstalk.com/12-things-to-have-in-your-make-up-bag/)
 

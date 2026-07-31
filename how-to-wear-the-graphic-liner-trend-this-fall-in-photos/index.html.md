@@ -196,16 +196,16 @@ Source: [Real Techniques Core make up](https://www.youtube.com/watch?v=4EnY0KDAg
 
 ## Related Posts
 
-- [who should not wear leggings](https://fashion.allwomenstalk.com/the-dos-and-donts-of-wearing-leggings/)
 - [clothes that look expensive](https://fashion.allwomenstalk.com/avoid-these-things-if-you-want-your-clothes-to-look-expensive/)
 - [what to wear on skirt](https://fashion.allwomenstalk.com/ways-to-wear-a-skirt-when-the-weather-gets-cold/)
-- [brown pants green sweater](https://streetstyle.allwomenstalk.com/ideas-for-wearing-leggings-once-its-cool-out/)
 - [how men want to dress](https://fashion.allwomenstalk.com/why-you-should-dress-for-yourself-not-a-man/)
-- [flared jeans with heels](https://fashion.allwomenstalk.com/how-to-rock-flared-jeans-this-season/)
-- [make a summer dress work for fall](https://fashion.allwomenstalk.com/how-can-you-make-your-summer-clothes-work-for-fall/)
-- [denim on denim street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-denim-shirts/)
-- [different scarf types](https://fashion.allwomenstalk.com/look-sexy-by-copying-these-scarf-styles/)
 - [attire](https://fashion.allwomenstalk.com/how-to-wear-the-same-dress-in-different-ways/)
+- [make a summer dress work for fall](https://fashion.allwomenstalk.com/how-can-you-make-your-summer-clothes-work-for-fall/)
+- [brown pants green sweater](https://streetstyle.allwomenstalk.com/ideas-for-wearing-leggings-once-its-cool-out/)
+- [flared jeans with heels](https://fashion.allwomenstalk.com/how-to-rock-flared-jeans-this-season/)
+- [different scarf types](https://fashion.allwomenstalk.com/look-sexy-by-copying-these-scarf-styles/)
+- [denim on denim street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-denim-shirts/)
+- [who should not wear leggings](https://fashion.allwomenstalk.com/the-dos-and-donts-of-wearing-leggings/)
 - [How to Wear Fall Fashion's Top Trends](https://allwomenstalk.com/how-to-wear-fall-fashions-top-trends/)
 - [7 Ways to Wear Ruffles This Fall ...](https://allwomenstalk.com/7-ways-to-wear-ruffles-this-fall/)
 

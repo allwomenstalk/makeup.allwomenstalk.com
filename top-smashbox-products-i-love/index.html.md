@@ -86,16 +86,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2580422536198466
 
 ## Related Posts
 
-- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
-- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
 - [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
-- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
-- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
-- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
 - [glow up checklist](https://beauty.allwomenstalk.com/top-beauty-products-you-need-on-your-fall-beauty-checklist/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
 - [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
+- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
+- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
+- [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
+- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
+- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products/)
 

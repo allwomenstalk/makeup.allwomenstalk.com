@@ -70,15 +70,15 @@ Well, I’m certainly inspired to get out there and try out some of these gorgeo
 
 ## Related Posts
 
-- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
 - [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
-- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
-- [almay smart shade review](https://allwomenstalk.com/review-almay-smart-shade-makeup/)
-- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
 - [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
-- [WEBSITE FIND: Beauty Exclusive ...](https://allwomenstalk.com/website-find-beauty-exclusive/)
-- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
+- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
+- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
+- [almay smart shade review](https://allwomenstalk.com/review-almay-smart-shade-makeup/)
+- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [WEBSITE FIND: Beauty Exclusive ...](https://allwomenstalk.com/website-find-beauty-exclusive/)
 - [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
 - [8 Prettiest Spring Eyeshadows ...](https://allwomenstalk.com/8-prettiest-spring-eyeshadows/)
 - [10 Prettiest Spring Lip Glosses ...](https://allwomenstalk.com/10-prettiest-spring-lip-glosses/)

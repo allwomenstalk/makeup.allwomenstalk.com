@@ -62,16 +62,16 @@ Which one of these pieces of lip art do you like the best?
 
 ## Related Posts
 
-- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
+- [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
 - [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
 - [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
-- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
 - [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
 - [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
-- [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
+- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
 - [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
 - [7 Ways to Pull off Orange Lips ...](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [8 Different Ways to Make Your Lips Look Bigger ...](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
 

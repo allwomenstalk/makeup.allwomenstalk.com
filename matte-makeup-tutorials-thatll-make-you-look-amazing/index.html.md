@@ -54,16 +54,16 @@ Matte makeup is all the rage nowadays, and you can see why! It looks absolutely 
 
 ## Related Posts
 
-- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
-- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
-- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
-- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
-- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
-- [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
-- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
-- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
-- [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
 - [dullpoint](https://makeup.allwomenstalk.com/dont-make-these-miniature-eyeliner-mistakes-anymore/)
+- [color riche le stylo eye shadow blinged and](https://makeup.allwomenstalk.com/the-dos-and-donts-of-applying-eyeshadow/)
+- [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
+- [loreal paris color riche stylo smoky shadow pearly...](https://makeup.allwomenstalk.com/red-and-pink-makeup-thats-perfect-for-valentines-day/)
+- [paris smoky eye blinged and](https://makeup.allwomenstalk.com/this-black-smokey-eye-look-is-perfect-for-valentines-day/)
+- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
+- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
+- [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
+- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
+- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 

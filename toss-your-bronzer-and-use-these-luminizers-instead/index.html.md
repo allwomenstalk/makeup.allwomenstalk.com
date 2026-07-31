@@ -159,15 +159,15 @@ I love how all of the colors combine to give a perfect subtle glow.
 
 ## Related Posts
 
-- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
-- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
 - [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
-- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
-- [what's baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
+- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
 - [lune+aster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
+- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [what's baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
+- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
+- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
 - [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
 - [8 Tips to Apply Bronzer like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-bronzer-like-a-pro/)
 - [12 Best Luminizers ...](https://allwomenstalk.com/12-best-luminizers/)

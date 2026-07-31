@@ -50,16 +50,16 @@ What's the hardest part about putting on makeup?
 
 ## Related Posts
 
+- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
 - [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
-- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
-- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
 - [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
-- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
+- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
 - [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
 - [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
 - [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
-- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
+- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
+- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

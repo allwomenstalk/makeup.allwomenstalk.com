@@ -42,16 +42,16 @@ These’re 7 tips for when you’re beginning to use primer. Which ones are most
 
 ## Related Posts
 
-- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
-- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
-- [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
-- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
+- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
 - [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
 - [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
 - [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
+- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
+- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
+- [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
 - [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
-- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 - [7 Awesome Eyeshadow Primers to Try ...](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
 

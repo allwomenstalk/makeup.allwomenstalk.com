@@ -62,16 +62,16 @@ What do you think of these Harry Potter beauty products? Will you be purchasing 
 
 ## Related Posts
 
-- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
-- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
-- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
-- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
-- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
 - [hottest instagram accounts 2023](https://beauty.allwomenstalk.com/hottest-beauty-products-all-influencers-are-secretly-using/)
-- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
+- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
 - [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
+- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
 - [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
+- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
 - [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
+- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
+- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
 - [8 Homemade Beauty Treatments That Really Work ...](https://allwomenstalk.com/8-homemade-beauty-treatments-that-really-work/)
 - [8 Beauty Products That Make Your Skin Glow ...](https://beauty.allwomenstalk.com/beauty-products-that-make-your-skin-glow/)
 

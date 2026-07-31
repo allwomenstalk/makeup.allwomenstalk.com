@@ -46,16 +46,16 @@ I hope you have found these makeup tips for fair skin useful. I look forward to 
 
 ## Related Posts
 
-- [eye makeup and glasses](https://makeup.allwomenstalk.com/makeup-tricks-for-eyeglass-wearing-girls/)
-- [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
 - [when does eyebrows grow back](https://beauty.allwomenstalk.com/simple-steps-to-regrow-over-plucked-eyebrows/)
-- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
-- [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
+- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
+- [adam lambert eye makeup](https://makeup.allwomenstalk.com/cringe-worthy-makeup-trends-ever/)
+- [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
 - [riche stylo eye shadow azure](https://makeup.allwomenstalk.com/natural-eye-makeup-ideas-to-try/)
 - [mascara that helps grow lashes](https://makeup.allwomenstalk.com/mascaras-to-actually-help-your-lashes-grow/)
-- [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
-- [adam lambert eye makeup](https://makeup.allwomenstalk.com/cringe-worthy-makeup-trends-ever/)
-- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
+- [eye makeup and glasses](https://makeup.allwomenstalk.com/makeup-tricks-for-eyeglass-wearing-girls/)
+- [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
+- [best way to apply bronzer](https://makeup.allwomenstalk.com/little-known-tips-on-how-to-apply-bronzer-like-a-pro/)
+- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [7 Tips for an Even Complexion ...](https://skincare.allwomenstalk.com/tips-for-an-even-complexion/)
 

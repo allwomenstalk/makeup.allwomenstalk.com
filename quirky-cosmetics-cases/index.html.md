@@ -71,15 +71,15 @@ No matter if you wear a lot of makeup or very little, cosmetics cases are a hand
 ## Related Posts
 
 - [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
-- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
-- [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
-- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
-- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
 - [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
-- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
-- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
+- [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
 - [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
+- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
+- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
+- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
+- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
+- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [8 Stylish Compacts ...](https://makeup.allwomenstalk.com/stylish-compacts/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

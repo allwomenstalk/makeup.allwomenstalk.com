@@ -44,15 +44,15 @@ What other 10-second makeup tweaks do you know?
 
 ## Related Posts
 
-- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
 - [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
+- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
 - [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
 - [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
 - [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [8 Tricks Make up Artists Use ...](https://makeup.allwomenstalk.com/8-tricks-make-up-artists-use/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)

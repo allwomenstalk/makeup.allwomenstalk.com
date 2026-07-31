@@ -56,15 +56,15 @@ Here it is, my list of drugstore makeup products you should definitely pass on. 
 
 ## Related Posts
 
-- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
-- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
-- [best smudge proof mascara uk](https://makeup.allwomenstalk.com/of-the-best-flake-free-mascaras-to-try-on-the-market/)
-- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
-- [best drugstore pink blush](https://makeup.allwomenstalk.com/best-drugstore-blushes-for-fair-skin/)
-- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
 - [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
 - [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
 - [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
+- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
+- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
+- [best smudge proof mascara uk](https://makeup.allwomenstalk.com/of-the-best-flake-free-mascaras-to-try-on-the-market/)
+- [best drugstore pink blush](https://makeup.allwomenstalk.com/best-drugstore-blushes-for-fair-skin/)
+- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
+- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
 - [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)

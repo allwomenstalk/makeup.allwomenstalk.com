@@ -42,15 +42,15 @@ Have you ever tried any of these makeup tricks for defying your age? What other 
 
 ## Related Posts
 
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
 - [sofia vergara età](https://makeup.allwomenstalk.com/makeup-tips-to-steal-from-sofia-vergara/)
-- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
 - [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
-- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
 - [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
-- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
+- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
 - [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
+- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
+- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
 - [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [7 Easy Beauty Tricks to Look Younger ...](https://allwomenstalk.com/7-easy-beauty-tricks-to-look-younger/)

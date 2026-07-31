@@ -42,16 +42,16 @@ Which one of these looks is your favorite?
 
 ## Related Posts
 
-- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
 - [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
 - [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
 - [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
-- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
-- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
 - [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
 - [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
 - [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
+- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 

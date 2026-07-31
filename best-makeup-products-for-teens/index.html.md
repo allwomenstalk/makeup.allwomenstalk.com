@@ -56,16 +56,16 @@ Shopping for makeup products can be an incredibly relaxing experience if you all
 
 ## Related Posts
 
-- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
-- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
-- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
+- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
 - [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
 - [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
 - [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
 - [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

@@ -68,16 +68,16 @@ Nail polish trends are all the rage this summer. With such a vast number of curr
 
 ## Related Posts
 
+- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
+- [organic nail polish](https://nails.allwomenstalk.com/pros-and-cons-of-nail-art/)
+- [chanel nail polishes](https://makeup.allwomenstalk.com/of-the-most-popular-chanel-nail-polishes/)
 - [nail color for tropical vacation](https://nails.allwomenstalk.com/hottest-nail-colors-for/)
 - [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
-- [organic nail polish](https://nails.allwomenstalk.com/pros-and-cons-of-nail-art/)
 - [fall nails trend](https://makeup.allwomenstalk.com/amazing-nail-trends-for-fall/)
-- [chanel nail polishes](https://makeup.allwomenstalk.com/of-the-most-popular-chanel-nail-polishes/)
+- [famous nail polish brands](https://nails.allwomenstalk.com/nail-polish-brands-i-love/)
+- [light gray nail](https://nails.allwomenstalk.com/gorgeous-grey-nail-polishes-for-fall/)
 - [nail polish maroon colour](https://nails.allwomenstalk.com/nail-polish-colors-to-try-for-winter/)
 - [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
-- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
-- [light gray nail](https://nails.allwomenstalk.com/gorgeous-grey-nail-polishes-for-fall/)
-- [famous nail polish brands](https://nails.allwomenstalk.com/nail-polish-brands-i-love/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 

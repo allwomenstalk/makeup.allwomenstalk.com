@@ -42,16 +42,16 @@ These are 7 things you can try to deal with makeup smudging. What are your secre
 
 ## Related Posts
 
-- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
-- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
-- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
-- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
 - [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
+- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
+- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
 - [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
-- [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
+- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
 - [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
+- [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
+- [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
+- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [How do You Organize Your Makeup?](https://allwomenstalk.com/how-do-you-organize-your-makeup/)
 

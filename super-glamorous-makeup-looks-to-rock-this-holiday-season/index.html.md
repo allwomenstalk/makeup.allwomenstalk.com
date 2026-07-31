@@ -46,15 +46,15 @@ Ah, so many festive make up looks to choose from! Thank God for both Christmas a
 
 ## Related Posts
 
-- [11 Beauty Products I'm Thankful for ...](https://beauty.allwomenstalk.com/beauty-products-im-thankful-for/)
-- [loreal paris color riche stylo eye bottomless](https://beauty.allwomenstalk.com/beauty-buys-too-pretty-to-use/)
-- [9 Cult Beauty Products Worth Their Hype ...](https://beauty.allwomenstalk.com/cult-beauty-products-worth-their-hype/)
-- [paris la palette timeless spark](https://makeup.allwomenstalk.com/amazing-color-palette-makeup-pieces-for-spring/)
 - [8 Makeup Collections of 2013 I Can't Wait for ...](https://makeup.allwomenstalk.com/makeup-collections-of-i-cant-wait-for/)
-- [7 Cool Glitter Beauty Buys ...](https://beauty.allwomenstalk.com/cool-glitter-beauty-buys/)
-- [best gold beauty products](https://makeup.allwomenstalk.com/great-gold-beauty-products-to-try-out/)
-- [loreal paris le stylo eye shadow conquest](https://beauty.allwomenstalk.com/makeup-brushes-you-need-to-own/)
+- [9 Cult Beauty Products Worth Their Hype ...](https://beauty.allwomenstalk.com/cult-beauty-products-worth-their-hype/)
 - [vegan cosmetics list](https://makeup.allwomenstalk.com/vegan-makeup-products/)
+- [loreal paris color riche stylo eye bottomless](https://beauty.allwomenstalk.com/beauty-buys-too-pretty-to-use/)
+- [7 Cool Glitter Beauty Buys ...](https://beauty.allwomenstalk.com/cool-glitter-beauty-buys/)
+- [paris la palette timeless spark](https://makeup.allwomenstalk.com/amazing-color-palette-makeup-pieces-for-spring/)
+- [best gold beauty products](https://makeup.allwomenstalk.com/great-gold-beauty-products-to-try-out/)
+- [11 Beauty Products I'm Thankful for ...](https://beauty.allwomenstalk.com/beauty-products-im-thankful-for/)
+- [loreal paris le stylo eye shadow conquest](https://beauty.allwomenstalk.com/makeup-brushes-you-need-to-own/)
 - [7 Versatile Beauty Products for Your Daily Beauty ...](https://beauty.allwomenstalk.com/versatile-beauty-products-for-your-daily-beauty-routine/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Amazing Makeup Must-Haves for Winter You Simply ...](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)

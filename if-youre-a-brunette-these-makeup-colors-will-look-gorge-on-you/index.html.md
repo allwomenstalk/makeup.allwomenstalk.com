@@ -56,16 +56,16 @@ What is your go-to makeup color if you have dark hair? Have you ever tried any o
 
 ## Related Posts
 
-- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
-- [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
-- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
-- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
-- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
-- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
-- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
 - [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
+- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
+- [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
+- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
+- [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
+- [how to make yourself look older with makeup](https://makeup.allwomenstalk.com/look-mature-with-these-makeup-tips-for-job-interviews/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
+- [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
+- [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
 - [8 Makeup Tricks for Brunettes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 - [6 Non-drab Ways to Wear Brown Makeup This Fall ...](https://makeup.allwomenstalk.com/non-drab-ways-to-wear-brown-makeup-this-fall/)
 

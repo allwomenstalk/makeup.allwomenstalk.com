@@ -42,16 +42,16 @@ Do you wear red lipstick? It always gets smeared all over my kids when I wear it
 
 ## Related Posts
 
-- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
-- [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
-- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
-- [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
-- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
 - [claire danes makeup](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
-- [how often should i exfoliate my lips](https://skincare.allwomenstalk.com/yummy-things-you-can-use-to-exfoliate-your-lips/)
+- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
 - [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
-- [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
+- [how often should i exfoliate my lips](https://skincare.allwomenstalk.com/yummy-things-you-can-use-to-exfoliate-your-lips/)
+- [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
 - [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
+- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
+- [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
+- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
+- [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

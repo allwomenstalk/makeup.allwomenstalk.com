@@ -42,16 +42,16 @@ Are you in the mood to do some mermaid makeup now? I know we’re months away fr
 
 ## Related Posts
 
-- [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
-- [brigitte bardot eyebrows](https://beauty.allwomenstalk.com/absolutely-flawless-eyebrows/)
-- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
-- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
-- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
-- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
-- [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
 - [tips to look beautiful](https://beauty.allwomenstalk.com/tips-for-looking-beautiful-without-makeup/)
-- [eyeshadow sealing gel](https://makeup.allwomenstalk.com/super-useful-things-you-should-know-about-eyeshadows/)
 - [eye makeup products name list](https://makeup.allwomenstalk.com/awesome-eye-makeup-products-for-beginners/)
+- [brigitte bardot eyebrows](https://beauty.allwomenstalk.com/absolutely-flawless-eyebrows/)
+- [eyeshadow sealing gel](https://makeup.allwomenstalk.com/super-useful-things-you-should-know-about-eyeshadows/)
+- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
+- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
+- [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
+- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
+- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
+- [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

@@ -42,16 +42,16 @@ Which video is your favorite?
 
 ## Related Posts
 
-- [riche le stylo smoky eye primped and](https://beauty.allwomenstalk.com/top-tips-for-building-a-capsule-makeup-collection-all-minimalist-girls-will-love/)
-- [makeup colour game](https://makeup.allwomenstalk.com/goals-pictures-for-girls-who-want-to-up-their-makeup-game/)
+- [stylo smoky eye primped previous](https://makeup.allwomenstalk.com/easy-makeup-tutorials-for-brown-eyed-girls/)
 - [make up on fleek](https://makeup.allwomenstalk.com/summery-eye-makeup-ideas-that-are-so-on-fleek/)
+- [kylie jenner makeup tips](https://makeup.allwomenstalk.com/step-makeup-guide-for-girls-who-are-dying-to-look-like-kylie-jenner/)
 - [tired eye makeup look](https://beauty.allwomenstalk.com/tired-of-short-unruly-eyelashes-heres-how-to-make-them-grow/)
 - [how to make my lips look fuller](https://makeup.allwomenstalk.com/makeup-videos-for-girls-with-thin-lips/)
-- [twilight makeup hot topic](https://makeup.allwomenstalk.com/discover-your-signature-makeup-look-with-these-beauty-hints/)
-- [kylie jenner makeup tips](https://makeup.allwomenstalk.com/step-makeup-guide-for-girls-who-are-dying-to-look-like-kylie-jenner/)
+- [riche le stylo smoky eye primped and](https://beauty.allwomenstalk.com/top-tips-for-building-a-capsule-makeup-collection-all-minimalist-girls-will-love/)
 - [loreal color riche stylo smoky eye shadow skirt](https://beauty.allwomenstalk.com/smashing-makeup-inspo-for-girls-who-love-a-clean-makeup-look/)
-- [stylo smoky eye primped previous](https://makeup.allwomenstalk.com/easy-makeup-tutorials-for-brown-eyed-girls/)
+- [twilight makeup hot topic](https://makeup.allwomenstalk.com/discover-your-signature-makeup-look-with-these-beauty-hints/)
 - [concealer hacks](https://makeup.allwomenstalk.com/easy-hacks-for-your-concealer-that-all-girls-should-know/)
+- [makeup colour game](https://makeup.allwomenstalk.com/goals-pictures-for-girls-who-want-to-up-their-makeup-game/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [8 Great Make-up Items for Girls with Green Eyes .....](https://allwomenstalk.com/8-great-make-up-items-for-girls-with-green-eyes/)
 

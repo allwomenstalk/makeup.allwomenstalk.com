@@ -46,16 +46,16 @@ Now that you’ve clocked using foundation for the first time, practice a few ti
 
 ## Related Posts
 
-- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
-- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
-- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
-- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
-- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
-- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
-- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
 - [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
+- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
+- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
+- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
+- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
 - [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
+- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
+- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 

@@ -57,15 +57,15 @@ Drugstore makeup and lower priced makeup in general sometimes get a bad rap but 
 ## Related Posts
 
 - [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
+- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
+- [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
 - [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
 - [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
-- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
-- [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
-- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
-- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
 - [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
+- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
+- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
 - [9 Best Makeup Palettes to Start You off ...](https://makeup.allwomenstalk.com/best-makeup-palettes-to-start-you-off/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 

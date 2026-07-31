@@ -68,16 +68,16 @@ These are just some examples of makeup products to avoid this year and what to r
 
 ## Related Posts
 
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
-- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
-- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
-- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
-- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
-- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
+- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
+- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
+- [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
+- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [7 Beauty Products I Totally Hated ...](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 

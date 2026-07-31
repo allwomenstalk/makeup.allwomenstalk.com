@@ -158,16 +158,16 @@ If you already have a lippie you love, but it's not quite matte enough, add a la
 
 ## Related Posts
 
-- [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
-- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
 - [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
+- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [Check out the Marble Lip Trend Instagrammers Can't...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
+- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
 - [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
 - [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
-- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
+- [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
 - [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
-- [Check out the Marble Lip Trend Instagrammers Can't...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
-- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
 - [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
+- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
 - [7 Hot Orange Lipsticks to Try out ...](https://beauty.allwomenstalk.com/hot-orange-lipsticks-to-try-out/)
 - [7 Pretty Lip Glosses ...](https://allwomenstalk.com/7-pretty-lip-glosses/)
 

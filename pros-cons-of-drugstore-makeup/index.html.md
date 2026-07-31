@@ -46,16 +46,16 @@ While I favor drugstore makeup over expensive makeup anyway, if I had an unlimit
 
 ## Related Posts
 
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
+- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
+- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
 - [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
 - [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
-- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 - [8 Reasons Why Makeup is Good for You ...](https://allwomenstalk.com/8-reasons-why-makeup-is-good-for-you/)
 

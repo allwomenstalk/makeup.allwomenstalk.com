@@ -56,16 +56,16 @@ Upgrade your makeup kit with these must-own beauty tools. You will have flawless
 
 ## Related Posts
 
-- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
-- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
 - [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
 - [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
 - [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
-- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
-- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
-- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
-- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
 - [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
+- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
+- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
+- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
+- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
+- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
+- [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
 - [7 Must Haves for Your Perfect HD Makeup ...](https://allwomenstalk.com/7-must-haves-for-your-perfect-hd-makeup/)
 - [7 Makeup Tools You Must Have to do Your Makeup lik...](https://allwomenstalk.com/7-makeup-tools-you-must-have-to-do-your-makeup-like-a-pro/)
 

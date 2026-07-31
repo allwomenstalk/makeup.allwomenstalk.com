@@ -54,16 +54,16 @@ Away with the boring old smokey eyes of the past, and welcome to these fun new l
 
 ## Related Posts
 
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
-- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
-- [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
-- [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
-- [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
 - [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
-- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
+- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
+- [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
+- [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
 - [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
+- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
 - [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
 - [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [Top 10 Smoky Eyes on Celebrities ...](https://allwomenstalk.com/top-10-smoky-eyes-on-celebrities/)
 - [7 Best Smokey Eye Videos ...](https://allwomenstalk.com/7-best-smokey-eye-videos/)
 

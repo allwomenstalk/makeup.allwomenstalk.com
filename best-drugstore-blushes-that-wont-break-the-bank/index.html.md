@@ -66,16 +66,16 @@ What’s your favorite drugstore blush? Have you tried any on this list? If not,
 
 ## Related Posts
 
-- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
-- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
-- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
 - [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
-- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
+- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
 - [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
+- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
 - [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
-- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
+- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
+- [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
 - [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
+- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
 - [My Top 5 Blushes ...](https://allwomenstalk.com/my-top-5-blushes/)
 - [7 Best Blushes - Expert Reviews ...](https://allwomenstalk.com/7-best-blushes-expert-reviews/)
 

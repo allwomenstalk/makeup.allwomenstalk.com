@@ -54,16 +54,16 @@ I am a firm believer that every one should use purple in their beauty routine. I
 
 ## Related Posts
 
-- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
-- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
-- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
-- [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
-- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
-- [diorshow blackout mascara discontinued](https://makeup.allwomenstalk.com/awesome-mascaras-to-test-out-now/)
 - [how to become a cerave ambassador](https://beauty.allwomenstalk.com/drugstore-beauty-products-recommended-by-celebrities/)
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
+- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
+- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
+- [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
 - [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
 - [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
+- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
+- [diorshow blackout mascara discontinued](https://makeup.allwomenstalk.com/awesome-mascaras-to-test-out-now/)
+- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

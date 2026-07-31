@@ -68,16 +68,16 @@ Do you suffer from dark lip color fails or do you avoid dark shades?
 
 ## Related Posts
 
-- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
-- [Check out the Marble Lip Trend Instagrammers Can't...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
-- [The Best Red Lipsticks of 2017 to Rock Next Year ....](https://makeup.allwomenstalk.com/the-best-red-lipsticks/)
-- [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
 - [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
+- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
+- [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
+- [The Best Red Lipsticks of 2017 to Rock Next Year ....](https://makeup.allwomenstalk.com/the-best-red-lipsticks/)
 - [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
 - [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
-- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
 - [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
 - [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
+- [Check out the Marble Lip Trend Instagrammers Can't...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
 - [My Top 5 Lip Glosses ...](https://allwomenstalk.com/my-top-5-lip-glosses/)
 - [All about the Lip Stains](https://allwomenstalk.com/all-about-the-lip-stains/)
 

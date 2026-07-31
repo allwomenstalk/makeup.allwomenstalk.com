@@ -56,16 +56,16 @@ These are some tips about the best order of makeup application. Do you need to m
 
 ## Related Posts
 
-- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
 - [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
-- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
-- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
-- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
-- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
-- [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
 - [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
 - [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
+- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
+- [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
 - [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
+- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
+- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
+- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
+- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [7 Tips for Applying Pink Blush the Right Way ...](https://makeup.allwomenstalk.com/tips-for-applying-pink-blush-the-right-way/)
 

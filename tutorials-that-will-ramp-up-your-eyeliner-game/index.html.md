@@ -120,15 +120,15 @@ There's an art to eyeliner. Some of us stick to the same style because we can ju
 
 ## Related Posts
 
-- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
+- [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
+- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
+- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
+- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
+- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
 - [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
 - [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
-- [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
-- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
-- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
-- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
 - [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [Top 17 Easy Eyeliner Tricks You Should Know ...](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)

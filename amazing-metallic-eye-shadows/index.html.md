@@ -68,16 +68,16 @@ Eye shadow is one of the most important beauty products we use. It can really tr
 
 ## Related Posts
 
-- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
-- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
-- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
 - [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
-- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
 - [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
+- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
+- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [8 Gorgeous Sugarpill Eye Shadows ...](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 

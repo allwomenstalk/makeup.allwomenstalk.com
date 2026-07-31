@@ -88,16 +88,16 @@ To see more of Lexie's stunning makeup art, follow her on Instagram at @lexielaz
 
 ## Related Posts
 
-- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
-- [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
-- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
-- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
-- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
-- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
 - [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
+- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
+- [le eye primped and](https://makeup.allwomenstalk.com/smokey-eye-looks-that-dont-involve-black/)
+- [stylo shadow conquest](https://makeup.allwomenstalk.com/newest-makeup-tricks-most-girls-have-never-used-before/)
+- [eyeliner wing looks](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
+- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [eye color percentage](https://makeup.allwomenstalk.com/these-makeup-looks-were-made-for-ladies-with-hazel-eyes/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [Galaxy Makeup and Other Special Effects You've Got...](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
 

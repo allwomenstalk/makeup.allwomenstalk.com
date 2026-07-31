@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16684829)
 
 ## Related Posts
 
+- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
+- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
 - [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
 - [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
-- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
-- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
-- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
-- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
 - [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
-- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
+- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [My Top 5 Foundations ...](https://allwomenstalk.com/my-top-5-foundations/)
 

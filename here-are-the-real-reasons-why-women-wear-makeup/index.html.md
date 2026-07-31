@@ -116,16 +116,16 @@ However, there's usually only one real reason why women wear makeup – we do it
 
 ## Related Posts
 
-- [easy day makeup](https://makeup.allwomenstalk.com/the-4-minute-makeup-routine-for-low-maintenance-women/)
-- [taylor swift cat eyeliner](https://makeup.allwomenstalk.com/sexy-makeup-tutorials-taylor-swift-fans-will-love/)
-- [strong make up](https://makeup.allwomenstalk.com/how-to-correct-the-most-common-makeup-mistakes/)
-- [eyelash game](https://makeup.allwomenstalk.com/how-to-take-your-eyelash-game-to-the-next-level/)
 - [color le stylo smoky eye unforgettable](https://makeup.allwomenstalk.com/how-can-you-master-the-copper-makeup-look/)
-- [loreal paris riche le stylo smoky eye shadow alway...](https://makeup.allwomenstalk.com/you-have-to-try-these-gorgeous-smoky-eye-looks/)
-- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
-- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
-- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
+- [strong make up](https://makeup.allwomenstalk.com/how-to-correct-the-most-common-makeup-mistakes/)
 - [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
+- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
+- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
+- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
+- [taylor swift cat eyeliner](https://makeup.allwomenstalk.com/sexy-makeup-tutorials-taylor-swift-fans-will-love/)
+- [loreal paris riche le stylo smoky eye shadow alway...](https://makeup.allwomenstalk.com/you-have-to-try-these-gorgeous-smoky-eye-looks/)
+- [eyelash game](https://makeup.allwomenstalk.com/how-to-take-your-eyelash-game-to-the-next-level/)
+- [easy day makeup](https://makeup.allwomenstalk.com/the-4-minute-makeup-routine-for-low-maintenance-women/)
 - [20 Incredible Makeup and Beauty Tools Finally Expl...](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
 - [This is How Much Makeup You Actually Need for Girl...](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
 

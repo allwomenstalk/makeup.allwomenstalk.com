@@ -42,16 +42,16 @@ Have you ever tried tightlining? Do you have other tips to share?
 
 ## Related Posts
 
-- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
-- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
-- [how to figure out what foundation color you are](https://makeup.allwomenstalk.com/how-to-choose-the-right-foundation-for-your-face/)
-- [loreal stylo shadow a twist](https://makeup.allwomenstalk.com/makeup-101-types-of-eyeliner/)
-- [paris stylo smoky eye shadow hollywood icon](https://makeup.allwomenstalk.com/white-eyeliner-inspirations-that-you-can-copy-with-ease/)
-- [make up for the mistake](https://makeup.allwomenstalk.com/makeup-mistakes-you-need-to-stop-making-immediately/)
 - [emo girl eye makeup](https://makeup.allwomenstalk.com/rainbow-makeup-looks-thatll-brighten-up-your-face/)
 - [carnival makeup ideas](https://makeup.allwomenstalk.com/amazing-makeup-tutorials-fit-for-music-festivals/)
-- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
+- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
+- [how to figure out what foundation color you are](https://makeup.allwomenstalk.com/how-to-choose-the-right-foundation-for-your-face/)
 - [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
+- [make up for the mistake](https://makeup.allwomenstalk.com/makeup-mistakes-you-need-to-stop-making-immediately/)
+- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
+- [loreal stylo shadow a twist](https://makeup.allwomenstalk.com/makeup-101-types-of-eyeliner/)
+- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
+- [paris stylo smoky eye shadow hollywood icon](https://makeup.allwomenstalk.com/white-eyeliner-inspirations-that-you-can-copy-with-ease/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

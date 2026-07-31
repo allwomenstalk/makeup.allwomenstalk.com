@@ -77,16 +77,16 @@ These are just a few of my favorite eyeshadow palettes, there are tons of more t
 
 ## Related Posts
 
-- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
-- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
-- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
+- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
 - [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
+- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
 - [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
+- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
+- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
 - [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
 - [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
-- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
-- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [8 Gorgeous Sugarpill Eye Shadows ...](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 

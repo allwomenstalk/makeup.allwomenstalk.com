@@ -56,16 +56,16 @@ These are 7 of the many amazing products by E.L.F. Which ones are you planning t
 
 ## Related Posts
 
-- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
-- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
-- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
-- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
-- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
 - [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
 - [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
 - [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
+- [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
+- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 

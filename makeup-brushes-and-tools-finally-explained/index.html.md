@@ -80,14 +80,14 @@ So girls, there are all of my different makeup brushes, finally explained so tha
 
 ## Related Posts
 
-- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
-- [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
-- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
+- [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
 - [paris color eye primped](https://makeup.allwomenstalk.com/cute-eye-shadow-palettes/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
+- [elf blotting paper](https://makeup.allwomenstalk.com/emergency-makeup-products-to-have-in-your-purse/)
+- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
+- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
 - [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
 - [awsom beauty cream](https://beauty.allwomenstalk.com/awesome-websites-to-buy-beauty-products-from/)
 - [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)

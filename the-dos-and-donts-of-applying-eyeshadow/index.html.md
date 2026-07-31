@@ -18,16 +18,16 @@ Now you're makeup is going to look absolutely amazing! What other [dos and don't
 
 ## Related Posts
 
-- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
 - [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
+- [doing makeup in car](https://makeup.allwomenstalk.com/how-to-apply-makeup-in-a-moving-car/)
+- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
 - [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
 - [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
-- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
-- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
-- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
-- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
 - [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
+- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
+- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
 - [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
+- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [13 Note-Worthy Makeup Application Tips Everyone Sh...](https://makeup.allwomenstalk.com/note-worthy-makeup-application-tips-everyone-should-be-aware-of/)
 

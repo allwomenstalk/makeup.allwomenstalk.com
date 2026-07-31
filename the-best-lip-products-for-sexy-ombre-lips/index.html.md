@@ -62,16 +62,16 @@ With these products, you'll be able to create the sexiest ombre lips you've ever
 
 ## Related Posts
 
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
-- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
-- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
-- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
 - [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
-- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
+- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
+- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
+- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [10 Best Lipsticks for This Summer ...](https://allwomenstalk.com/10-best-lipsticks-for-this-summer/)
 

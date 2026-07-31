@@ -56,16 +56,16 @@ If you follow these tips, you'll end up with a flawless face full of makeup. Wha
 
 ## Related Posts
 
-- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
-- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
-- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
-- [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
 - [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
-- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
-- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
+- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
+- [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
+- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
 - [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
+- [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
+- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
+- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
+- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
 - [Beauty Tips from a Regular Girls Makeup Bag ...](https://allwomenstalk.com/beauty-tips-from-a-regular-girls-makeup-bag/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

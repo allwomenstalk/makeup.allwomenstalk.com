@@ -69,15 +69,15 @@ Makeup palettes are a great way to try out different products or use to touch-up
 ## Related Posts
 
 - [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
-- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [candy beauty shampoo](https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/)
+- [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
+- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
 - [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
 - [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
 - [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [9 Best Makeup Palettes to Start You off ...](https://makeup.allwomenstalk.com/best-makeup-palettes-to-start-you-off/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 

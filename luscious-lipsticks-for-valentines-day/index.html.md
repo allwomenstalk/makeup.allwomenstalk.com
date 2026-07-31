@@ -66,16 +66,16 @@ No matter if you choose purple, pink, or red for Valentine’s Day, you can’t 
 
 ## Related Posts
 
-- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
 - [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
-- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
-- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
-- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
-- [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
 - [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
 - [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
+- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
 - [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
+- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
+- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
+- [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
+- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
 - [8 Sexy, Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [9 Charmingly Sweet & Pleasantly Fabulous Flavored ...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 

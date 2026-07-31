@@ -102,16 +102,16 @@ Do you have a favorite blush you just can’t live without? I’m sure we’d al
 
 ## Related Posts
 
-- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
-- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
-- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
-- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
-- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
 - [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
-- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
+- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
+- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
+- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
+- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
 - [7 Best Blushes - Expert Reviews ...](https://allwomenstalk.com/7-best-blushes-expert-reviews/)
 - [12 Things to Have in Your Make-up Bag ...](https://allwomenstalk.com/12-things-to-have-in-your-make-up-bag/)
 

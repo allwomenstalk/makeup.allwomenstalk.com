@@ -42,16 +42,16 @@ These are just a few tips that will hopefully make the idea of wearing metallic 
 
 ## Related Posts
 
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
-- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
-- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
-- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
 - [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
+- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
 - [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
 - [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
+- [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

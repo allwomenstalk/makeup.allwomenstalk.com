@@ -56,16 +56,16 @@ So, what do you think of these make up trends for spring 2014? Will you be grabb
 
 ## Related Posts
 
-- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
-- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
-- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
-- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
-- [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
-- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
-- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
-- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
+- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
+- [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
+- [the workout digest](https://fitness.allwomenstalk.com/fitness-trends-for/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/spring-makeup-trends-that-every-woman-can-follow/)
+- [contrast in fashion](https://fashion.allwomenstalk.com/unexpected-fashion-week-trends-and-how-to-wear-them/)
+- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
+- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
+- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

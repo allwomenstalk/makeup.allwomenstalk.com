@@ -42,16 +42,16 @@ I hope my tips keep you from making eye makeup faux pas, every woman deserves to
 
 ## Related Posts
 
-- [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
-- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
-- [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
+- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
 - [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
+- [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
 - [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
+- [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
 - [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
 - [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
-- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 

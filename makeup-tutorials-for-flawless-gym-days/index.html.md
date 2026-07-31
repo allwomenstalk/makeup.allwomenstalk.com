@@ -42,16 +42,16 @@ If you're going to wear makeup to the gym, you might as well make yourself look 
 
 ## Related Posts
 
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
 - [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
+- [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
 - [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
 - [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
+- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
 - [too much makeup on a girl](https://makeup.allwomenstalk.com/how-much-makeup-do-you-really-need/)
+- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
 - [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
 - [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
-- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
-- [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
-- [makeup art eyes](https://makeup.allwomenstalk.com/this-is-why-eye-makeup-art-should-be-a-thing/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 

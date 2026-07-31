@@ -56,16 +56,16 @@ Have you ever tried a makeup setting spray? What other info can you share?
 
 ## Related Posts
 
-- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
-- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
-- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
 - [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
-- [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
 - [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
-- [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
-- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
-- [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
 - [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
+- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
+- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
+- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
+- [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
+- [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 

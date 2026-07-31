@@ -56,16 +56,16 @@ These are 7 tips to look mature in your makeup choices for your interview. Which
 
 ## Related Posts
 
-- [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
-- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
-- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
-- [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
-- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
-- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [how to be more outwardly beautiful cosmopolitan](https://makeup.allwomenstalk.com/cosmos-best-beauty-hacks/)
+- [eyelash extensions picture](https://beauty.allwomenstalk.com/everything-you-need-to-know-about-eyelash-extensions/)
+- [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
+- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
+- [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
 - [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
 - [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
+- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
+- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
+- [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
 - [12 Top Makeup Tips for Work ...](https://allwomenstalk.com/12-top-makeup-tips-for-work/)
 - [8 Makeup Tricks for Teenage Girls ...](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
 

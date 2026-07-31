@@ -116,16 +116,16 @@ You don't have to like the Kardashians in order to steal their style tips. What'
 
 ## Related Posts
 
-- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
-- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
 - [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
-- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
-- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
 - [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
-- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
-- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
+- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
 - [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
 - [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
+- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
+- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
+- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
+- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 

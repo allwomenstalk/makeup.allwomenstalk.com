@@ -92,16 +92,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
+- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
+- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
+- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
 - [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
-- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
-- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
 - [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
-- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [11 Makeup Tricks for Pale Skin ...](https://makeup.allwomenstalk.com/makeup-tricks-for-pale-skin/)
 

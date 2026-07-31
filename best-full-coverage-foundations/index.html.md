@@ -68,16 +68,16 @@ Rimmel's Stay Matte foundation is high coverage, long-lasting, and oil-free, wit
 
 ## Related Posts
 
-- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
 - [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
 - [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [7 Unbelievably Stellar Tips on How to Apply Founda...](https://makeup.allwomenstalk.com/unbelievably-stellar-tips-on-how-to-apply-foundation/)
 - [7 Mineral -Based Foundations to Try ...](https://makeup.allwomenstalk.com/mineral-based-foundations-to-try/)
 

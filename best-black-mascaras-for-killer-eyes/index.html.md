@@ -70,16 +70,16 @@ If you’re still on the hunt for the best mascara out there, try some of these 
 
 ## Related Posts
 
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
-- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
-- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
-- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
-- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
 - [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
-- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
+- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
+- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
+- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
 - [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
 - [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
+- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Best Mascaras under $10.00 ...](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 

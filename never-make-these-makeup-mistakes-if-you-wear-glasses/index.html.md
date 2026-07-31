@@ -74,16 +74,16 @@ These tips can help you avoid makeup mistakes when you wear glasses. What do you
 
 ## Related Posts
 
-- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
 - [what cancels purple](https://makeup.allwomenstalk.com/what-should-you-know-about-color-correcting-makeup/)
-- [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
-- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
-- [strong make up](https://makeup.allwomenstalk.com/how-to-correct-the-most-common-makeup-mistakes/)
+- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
 - [which country wears the least makeup](https://makeup.allwomenstalk.com/here-are-the-real-reasons-why-women-wear-makeup/)
+- [body makeuo](https://makeup.allwomenstalk.com/body-makeup-thatll-hide-all-of-your-skin-sins/)
+- [strong make up](https://makeup.allwomenstalk.com/how-to-correct-the-most-common-makeup-mistakes/)
+- [eyelash game](https://makeup.allwomenstalk.com/how-to-take-your-eyelash-game-to-the-next-level/)
 - [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
 - [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
-- [body makeuo](https://makeup.allwomenstalk.com/body-makeup-thatll-hide-all-of-your-skin-sins/)
-- [eyelash game](https://makeup.allwomenstalk.com/how-to-take-your-eyelash-game-to-the-next-level/)
+- [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
+- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
 - [7 Makeup Tips for Those Who Wear Glasses ...](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 

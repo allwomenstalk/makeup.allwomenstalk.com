@@ -50,16 +50,16 @@ I haven’t tried all of these makeup lines yet, but they all appear to each hav
 
 ## Related Posts
 
+- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
+- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
+- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
+- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
+- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
+- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
 - [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
 - [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
-- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
-- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
-- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
-- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
-- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
-- [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
-- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

@@ -146,16 +146,16 @@ Get it here: [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
-- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
+- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
+- [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
 - [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
 - [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
 - [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Makeup Products That Will Get You an Even Skin T...](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
 

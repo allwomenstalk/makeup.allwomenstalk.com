@@ -48,16 +48,16 @@ Top Image Source: [delskooo.deviantart.com](https://www.deviantart.com/delskooo/
 
 ## Related Posts
 
-- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
+- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
+- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
+- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
+- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
+- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
 - [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
 - [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
-- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
-- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
 - [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
-- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
-- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
-- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
-- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [8 Make up Tricks for Autumn ...](https://makeup.allwomenstalk.com/make-up-tricks-for-autumn/)
 

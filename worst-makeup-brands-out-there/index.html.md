@@ -82,16 +82,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
 - [candy beauty shampoo](https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
-- [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
-- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
-- [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
-- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
 - [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
+- [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
+- [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
+- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
+- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
+- [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [10 Best Beauty Websites out There ...](https://allwomenstalk.com/top-10-best-beauty-websites-out-there/)
 - [11 Best Fake Eyelashes ...](https://allwomenstalk.com/6-best-fake-eyelashes/)
 

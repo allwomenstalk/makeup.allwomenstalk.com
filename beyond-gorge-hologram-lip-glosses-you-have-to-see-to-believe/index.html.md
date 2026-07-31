@@ -51,16 +51,16 @@ Aren't these lip glosses amazing? I am just dying over here and need to have the
 
 ## Related Posts
 
-- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
-- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
-- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
-- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
 - [mac a girl's got needs lipstick](https://makeup.allwomenstalk.com/mac-lipstick-dupes-for-girls-who-want-to-look-fab-while-on-a-budget/)
-- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
+- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
 - [seductive lips](https://makeup.allwomenstalk.com/sensational-things-to-do-for-ladies-who-want-beautiful-and-seductive-lips/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
+- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
+- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
 - [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
+- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
 - [7 Fruity Lip Glosses from Philosophy ...](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
 - [REVIEW: Estee Lauder High Gloss ...](https://allwomenstalk.com/review-estee-lauder-high-gloss-2/)
 

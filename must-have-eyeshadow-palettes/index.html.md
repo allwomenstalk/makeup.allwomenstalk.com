@@ -56,16 +56,16 @@ Eyeshadow palettes are the heart and soul of any makeup collection. With the rig
 
 ## Related Posts
 
-- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
-- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
-- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
-- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
-- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
-- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
 - [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
 - [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
+- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
+- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
+- [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
+- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)
 

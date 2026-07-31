@@ -285,16 +285,16 @@ I'm sure you're now tempted to buy one of these makeup brush sets for yourself, 
 
 ## Related Posts
 
-- [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
+- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
 - [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
-- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
+- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
 - [shaina and kathy had a fight and haven't talked fo...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
 - [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
 - [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
 - [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
-- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
-- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
+- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
 - [7 Makeup Brush Sets under $50 ...](https://makeup.allwomenstalk.com/makeup-brush-sets-under-50/)
 - [7 Useful Brush Sets ...](https://makeup.allwomenstalk.com/useful-brush-sets/)
 

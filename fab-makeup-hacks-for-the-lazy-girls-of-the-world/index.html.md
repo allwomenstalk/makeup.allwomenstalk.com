@@ -43,15 +43,15 @@ Read on to see the best makeup hacks all lazy girls of the world (well, actually
 ## Related Posts
 
 - [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
+- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
+- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
+- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
 - [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
 - [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
-- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
-- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

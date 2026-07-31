@@ -56,16 +56,16 @@ I’ve always loved black eyeliner and can’t wait to try out some of these new
 
 ## Related Posts
 
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
+- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
 - [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
-- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
 - [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
-- [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
+- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
 - [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
+- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
 - [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
 - [girls who wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-wear-glasses/)
-- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
-- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
+- [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
 - [7 Liquid Eyeliners ...](https://makeup.allwomenstalk.com/liquid-eyeliners/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 

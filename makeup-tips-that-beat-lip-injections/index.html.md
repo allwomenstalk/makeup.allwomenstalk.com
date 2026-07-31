@@ -116,16 +116,16 @@ Now you won't have to head to the doctor for lip injections! What other makeup t
 
 ## Related Posts
 
-- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
-- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
-- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
-- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
-- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
+- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
 - [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
-- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
+- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
+- [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
+- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
+- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
+- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

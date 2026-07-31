@@ -46,16 +46,16 @@ So girls, you asked for it and we delivered! These are my top eye makeup tips th
 
 ## Related Posts
 
-- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
-- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
-- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
-- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
-- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 - [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
-- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
-- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
 - [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
 - [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
+- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
+- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
+- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
+- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
+- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

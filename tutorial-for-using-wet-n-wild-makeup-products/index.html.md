@@ -27,16 +27,16 @@ I hope you like this tutorial for Wet n Wild! What have you learned?
 
 ## Related Posts
 
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
+- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
 - [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
 - [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
-- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
-- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
 - [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
 - [How to Apply Mineral Makeup - Your Ultimate Guide!](https://allwomenstalk.com/how-to-apply-mineral-makeup-your-ultimate-guide/)
 - [7 Makeup Tutorials You Must Watch ...](https://makeup.allwomenstalk.com/makeup-tutorials-you-must-watch/)
 

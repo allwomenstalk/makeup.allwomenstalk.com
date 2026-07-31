@@ -49,15 +49,15 @@ Makeup and beauty is just so much fun, isn’t it? Tumblr happens to be my inspi
 
 ## Related Posts
 
-- [decorating bloggers](https://lifestyle.allwomenstalk.com/great-interior-decorating-blogs/)
-- [miss budget beauty](https://beauty.allwomenstalk.com/fantastic-budget-beauty-blogs-to-follow/)
 - [kandee johnson house](https://beauty.allwomenstalk.com/fabulous-beauty-bloggers-to-get-inspired-by/)
-- [models blogs](https://fashion.allwomenstalk.com/cool-model-blogs/)
-- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
 - [tumblr blogs to follow](https://lifestyle.allwomenstalk.com/tumblr-blogs-to-follow-to-brighten-your-day/)
-- [lisa lam bag patterns](https://diy.allwomenstalk.com/great-bag-making-blogs-you-must-read/)
+- [miss budget beauty](https://beauty.allwomenstalk.com/fantastic-budget-beauty-blogs-to-follow/)
+- [models blogs](https://fashion.allwomenstalk.com/cool-model-blogs/)
 - [butch style clothing](https://fashion.allwomenstalk.com/fabulous-fashion-blogs-for-lesbians/)
 - [affordable fashion blogs](https://fashion.allwomenstalk.com/best-bargain-fashion-blogs-to-check-out/)
+- [lisa lam bag patterns](https://diy.allwomenstalk.com/great-bag-making-blogs-you-must-read/)
+- [decorating bloggers](https://lifestyle.allwomenstalk.com/great-interior-decorating-blogs/)
+- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
 - [the fit blog](https://fitness.allwomenstalk.com/fabulous-fitness-blogs-to-follow-right-now/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)

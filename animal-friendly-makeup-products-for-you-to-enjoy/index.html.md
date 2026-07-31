@@ -66,16 +66,16 @@ The range of animal friendly makeup products out there is actually quite diverse
 
 ## Related Posts
 
-- [how to become a cerave ambassador](https://beauty.allwomenstalk.com/drugstore-beauty-products-recommended-by-celebrities/)
-- [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
-- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
-- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
-- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
-- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
-- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
-- [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
 - [vieve makeup](https://makeup.allwomenstalk.com/versatile-makeup-products-thatll-save-you-time/)
+- [paris riche le stylo smoky silver couture](https://makeup.allwomenstalk.com/pastel-eyeshadows-to-wear-this-spring/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
+- [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
+- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
+- [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
+- [loreal colorstay foundation](https://makeup.allwomenstalk.com/best-drugstore-liquid-foundations-that-are-fabulous/)
+- [how to become a cerave ambassador](https://beauty.allwomenstalk.com/drugstore-beauty-products-recommended-by-celebrities/)
+- [bobbi brown makeup ireland](https://makeup.allwomenstalk.com/of-bobbi-browns-best-makeup-products/)
+- [different blush colors](https://makeup.allwomenstalk.com/different-types-of-blush-you-need-to-try/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

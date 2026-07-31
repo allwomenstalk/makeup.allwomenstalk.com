@@ -56,16 +56,16 @@ All of these hot spring makeup trends are about having fun and standing out. Thi
 
 ## Related Posts
 
-- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
+- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
 - [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
-- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [spring fashion 2014](https://fashion.allwomenstalk.com/truly-fabulous-trends-for-spring/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
+- [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
 - [were combat boots popular in the 90s](https://fashion.allwomenstalk.com/90s-trends-that-need-to-make-a-comeback/)
-- [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
+- [hollywood trends](https://fashion.allwomenstalk.com/fashion-trends-inspired-by-hollywood-to-try-this-fall/)
 - [emitaz height](https://fashion.allwomenstalk.com/denim-trends-to-try-right-now/)
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

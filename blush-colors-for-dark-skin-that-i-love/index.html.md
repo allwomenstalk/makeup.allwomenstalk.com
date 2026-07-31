@@ -56,16 +56,16 @@ So girls, what other blushes for dark skin do you have? Any other colors to shar
 
 ## Related Posts
 
-- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
-- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
-- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
-- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
-- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
-- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
-- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
 - [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
+- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
+- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
 - [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
+- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
+- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
+- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
+- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [My Top 5 Blushes ...](https://allwomenstalk.com/my-top-5-blushes/)
 

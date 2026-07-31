@@ -92,16 +92,16 @@ Magical natural products! Do you think they are worth a try?
 
 ## Related Posts
 
-- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
+- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
 - [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
 - [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
-- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
 - [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
 - [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
-- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 
