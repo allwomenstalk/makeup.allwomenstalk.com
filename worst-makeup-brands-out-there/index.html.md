@@ -3,7 +3,7 @@ title: "11 Worst Makeup Brands out There ..."
 description: "Covergirl; NYC; Wet 'n' Wild; Rimmel London Foundations; E.L.F; More ..."
 url: "https://makeup.allwomenstalk.com/worst-makeup-brands-out-there/"
 category: "makeup"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
 # 11 Worst Makeup Brands out There ...
@@ -82,16 +82,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
+- [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
 - [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
+- [candy beauty shampoo](https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/)
+- [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
+- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
+- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
 - [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
 - [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
-- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
-- [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
-- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
-- [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
-- [candy beauty shampoo](https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/)
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
 - [10 Best Beauty Websites out There ...](https://allwomenstalk.com/top-10-best-beauty-websites-out-there/)
 - [11 Best Fake Eyelashes ...](https://allwomenstalk.com/6-best-fake-eyelashes/)
 
