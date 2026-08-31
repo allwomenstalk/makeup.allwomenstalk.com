@@ -71,16 +71,16 @@ What was your favourite look and will you be wearing any of these?
 
 ## Related Posts
 
-- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
-- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
-- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
 - [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
-- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
+- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
 - [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
-- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
+- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
+- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
+- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
 - [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
 - [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
-- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
+- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
 - [5 Fabulous Makeup Trends for Spring-Summer ...](https://allwomenstalk.com/fabulous-makeup-trends-for-spring-summer/)
 - [7 Make up Looks from New York Fashion Week ...](https://allwomenstalk.com/7-make-up-looks-from-new-york-fashion-week/)
 

@@ -54,16 +54,16 @@ If your makeup collection is in need of a little update or boost, look no furthe
 
 ## Related Posts
 
-- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
-- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
-- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
-- [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
-- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
-- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
-- [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
 - [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
+- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
+- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
+- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
+- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
+- [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
+- [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
+- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
 - [7 Makeup Must-Haves for Teen Girls ...](https://allwomenstalk.com/7-makeup-must-haves-for-teen-girls/)
 - [8 Products You Need in Your Makeup Bag ...](https://allwomenstalk.com/products-you-need-in-your-makeup-bag/)
 

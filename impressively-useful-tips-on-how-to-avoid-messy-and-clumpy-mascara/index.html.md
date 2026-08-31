@@ -44,14 +44,14 @@ Top image source: [weheartit.com](https://weheartit.com/entry/17483130)
 
 ## Related Posts
 
-- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
 - [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
+- [SUMMER 06 MAKEUP PODCAST . Strong Brows ...](https://allwomenstalk.com/summer-06-makeup-podcast-strong-brows/)
+- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
+- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
 - [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
 - [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
-- [SUMMER 06 MAKEUP PODCAST . Strong Brows ...](https://allwomenstalk.com/summer-06-makeup-podcast-strong-brows/)
 - [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
-- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
 - [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [top lid eyeliner](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 - [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)

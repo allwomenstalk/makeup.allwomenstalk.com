@@ -42,16 +42,16 @@ I love adding a bold or nude lip color to my daily make-up, depending on the loo
 
 ## Related Posts
 
-- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
-- [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
-- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
-- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
 - [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
-- [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
 - [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
-- [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
 - [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
+- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
+- [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
+- [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
+- [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
+- [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
+- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

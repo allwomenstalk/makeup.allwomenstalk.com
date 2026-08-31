@@ -56,16 +56,16 @@ Wearing dark lipstick does take some guts, but it’s well worth it! Sometimes, 
 
 ## Related Posts
 
-- [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
-- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
-- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
+- [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
 - [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
-- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
+- [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
 - [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
 - [chanel makeup spring 2014](https://makeup.allwomenstalk.com/lovely-lipsticks-for-spring/)
-- [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
+- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
 - [statement lips](https://makeup.allwomenstalk.com/tips-for-getting-this-seasons-statement-lips/)
+- [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
+- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
 - [7 Ways to Pull off Orange Lips ...](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 

@@ -47,16 +47,16 @@ $29.00 at [ulta.com](https://www.ulta.com/404.jsp)
 
 ## Related Posts
 
-- [10 TikTok-Loved Clean Beauty Brands to Add to Your...](https://beauty.allwomenstalk.com/tiktok-loved-clean-beauty-brands/)
-- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
-- [Best Holiday Beauty Gifts under $50 ...](https://beauty.allwomenstalk.com/best-holiday-beauty-gifts-under-50/)
-- [The Best Beauty Brands on Instagram 2018 ...](https://beauty.allwomenstalk.com/the-best-beauty-brands-on-instagram/)
 - [Top 4 beauty products to invest in this Christmas ...](https://allwomenstalk.com/top-beauty-products-to-invest-in-this-christmas/)
-- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
-- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
 - [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
+- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
+- [10 TikTok-Loved Clean Beauty Brands to Add to Your...](https://beauty.allwomenstalk.com/tiktok-loved-clean-beauty-brands/)
+- [The Best Beauty Brands on Instagram 2018 ...](https://beauty.allwomenstalk.com/the-best-beauty-brands-on-instagram/)
+- [Best Holiday Beauty Gifts under $50 ...](https://beauty.allwomenstalk.com/best-holiday-beauty-gifts-under-50/)
+- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
 - [Selling Beauty Products on Amazon? 5 Reasons PAYS ...](https://allwomenstalk.com/amazon-sellers-pays-insurance/)
 - [10 Mind-blowing Beauty Products to Try in 2018 ...](https://beauty.allwomenstalk.com/new-beauty-products-you-must-try/)
+- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
 - [My Top 5 Foundations ...](https://allwomenstalk.com/my-top-5-foundations/)
 - [5 Best Foundations for Winter Time ...](https://allwomenstalk.com/5-best-foundations-for-winter-time/)
 

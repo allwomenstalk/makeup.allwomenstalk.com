@@ -56,16 +56,16 @@ These’re 7 beauty products worth the hype. Which of them do you own? Which one
 
 ## Related Posts
 
-- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
-- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
-- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
-- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
-- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
-- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
 - [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
+- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
+- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
+- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
+- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
 - [what's baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
+- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

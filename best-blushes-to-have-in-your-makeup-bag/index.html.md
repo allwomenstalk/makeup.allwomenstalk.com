@@ -102,15 +102,15 @@ Do you have a favorite blush you just can’t live without? I’m sure we’d al
 
 ## Related Posts
 
-- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
 - [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
 - [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
-- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
 - [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
-- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
-- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
 - [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
+- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
 - [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [7 Best Blushes - Expert Reviews ...](https://allwomenstalk.com/7-best-blushes-expert-reviews/)
 - [12 Things to Have in Your Make-up Bag ...](https://allwomenstalk.com/12-things-to-have-in-your-make-up-bag/)

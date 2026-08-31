@@ -56,16 +56,16 @@ Beauty blenders are cheap and easy to use, but they can change your life. You'll
 
 ## Related Posts
 
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
-- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
-- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
-- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
-- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
+- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
 - [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
+- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
+- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
 - [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
 - [8 Easy Steps to Using Foundation for the First Tim...](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
 

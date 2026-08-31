@@ -42,16 +42,16 @@ Kylie Jenner plans to expand is projected to have a company worth a billion doll
 
 ## Related Posts
 
-- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
+- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
+- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
 - [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
 - [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
 - [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
 - [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
-- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
 - [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
-- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
+- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

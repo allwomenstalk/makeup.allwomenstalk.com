@@ -77,16 +77,16 @@ As you can see, there are so many great **makeup palettes** to start you off! No
 
 ## Related Posts
 
-- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
-- [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
-- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
-- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
-- [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
-- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
+- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
 - [paris stylo amber rush](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
 - [junkie look](https://beauty.allwomenstalk.com/delightfully-fantastic-gift-ideas-for-the-beauty-junkie/)
+- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
+- [all natural make up](https://makeup.allwomenstalk.com/best-organic-makeup-brands/)
+- [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
-- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
+- [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)
+- [6 Reasons to Use CDB Makeup Brushes ...](https://beauty.allwomenstalk.com/reasons-to-use-cdb-makeup-brushes/)
+- [riche le stylo smoky eye shadow pearly pink](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)
 

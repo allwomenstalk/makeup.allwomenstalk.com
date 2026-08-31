@@ -56,16 +56,16 @@ Have fun with this year's emerald trend by trying out emerald green makeup produ
 
 ## Related Posts
 
-- [gym beauty essentials](https://beauty.allwomenstalk.com/amazing-beauty-products-for-the-gym/)
 - [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
-- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
-- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
-- [best chrome eyeshadow](https://makeup.allwomenstalk.com/amazing-metallic-eye-shadows/)
-- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
 - [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
 - [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
+- [best chrome eyeshadow](https://makeup.allwomenstalk.com/amazing-metallic-eye-shadows/)
+- [gym beauty essentials](https://beauty.allwomenstalk.com/amazing-beauty-products-for-the-gym/)
+- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
+- [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 

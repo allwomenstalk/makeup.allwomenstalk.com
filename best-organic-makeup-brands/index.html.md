@@ -182,16 +182,16 @@ Price: $23.99 at [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
-- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
-- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
-- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [dior kiss lip gloss](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
+- [loreal color riche stylo smoky eye shadow with a t...](https://makeup.allwomenstalk.com/8-kinds-of-purple-cosmetics/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
-- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
 - [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
-- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
+- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
+- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
+- [cosmetics and accessories](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
+- [Giveaway Contest Winner: JUARA Glow on the Go Trav...](https://beauty.allwomenstalk.com/giveaway-contest-winner-juara-glow-on-the-go-travel-set/)
+- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 

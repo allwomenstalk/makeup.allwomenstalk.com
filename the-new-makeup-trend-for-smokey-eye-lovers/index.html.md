@@ -32,16 +32,16 @@ Do you like this trend, or will you never actually do what these women did?
 
 ## Related Posts
 
-- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
-- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
-- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
+- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
+- [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
+- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
 - [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
 - [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

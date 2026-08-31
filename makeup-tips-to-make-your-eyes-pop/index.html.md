@@ -34,16 +34,16 @@ Eyes are agreeably one of the most beautiful parts of the face, and well-decorat
 
 ## Related Posts
 
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
 - [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
-- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
-- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
-- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
 - [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
+- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
 - [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
 - [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
+- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [Eye Makeup Tips: 7 Ways to Play up Your Eyes ...](https://makeup.allwomenstalk.com/eye-makeup-tips-7-ways-to-play-up-your-eyes/)
 

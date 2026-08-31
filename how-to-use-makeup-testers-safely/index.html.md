@@ -44,16 +44,16 @@ If you’re ever in any doubt, ask the store assistant if there is something you
 
 ## Related Posts
 
-- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
-- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
-- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
-- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
-- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
-- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
 - [makeup nowadays](https://makeup.allwomenstalk.com/reasons-to-wear-less-makeup-today/)
+- [cute valentines makeup](https://makeup.allwomenstalk.com/perfect-valentines-day-makeup/)
+- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
+- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
+- [who makes wet and wild makeup](https://makeup.allwomenstalk.com/tutorial-for-using-wet-n-wild-makeup-products/)
+- [valentine's day makeup looks](https://makeup.allwomenstalk.com/classic-valentines-day-makeup/)
+- [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
 - [paris color le stylo smoky eye shadow eternal](https://makeup.allwomenstalk.com/makeup-tips-to-make-your-eyes-pop/)
+- [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [13 Note-Worthy Makeup Application Tips Everyone Sh...](https://makeup.allwomenstalk.com/note-worthy-makeup-application-tips-everyone-should-be-aware-of/)
 

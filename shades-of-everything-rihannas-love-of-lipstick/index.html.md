@@ -114,16 +114,16 @@ Rihanna is a true lipstick chameleon. Which of her colors do you like most?
 
 ## Related Posts
 
-- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
-- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
-- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
 - [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
 - [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
+- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
+- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [8 Sexy, Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 

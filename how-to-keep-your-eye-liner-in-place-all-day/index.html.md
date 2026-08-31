@@ -44,16 +44,16 @@ What other makeup tips do you have to keep your eye liner from smudging?
 
 ## Related Posts
 
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
 - [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
 - [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
-- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
-- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
 - [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
 - [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
+- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
+- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
 - [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
+- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 - [Beauty Hacks That'll Keep Your Makeup Where It Bel...](https://makeup.allwomenstalk.com/readerknows-beauty-hacks-thatll-keep-your-makeup-where-it-belongs/)
 

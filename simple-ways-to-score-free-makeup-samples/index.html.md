@@ -42,16 +42,16 @@ These’re 7 ways you can get free makeup samples. What makeup are you dying to 
 
 ## Related Posts
 
-- [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
+- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
+- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
+- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
 - [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
 - [loreal riche le stylo smoky bottomless](https://makeup.allwomenstalk.com/the-easiest-way-to-make-your-eyes-stand-out-that-you-probably-havent-tried-yet/)
-- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
 - [blondelashes ts](https://makeup.allwomenstalk.com/what-to-do-and-not-to-do-when-applying-your-eyeliner/)
-- [hijab with bindiya](https://makeup.allwomenstalk.com/gorgeousness-check-out-these-instagram-hijab-makeup-inspos/)
+- [colors that look good with dark brown hair](https://makeup.allwomenstalk.com/if-youre-a-brunette-these-makeup-colors-will-look-gorge-on-you/)
+- [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
 - [non surgical face contouring](https://makeup.allwomenstalk.com/slim-your-face-with-these-makeup-tricks/)
-- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
-- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
-- [girl face makeup](https://makeup.allwomenstalk.com/make-up-tips-for-a-slimmer-looking-face/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

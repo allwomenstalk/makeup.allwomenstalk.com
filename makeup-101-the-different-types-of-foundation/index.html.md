@@ -66,16 +66,16 @@ With so many different types of foundation to choose from, it can seem like pot 
 
 ## Related Posts
 
-- [ice on razor bumps](https://skincare.allwomenstalk.com/effective-ways-to-treat-razor-bumps/)
-- [makeup to cover sun spots](https://skincare.allwomenstalk.com/how-to-prevent-and-cover-up-unsightly-sunspots/)
-- [nibble earlobe](https://love.allwomenstalk.com/spots-on-his-body-you-shouldnt-ignore/)
-- [worst processed food for dry skin](https://skincare.allwomenstalk.com/how-to-make-your-skin-better-by-cutting-processed-foods/)
-- [acne treatment mt eliza](https://skincare.allwomenstalk.com/acne-treatments-that-actually-work/)
 - [how to make your skin paler](https://skincare.allwomenstalk.com/tips-for-brightening-up-your-pale-skin/)
-- [why does my face get oily fast](https://skincare.allwomenstalk.com/avoid-these-mistakes-if-you-have-oily-skin/)
-- [makeup for big pores](https://skincare.allwomenstalk.com/huge-pores-heres-how-to-deal-with-them/)
+- [nibble earlobe](https://love.allwomenstalk.com/spots-on-his-body-you-shouldnt-ignore/)
+- [ice on razor bumps](https://skincare.allwomenstalk.com/effective-ways-to-treat-razor-bumps/)
+- [acne treatment mt eliza](https://skincare.allwomenstalk.com/acne-treatments-that-actually-work/)
 - [premature aging of skin](https://skincare.allwomenstalk.com/how-to-prevent-premature-aging-of-your-skin/)
 - [acne hacks](https://skincare.allwomenstalk.com/acne-infographics-that-will-save-your-skin/)
+- [makeup for big pores](https://skincare.allwomenstalk.com/huge-pores-heres-how-to-deal-with-them/)
+- [worst processed food for dry skin](https://skincare.allwomenstalk.com/how-to-make-your-skin-better-by-cutting-processed-foods/)
+- [makeup to cover sun spots](https://skincare.allwomenstalk.com/how-to-prevent-and-cover-up-unsightly-sunspots/)
+- [why does my face get oily fast](https://skincare.allwomenstalk.com/avoid-these-mistakes-if-you-have-oily-skin/)
 - [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
 - [8 Tips to Identify Your Skin Type ...](https://skincare.allwomenstalk.com/tips-to-identify-your-skin-type/)
 

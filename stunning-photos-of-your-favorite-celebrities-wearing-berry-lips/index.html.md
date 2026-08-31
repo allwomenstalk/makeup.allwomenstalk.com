@@ -212,16 +212,16 @@ Berry lips can work with so many different skin tones, hair colors, and lip shap
 
 ## Related Posts
 
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
 - [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
+- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
 - [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
 - [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
-- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
-- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [8 Sexy, Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

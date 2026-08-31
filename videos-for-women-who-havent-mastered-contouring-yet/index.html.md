@@ -54,16 +54,16 @@ Have you ever tried contouring? Which of these videos helped you the most?
 
 ## Related Posts
 
-- [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
-- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
-- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
-- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
-- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
 - [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
 - [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
+- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
+- [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
+- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
+- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
+- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
+- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
 - [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
 - [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
-- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Prom Make up Tips ...](https://allwomenstalk.com/10-prom-make-up-tips/)
 

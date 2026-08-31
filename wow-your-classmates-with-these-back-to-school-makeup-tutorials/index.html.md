@@ -42,16 +42,16 @@ These are some great tutorials for back to school makeup. Which one is your favo
 
 ## Related Posts
 
-- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
-- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
 - [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
-- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
-- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
-- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
-- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
+- [color stylo eye shadow rush](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
 - [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
+- [how to convince your parents to let you wear makeu...](https://makeup.allwomenstalk.com/how-to-convince-your-parents-to-let-you-wear-makeup/)
+- [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
+- [natural date makeup](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
+- [fall look makeup](https://makeup.allwomenstalk.com/golden-makeup-looks-for-fall/)
 - [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
 - [paris stylo smoky eye shadow hollywood icon](https://makeup.allwomenstalk.com/white-eyeliner-inspirations-that-you-can-copy-with-ease/)
+- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
 - [8 Splendid Makeup Tricks to Follow for Pre-Teens ....](https://makeup.allwomenstalk.com/splendid-makeup-tricks-to-follow-for-pre-teens/)
 - [8 Awesome Vintage Makeup Tutorials ...](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
 

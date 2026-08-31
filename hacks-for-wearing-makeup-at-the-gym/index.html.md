@@ -48,16 +48,16 @@ Applying a very minimal amount of eyeliner is a good way to get the look without
 
 ## Related Posts
 
-- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
 - [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
-- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
-- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
-- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
 - [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
 - [bold makeup](https://makeup.allwomenstalk.com/how-to-go-bold-with-your-makeup-on-valentines-day/)
+- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [common makeup mistakes](https://makeup.allwomenstalk.com/most-common-makeup-mistakes-to-avoid/)
+- [makeup testers](https://makeup.allwomenstalk.com/how-to-use-makeup-testers-safely/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [loreal stylo hollywood icon](https://makeup.allwomenstalk.com/how-to-do-a-smoky-eye-for-valentines-day/)
+- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

@@ -188,16 +188,16 @@ So. Soothing.
 
 ## Related Posts
 
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
-- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
-- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
-- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [paris riche le infinite sky](https://makeup.allwomenstalk.com/fab-makeup-hacks-for-the-lazy-girls-of-the-world/)
 - [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
-- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
 - [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
+- [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
+- [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
+- [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
+- [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 

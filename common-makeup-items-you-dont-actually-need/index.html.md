@@ -42,16 +42,16 @@ I know we all of our favorite makeup items, but these are items you don't really
 
 ## Related Posts
 
-- [shaina and kathy had a fight and haven't talked fo...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
-- [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
-- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
-- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
 - [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
+- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
 - [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
+- [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
+- [shaina and kathy had a fight and haven't talked fo...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
+- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
 - [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
-- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Things You Have to Check in Your Make up Bag ...](https://allwomenstalk.com/7-things-you-have-to-check-in-your-make-up-bag/)
 

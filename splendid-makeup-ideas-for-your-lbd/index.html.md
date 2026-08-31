@@ -56,16 +56,16 @@ Your little black dress is always beautiful and always looks great, but why not 
 
 ## Related Posts
 
-- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
-- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
-- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
-- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
 - [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
 - [how to make your eyeliner not run](https://makeup.allwomenstalk.com/ways-to-keep-your-eyeliner-from-running/)
-- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [le smoky eye violet](https://makeup.allwomenstalk.com/smokey-eye-looks-with-flair/)
+- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
+- [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
+- [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
+- [natural makeup looks for pale skin](https://makeup.allwomenstalk.com/clever-makeup-ideas-for-medium-skin-tone/)
 - [paris riche le stylo golden emerald](https://makeup.allwomenstalk.com/eyeshadow-mistakes-to-avoid/)
+- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

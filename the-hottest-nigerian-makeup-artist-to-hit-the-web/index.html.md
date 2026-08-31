@@ -360,16 +360,16 @@ Wow! Nigerian makeup artist Teena is a wizard with wands and brushes. She's the 
 
 ## Related Posts
 
-- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
 - [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
 - [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
-- [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
-- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
-- [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
-- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
-- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
 - [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
+- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
 - [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
+- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
+- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
+- [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
+- [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 

@@ -56,16 +56,16 @@ So girls, there are all of my top oil-free makeup products, are there any other 
 
 ## Related Posts
 
-- [how to make hand mask](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
-- [best drugstore body wash for dry skin](https://skincare.allwomenstalk.com/top-notch-drugstore-body-washes/)
-- [sea salt exfoliator](https://skincare.allwomenstalk.com/recipes-for-homemade-sea-salt-scrubs/)
-- [best shaving cream to prevent razor bumps](https://beauty.allwomenstalk.com/best-shaving-creams-to-try/)
-- [elf acne calming water cream review](https://makeup.allwomenstalk.com/perfect-makeup-primers-for-acne-prone-skin/)
 - [oil absorbing sheets clean and clear](https://skincare.allwomenstalk.com/best-oil-blotting-sheets-to-combat-shiny-skin/)
-- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
-- [is baby oil safe for eye makeup remover](https://makeup.allwomenstalk.com/great-alternatives-to-makeup-remover/)
+- [best drugstore body wash for dry skin](https://skincare.allwomenstalk.com/top-notch-drugstore-body-washes/)
 - [essential oil beauty](https://skincare.allwomenstalk.com/excellent-essential-oils-for-beautiful-skin/)
 - [best moisture cream for face in winter](https://skincare.allwomenstalk.com/best-moisturizers-for-winter/)
+- [elf acne calming water cream review](https://makeup.allwomenstalk.com/perfect-makeup-primers-for-acne-prone-skin/)
+- [sea salt exfoliator](https://skincare.allwomenstalk.com/recipes-for-homemade-sea-salt-scrubs/)
+- [is baby oil safe for eye makeup remover](https://makeup.allwomenstalk.com/great-alternatives-to-makeup-remover/)
+- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
+- [how to make hand mask](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
+- [best shaving cream to prevent razor bumps](https://beauty.allwomenstalk.com/best-shaving-creams-to-try/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

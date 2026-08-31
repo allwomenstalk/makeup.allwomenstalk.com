@@ -56,16 +56,16 @@ It's fun to experiment with makeup, but you want your makeup to be flattering. M
 
 ## Related Posts
 
-- [can expired lipstick cause cold sores](https://makeup.allwomenstalk.com/signs-its-time-to-replace-your-make-up/)
-- [how to hide sunburn](https://makeup.allwomenstalk.com/marvelous-makeup-tips-to-cover-up-a-sunburn/)
-- [sea inspired makeup](https://makeup.allwomenstalk.com/unbelievably-pretty-mermaid-makeup-tutorials/)
-- [cute summer makeup](https://makeup.allwomenstalk.com/incredible-ideas-for-summer-makeup/)
-- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
-- [celebrity cheat list](https://makeup.allwomenstalk.com/makeup-cheats-to-make-you-look-like-an-a-list-celebrity/)
-- [mature womens makeup](https://makeup.allwomenstalk.com/makeup-mistakes-mature-women-make/)
 - [riche le stylo eye shadow garde azure](https://makeup.allwomenstalk.com/makeup-tricks-for-different-face-shapes/)
-- [brown blue makeup](https://makeup.allwomenstalk.com/different-ways-to-create-gorgeous-smokey-eyes/)
+- [celebrity cheat list](https://makeup.allwomenstalk.com/makeup-cheats-to-make-you-look-like-an-a-list-celebrity/)
+- [sea inspired makeup](https://makeup.allwomenstalk.com/unbelievably-pretty-mermaid-makeup-tutorials/)
 - [eye makeup male](https://makeup.allwomenstalk.com/male-makeup-artists-to-follow-on-instagram/)
+- [can expired lipstick cause cold sores](https://makeup.allwomenstalk.com/signs-its-time-to-replace-your-make-up/)
+- [mature womens makeup](https://makeup.allwomenstalk.com/makeup-mistakes-mature-women-make/)
+- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
+- [brown blue makeup](https://makeup.allwomenstalk.com/different-ways-to-create-gorgeous-smokey-eyes/)
+- [cute summer makeup](https://makeup.allwomenstalk.com/incredible-ideas-for-summer-makeup/)
+- [how to hide sunburn](https://makeup.allwomenstalk.com/marvelous-makeup-tips-to-cover-up-a-sunburn/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 - [8 Classic Make up Mistakes to Avoid ...](https://allwomenstalk.com/8-classic-make-up-mistakes-to-avoid/)
 

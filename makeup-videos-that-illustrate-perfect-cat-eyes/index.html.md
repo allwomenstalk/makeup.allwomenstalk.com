@@ -42,16 +42,16 @@ You'll never have to worry about creating cat eyes again if you follow these tip
 
 ## Related Posts
 
-- [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
+- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
 - [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
-- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
 - [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
-- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
+- [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
+- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Best Smokey Eye Videos ...](https://allwomenstalk.com/7-best-smokey-eye-videos/)
 

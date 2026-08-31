@@ -139,15 +139,15 @@ This lippie's so hot, it needs to be in your makeup stash for Valentine's Day.
 ## Related Posts
 
 - [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
+- [tarte lip exfoliant](https://skincare.allwomenstalk.com/smooth-your-lips-with-these-luxurious-treatments/)
+- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
 - [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
 - [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
+- [21 Lippies to Try if You're Mad about Matte ...](https://makeup.allwomenstalk.com/lippies-to-try-if-youre-mad-about-matte/)
 - [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
-- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
-- [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
 - [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
 - [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
-- [tarte lip exfoliant](https://skincare.allwomenstalk.com/smooth-your-lips-with-these-luxurious-treatments/)
-- [21 Lippies to Try if You're Mad about Matte ...](https://makeup.allwomenstalk.com/lippies-to-try-if-youre-mad-about-matte/)
+- [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
 - [8 Sexy, Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

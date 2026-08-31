@@ -54,16 +54,16 @@ There you have it ladies, my top 10 affordable makeup brands that I’ve tried a
 
 ## Related Posts
 
-- [different types of makeup brushes](https://beauty.allwomenstalk.com/makeup-brushes-every-lady-should-have/)
-- [7 Fun Fall Beauty Products That Contain Pumpkin .....](https://beauty.allwomenstalk.com/fun-fall-beauty-products-that-contain-pumpkin/)
 - [7 Must-Have Beauty Products to Always Keep at Your...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-always-keep-at-your-desk/)
-- [loreal paris stylo shadow infinite](https://beauty.allwomenstalk.com/beauty-bargains-to-pass-on/)
-- [cruelty free cosmetic companies](https://beauty.allwomenstalk.com/top-cruelty-free-cosmetics-companies/)
-- [7 Must-Have Beauty Products to Keep at Work ...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-keep-at-work/)
-- [top liquid eyeshadows](https://makeup.allwomenstalk.com/best-liquid-eyeshadows-to-try/)
 - [8 Man-approved Beauty Products to Share with Your ...](https://beauty.allwomenstalk.com/man-approved-beauty-products-to-share-with-your-guy/)
 - [paris eyeshadow mega palette blinged and brilliant](https://beauty.allwomenstalk.com/budget-back-to-school-beauty-essentials/)
+- [7 Fun Fall Beauty Products That Contain Pumpkin .....](https://beauty.allwomenstalk.com/fun-fall-beauty-products-that-contain-pumpkin/)
+- [7 Must-Have Beauty Products to Keep at Work ...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-keep-at-work/)
+- [top liquid eyeshadows](https://makeup.allwomenstalk.com/best-liquid-eyeshadows-to-try/)
 - [8 Cult Beauty Products Every Girl Must Own ...](https://beauty.allwomenstalk.com/cult-beauty-products-every-girl-must-own/)
+- [different types of makeup brushes](https://beauty.allwomenstalk.com/makeup-brushes-every-lady-should-have/)
+- [cruelty free cosmetic companies](https://beauty.allwomenstalk.com/top-cruelty-free-cosmetics-companies/)
+- [loreal paris stylo shadow infinite](https://beauty.allwomenstalk.com/beauty-bargains-to-pass-on/)
 - [63 Best Affordable Mascaras ...](https://allwomenstalk.com/63-affordable-mascaras-expert-reviews/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 

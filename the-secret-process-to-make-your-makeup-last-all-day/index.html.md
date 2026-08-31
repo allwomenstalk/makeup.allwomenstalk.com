@@ -32,16 +32,16 @@ Finish off with a good setting spray. This will lock all your layers of makeup t
 
 ## Related Posts
 
-- [makeup concealer tips](https://makeup.allwomenstalk.com/best-concealer-tips-to-know-if-you-want-your-makeup-on-point/)
-- [paris le stylo smoky eye shadow java](https://makeup.allwomenstalk.com/beautifully-bold-ways-to-make-a-statement-with-your-makeup/)
-- [good make up looks](https://makeup.allwomenstalk.com/reasons-your-makeup-never-looks-as-good-as-it-could/)
-- [paris color le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/whats-actually-in-your-makeup/)
-- [how to sell yourself as an artist](https://money.allwomenstalk.com/how-to-sell-yourself-as-a-makeup-artist/)
-- [how to cover freckles with makeup](https://makeup.allwomenstalk.com/how-to-wear-foundation-without-hiding-your-freckles/)
-- [mountain eyebrows shape](https://beauty.allwomenstalk.com/how-to-hack-your-eyebrow-shape/)
-- [makeup tutorial](https://makeup.allwomenstalk.com/mardi-gras-makeup-inspiration/)
 - [why do men hate makeup](https://makeup.allwomenstalk.com/read-me-to-discover-makeup-mistakes-men-hate/)
+- [good make up looks](https://makeup.allwomenstalk.com/reasons-your-makeup-never-looks-as-good-as-it-could/)
 - [riche le stylo smoky shadow bottomless](https://makeup.allwomenstalk.com/steps-to-the-perfect-no-makeup-makeup-look/)
+- [how to cover freckles with makeup](https://makeup.allwomenstalk.com/how-to-wear-foundation-without-hiding-your-freckles/)
+- [paris le stylo smoky eye shadow java](https://makeup.allwomenstalk.com/beautifully-bold-ways-to-make-a-statement-with-your-makeup/)
+- [how to sell yourself as an artist](https://money.allwomenstalk.com/how-to-sell-yourself-as-a-makeup-artist/)
+- [mountain eyebrows shape](https://beauty.allwomenstalk.com/how-to-hack-your-eyebrow-shape/)
+- [makeup concealer tips](https://makeup.allwomenstalk.com/best-concealer-tips-to-know-if-you-want-your-makeup-on-point/)
+- [makeup tutorial](https://makeup.allwomenstalk.com/mardi-gras-makeup-inspiration/)
+- [paris color le stylo smoky eye blinged brilliant](https://makeup.allwomenstalk.com/whats-actually-in-your-makeup/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [7 Simple Steps to Wake up Your Makeup in Less than...](https://beauty.allwomenstalk.com/simple-steps-to-wake-up-your-makeup-in-less-than-a-minute/)
 

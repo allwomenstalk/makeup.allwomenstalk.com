@@ -56,16 +56,16 @@ I hope you’ll consider these 7 ways to add grey into your beauty routine. I be
 
 ## Related Posts
 
-- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
-- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
-- [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
-- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
-- [color stylo bottomless](https://makeup.allwomenstalk.com/reasons-to-incorporate-color-into-your-makeup-routine/)
 - [loreal color le stylo smoky shadow primped and](https://makeup.allwomenstalk.com/eye-shadow-color-combinations-you-should-try-today/)
+- [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
 - [doable girl](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
-- [paris riche le smoky eye shadow eternal sunshine](https://makeup.allwomenstalk.com/ways-to-wear-bold-eye-shadow-this-season/)
-- [nocturnelle dress](https://makeup.allwomenstalk.com/makeup-no-nos-to-avoid-at-all-costs/)
+- [color stylo bottomless](https://makeup.allwomenstalk.com/reasons-to-incorporate-color-into-your-makeup-routine/)
 - [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
+- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
+- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
+- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
+- [nocturnelle dress](https://makeup.allwomenstalk.com/makeup-no-nos-to-avoid-at-all-costs/)
+- [paris riche le smoky eye shadow eternal sunshine](https://makeup.allwomenstalk.com/ways-to-wear-bold-eye-shadow-this-season/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 - [7 Colorful Makeup Trends to Try ...](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
 

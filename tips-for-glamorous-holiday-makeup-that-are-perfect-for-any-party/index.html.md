@@ -56,16 +56,16 @@ There are a lot of different ways to achieve glamorous holiday makeup. What do y
 
 ## Related Posts
 
-- [find the perfect mascara](https://makeup.allwomenstalk.com/tips-to-finding-the-right-mascara-for-you/)
-- [eyes makeup style](https://makeup.allwomenstalk.com/eye-makeup-tips-to-make-your-eyes-look-prettier/)
-- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
-- [overdo makeup](https://makeup.allwomenstalk.com/tips-to-make-your-makeup-look-better/)
-- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
-- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
-- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
-- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
 - [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [find the perfect mascara](https://makeup.allwomenstalk.com/tips-to-finding-the-right-mascara-for-you/)
+- [loreal riche stylo eye shadow eternal blue](https://makeup.allwomenstalk.com/extravagant-winter-makeup-looks-that-will-make-you-gasp/)
+- [overdo makeup](https://makeup.allwomenstalk.com/tips-to-make-your-makeup-look-better/)
+- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
+- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
+- [eyes makeup style](https://makeup.allwomenstalk.com/eye-makeup-tips-to-make-your-eyes-look-prettier/)
+- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
+- [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 - [7 Wonderful Tips for Dramatic Eye Makeup ...](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
 

@@ -56,16 +56,16 @@ So what’s the verdict – will you be trying any of these unique lipstick colo
 
 ## Related Posts
 
-- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
 - [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
-- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
-- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
-- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
 - [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
-- [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
-- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
-- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
 - [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
+- [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
+- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
+- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
+- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
+- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
+- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
+- [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 

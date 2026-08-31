@@ -42,16 +42,16 @@ Okay, ladies, so now that you have the scoop, ‘fess up -- have you ever made a
 
 ## Related Posts
 
-- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
 - [social issues teens](https://lifestyle.allwomenstalk.com/issues-teens-face-today/)
-- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
-- [penguins facts about love](https://love.allwomenstalk.com/love-lessons-from-penguins/)
-- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
 - [victorian etiquette for gentlemen](https://lifestyle.allwomenstalk.com/rules-of-victorian-etiquette-we-should-still-observe/)
-- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
+- [penguins facts about love](https://love.allwomenstalk.com/love-lessons-from-penguins/)
 - [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
-- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
+- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
+- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
 - [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
+- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
+- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
+- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 

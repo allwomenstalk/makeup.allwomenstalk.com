@@ -42,15 +42,15 @@ So girls, these are just a few beauty tips that I've learned when I was trying t
 
 ## Related Posts
 
-- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
-- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
+- [paris stylo smoky eye endless pearl](https://makeup.allwomenstalk.com/daring-ways-to-rock-the-cat-eye-look/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
-- [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
 - [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
+- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
+- [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
 - [natural makeup celebrity](https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/)
 - [how to make your eyelashes look long](https://makeup.allwomenstalk.com/ways-to-make-your-eyelashes-appear-longer/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [paris stylo smoky eye endless pearl](https://makeup.allwomenstalk.com/daring-ways-to-rock-the-cat-eye-look/)
+- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
 - [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)

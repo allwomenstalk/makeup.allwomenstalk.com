@@ -106,16 +106,16 @@ Makeup lovers, let's keep the list going! What are some of your greatest struggl
 
 ## Related Posts
 
-- [how to feel pretty without makeup](https://beauty.allwomenstalk.com/hacks-for-girls-who-want-to-look-good-without-makeup/)
 - [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
-- [nolay nose](https://makeup.allwomenstalk.com/beautiful-makeup-looks-for-girls-who-want-to-shake-up-their-beauty-routine/)
 - [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
-- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
 - [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
-- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
-- [can crying ruin lash extensions](https://beauty.allwomenstalk.com/habits-that-can-ruin-your-eyelashes/)
-- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
+- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
 - [tutorial how to apply mascara](https://makeup.allwomenstalk.com/tutorials-for-applying-mascara-for-girls-tired-of-fake-eyelashes/)
+- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
+- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
+- [how to feel pretty without makeup](https://beauty.allwomenstalk.com/hacks-for-girls-who-want-to-look-good-without-makeup/)
+- [can crying ruin lash extensions](https://beauty.allwomenstalk.com/habits-that-can-ruin-your-eyelashes/)
+- [nolay nose](https://makeup.allwomenstalk.com/beautiful-makeup-looks-for-girls-who-want-to-shake-up-their-beauty-routine/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

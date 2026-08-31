@@ -14,16 +14,16 @@ If you follow the tips in this video, you'll be camera ready! Then you'll get mo
 
 ## Related Posts
 
-- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
-- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
-- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
-- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
-- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
-- [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
 - [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
+- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
+- [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
+- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
+- [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
 - [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
+- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
+- [midnight blue eyes](https://makeup.allwomenstalk.com/the-best-eyeliner-shade-for-your-eye-color/)
+- [make up tips for beginners](https://makeup.allwomenstalk.com/makeup-tips-for-teen-beginners/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

@@ -42,16 +42,16 @@ So don't be daunted by eyelash curlers; invest in a good pair and give your eyes
 
 ## Related Posts
 
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [what's baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
-- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
-- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
 - [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
+- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
+- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
+- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [what's baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
+- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
 - [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
 - [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
-- [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
 - [7 Tips on Using an Eyelash Curler ...](https://allwomenstalk.com/7-tips-on-using-an-eyelash-curler/)
 - [8 Quirky Eyelash Extensions ...](https://allwomenstalk.com/quirky-eyelash-extensions/)
 

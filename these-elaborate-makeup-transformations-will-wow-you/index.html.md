@@ -82,16 +82,16 @@ Makeup truly does have the power to transform. It's an art form. What's the most
 
 ## Related Posts
 
-- [paris color riche stylo smoky eye neon](https://makeup.allwomenstalk.com/glitter-tears-are-the-hottest-new-makeup-trend/)
-- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
-- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
 - [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
+- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
 - [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
-- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
+- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
 - [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
-- [makeup hacks that actually work](https://makeup.allwomenstalk.com/weird-makeup-hacks-that-actually-work/)
-- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
 - [easy makeup tutorials](https://makeup.allwomenstalk.com/cheap-drugstore-makeup-tutorials-to-recreate/)
+- [paris color riche stylo smoky eye neon](https://makeup.allwomenstalk.com/glitter-tears-are-the-hottest-new-makeup-trend/)
+- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
+- [makeup hacks that actually work](https://makeup.allwomenstalk.com/weird-makeup-hacks-that-actually-work/)
+- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
 - [7 Mindblowing Make up Art Images ...](https://beauty.allwomenstalk.com/mindblowing-make-up-art-images/)
 - [9 Incredibly Dramatic Makeup Looks to Try ...](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
 

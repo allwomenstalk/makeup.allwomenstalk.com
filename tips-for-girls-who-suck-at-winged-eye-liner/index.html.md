@@ -74,16 +74,16 @@ Now you can rock winged eyeliner with the best of them. Go girl!
 
 ## Related Posts
 
-- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
-- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
-- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
-- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
 - [maquillage matte](https://makeup.allwomenstalk.com/these-matte-makeuplooks-are-perfect-for-oily-skinned-girls/)
 - [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
+- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
+- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
+- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
 - [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

@@ -56,16 +56,16 @@ Is wearing purple lipstick a big no-go for you and, if so, do you think these ti
 
 ## Related Posts
 
-- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
-- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
-- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
-- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
 - [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
-- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
-- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
-- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
+- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
 - [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
+- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
+- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
+- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
+- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
+- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

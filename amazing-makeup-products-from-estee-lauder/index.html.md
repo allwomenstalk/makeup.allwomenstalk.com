@@ -70,16 +70,16 @@ As a girl who adores makeup, I am always looking for great makeup products. The 
 
 ## Related Posts
 
-- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
 - [best drugstore pink blush](https://makeup.allwomenstalk.com/best-drugstore-blushes-for-fair-skin/)
-- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
-- [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
-- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
-- [best smudge proof mascara uk](https://makeup.allwomenstalk.com/of-the-best-flake-free-mascaras-to-try-on-the-market/)
-- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
-- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
-- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
 - [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
+- [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
+- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
+- [best smudge proof mascara uk](https://makeup.allwomenstalk.com/of-the-best-flake-free-mascaras-to-try-on-the-market/)
+- [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
+- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
+- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
+- [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
+- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [7 Liquid Eyeliners ...](https://makeup.allwomenstalk.com/liquid-eyeliners/)
 

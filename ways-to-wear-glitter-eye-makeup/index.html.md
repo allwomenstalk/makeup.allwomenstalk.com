@@ -37,16 +37,16 @@ _ Via ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀ _
 
 ## Related Posts
 
-- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
-- [what hides dark circles under eyes](https://makeup.allwomenstalk.com/ways-to-conceal-those-annoying-dark-circles/)
-- [edge makeup](https://makeup.allwomenstalk.com/use-these-easy-makeup-tips-to-edge-up-your-look-this-fall/)
-- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
-- [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
 - [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
-- [minion sminkning](https://makeup.allwomenstalk.com/makeup-artist-brings-animated-characters-to-life-on-her-face/)
 - [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
-- [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
 - [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
+- [minion sminkning](https://makeup.allwomenstalk.com/makeup-artist-brings-animated-characters-to-life-on-her-face/)
+- [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
+- [what hides dark circles under eyes](https://makeup.allwomenstalk.com/ways-to-conceal-those-annoying-dark-circles/)
+- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
+- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
+- [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
+- [edge makeup](https://makeup.allwomenstalk.com/use-these-easy-makeup-tips-to-edge-up-your-look-this-fall/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Gorgeous Ways to Wear Eye Shadow ...](https://allwomenstalk.com/7-gorgeous-ways-to-wear-eye-shadow/)
 

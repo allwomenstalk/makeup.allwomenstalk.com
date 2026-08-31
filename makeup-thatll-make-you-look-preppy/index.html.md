@@ -57,15 +57,15 @@ These’re 7 tips to help you have a preppy makeup look. What style of makeup is
 ## Related Posts
 
 - [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
 - [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
 - [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 

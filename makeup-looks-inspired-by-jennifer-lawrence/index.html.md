@@ -57,15 +57,15 @@ Which of Jennifer Lawrence’s makeup looks do you love best? Any tips for copyi
 ## Related Posts
 
 - [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
-- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
-- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
 - [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
-- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
+- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
 - [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
 - [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
+- [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Celebrities with the Best Makeup ...](https://allwomenstalk.com/8-celebrities-with-the-best-makeup/)
 

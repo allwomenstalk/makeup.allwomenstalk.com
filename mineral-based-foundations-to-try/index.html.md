@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16684829)
 
 ## Related Posts
 
+- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
+- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
+- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
 - [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
 - [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
 - [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
-- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
-- [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
-- [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
 - [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
-- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
-- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [My Top 5 Foundations ...](https://allwomenstalk.com/my-top-5-foundations/)
 

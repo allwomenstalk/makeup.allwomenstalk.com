@@ -42,16 +42,16 @@ Do you use lash primer? Go ahead and rave about it!
 
 ## Related Posts
 
-- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
-- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
-- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
-- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
-- [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
-- [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
-- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
 - [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
+- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
+- [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
+- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
+- [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
+- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
 - [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
+- [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
 - [False Eyelashes - "How to Apply" Video Lesson from...](https://allwomenstalk.com/false-eyelashes-how-to-apply-video/)
 - [How do You Organize Your Makeup?](https://allwomenstalk.com/how-do-you-organize-your-makeup/)
 

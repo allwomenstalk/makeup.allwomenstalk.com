@@ -44,16 +44,16 @@ Top Photo Credit: _C Pitblado_
 
 ## Related Posts
 
-- [lessons that should be taught in school](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
-- [life gets better with age](https://lifestyle.allwomenstalk.com/things-that-get-better-with-age/)
-- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
-- [10 Times You Don't Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
-- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
-- [loreal la maximalist eyeshadow primped previous](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
-- [8 Sobering but Simple Lessons in Life We Can Learn...](https://lifestyle.allwomenstalk.com/sobering-but-simple-lessons-in-life-we-can-learn-from-children/)
 - [myths love](https://love.allwomenstalk.com/popular-love-myths/)
 - [The "Wisdom" of Some People](https://allwomenstalk.com/the-wisdom-of-some-people/)
+- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
+- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
+- [8 Sobering but Simple Lessons in Life We Can Learn...](https://lifestyle.allwomenstalk.com/sobering-but-simple-lessons-in-life-we-can-learn-from-children/)
+- [loreal la maximalist eyeshadow primped previous](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
+- [10 Times You Don't Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
+- [life gets better with age](https://lifestyle.allwomenstalk.com/things-that-get-better-with-age/)
+- [lessons that should be taught in school](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [7 New Foundations You Should Try ...](https://allwomenstalk.com/7-new-foundations-you-should-try/)
 

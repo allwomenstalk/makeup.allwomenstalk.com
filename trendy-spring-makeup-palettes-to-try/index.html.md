@@ -63,15 +63,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2444610859932567
 
 ## Related Posts
 
-- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
-- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
-- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
-- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
-- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
 - [loreal riche stylo smoky garde](https://makeup.allwomenstalk.com/of-my-favorite-eyeshadow-palettes/)
-- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
-- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [smashbox so](https://makeup.allwomenstalk.com/top-smashbox-products-i-love/)
+- [urban decay eyeshadow palette list](https://makeup.allwomenstalk.com/top-urban-decay-products-i-love/)
 - [best bare minerals foundation](https://makeup.allwomenstalk.com/mineral-based-foundations-to-try/)
+- [mac skin balancing complex](https://makeup.allwomenstalk.com/top-mac-products-i-love/)
+- [basic makeup for teens](https://makeup.allwomenstalk.com/makeup-essentials-for-teenagers/)
+- [paris le stylo shadow lilac](https://makeup.allwomenstalk.com/must-have-eyeshadow-colors-for-spring/)
+- [eyeshadow primer it list](https://makeup.allwomenstalk.com/awesome-eyeshadow-primers-to-try/)
+- [can you wear liquid foundation by itself](https://makeup.allwomenstalk.com/best-liquid-foundations-youre-going-to-love/)
 - [best shampoo celebrities use](https://celebs.allwomenstalk.com/top-beauty-products-that-celebrities-actually-use/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [8 Colourful Makeup Palettes ...](https://allwomenstalk.com/8-colourful-makeup-palettes/)

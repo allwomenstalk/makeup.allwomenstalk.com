@@ -118,16 +118,16 @@ Which liquid liner tickled your fancy? Depending on what your eyeliner preferenc
 
 ## Related Posts
 
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
-- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
-- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
-- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
-- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
 - [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
+- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
+- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
 - [best liquid waterproof eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners-eye-liner-best-eyeliner-liquid-eyeliner/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
+- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
+- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
 - [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
-- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
 - [13 Best Eyeliners You Won't Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

@@ -66,15 +66,15 @@ Dupes: Covergirl Spellbound, Revlon Fuchsia Fusion, and Rimmel London Funtime fu
 
 ## Related Posts
 
-- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
-- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
-- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
-- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
-- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
-- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
+- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
+- [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
+- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
+- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
+- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
 - [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [9 Charmingly Sweet & Pleasantly Fabulous Flavored ...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)

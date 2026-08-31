@@ -56,16 +56,16 @@ Top Image Source: Gen Kay_
 
 ## Related Posts
 
-- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
-- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
-- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
-- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
 - [adam lambert eye makeup](https://makeup.allwomenstalk.com/cringe-worthy-makeup-trends-ever/)
-- [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
-- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
-- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
-- [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
+- [sheer makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-perfect-summer-makeup-look/)
+- [makeup hacks for oily skin](https://makeup.allwomenstalk.com/makeup-tricks-to-help-your-oily-face/)
 - [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
+- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
+- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
+- [hazel eyes blue eyeliner](https://makeup.allwomenstalk.com/makeup-colors-for-hazel-eyes/)
+- [pastel eyeshadow looks](https://makeup.allwomenstalk.com/gorgeous-ways-to-wear-pastel-makeup/)
+- [paris color stylo eye shadow garnet](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
+- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

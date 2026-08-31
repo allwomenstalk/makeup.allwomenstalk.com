@@ -56,16 +56,16 @@ What’s your go-to concealer tip? Will you try any of these?
 
 ## Related Posts
 
-- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
 - [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
-- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
-- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
 - [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
+- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [Foolproof Tips for Flawless Holiday Makeup ...](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
 - [Here's What a Concealer Kit Can do for Yo ...](https://makeup.allwomenstalk.com/heres-what-a-concealer-kit-can-do-for-yo/)
 

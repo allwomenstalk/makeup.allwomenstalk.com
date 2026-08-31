@@ -88,16 +88,16 @@ Top Image Source: [stylishly-delicieux.blogspot.in](http://stylishly-delicieux.b
 
 ## Related Posts
 
-- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
-- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
 - [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
 - [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
-- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
 - [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
+- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
 - [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
 - [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
+- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
 - [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
-- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
+- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
+- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 

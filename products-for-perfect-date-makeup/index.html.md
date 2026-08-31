@@ -47,16 +47,16 @@ $43.07 at [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
+- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
+- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
 - [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
 - [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [A Top 5 Makeup Picks ...](https://allwomenstalk.com/a-top-5-makeup-picks/)
 

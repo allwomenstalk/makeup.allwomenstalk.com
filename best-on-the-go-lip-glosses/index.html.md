@@ -46,16 +46,16 @@ What are some of your favorite lip glosses? I would love to try more!
 
 ## Related Posts
 
-- [how to perfect lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-apply-matte-lipstick/)
 - [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [pouty look](https://beauty.allwomenstalk.com/natural-ways-to-make-your-lips-look-fuller/)
-- [Drug Store Lashes - Rimmel ...](https://allwomenstalk.com/drug-store-lashes-rimmel/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [Not Loving the Fiberwig Mascara](https://allwomenstalk.com/not-loving-the-fiberwig-mascara/)
+- [lipstick name tattoo](https://inspiration.allwomenstalk.com/lip-tattoos/)
+- [Drug Store Lashes - Rimmel ...](https://allwomenstalk.com/drug-store-lashes-rimmel/)
+- [how to perfect lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-apply-matte-lipstick/)
+- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
 - [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
 - [quality lipstick](https://makeup.allwomenstalk.com/how-to-recognise-a-quality-lipstick/)
-- [lipstick name tattoo](https://inspiration.allwomenstalk.com/lip-tattoos/)
-- [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
 - [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
 - [9 Charmingly Sweet & Pleasantly Fabulous Flavored ...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 

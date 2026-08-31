@@ -42,16 +42,16 @@ Which one will you use first? What other tips can you share for blue-eyed girls?
 
 ## Related Posts
 
-- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
 - [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
-- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
-- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
 - [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
 - [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [summer make up looks](https://makeup.allwomenstalk.com/gorge-makeup-looks-you-want-to-try-this-summer/)
+- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
+- [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
+- [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

@@ -48,16 +48,16 @@ Top Image Source: [fashiongonerogue.com](https://goo.gl/Rch0mb)
 
 ## Related Posts
 
-- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
 - [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
+- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
+- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
 - [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
 - [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
-- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
-- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
-- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
 - [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
 - [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
-- [makeup for your eye shape](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-all-eye-shapes/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

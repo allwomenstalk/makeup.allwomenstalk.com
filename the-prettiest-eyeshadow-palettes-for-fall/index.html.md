@@ -56,16 +56,16 @@ These’re 7 palettes that’re perfect for fall. What palette are you wearing t
 
 ## Related Posts
 
-- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
-- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
-- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
 - [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
-- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
 - [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
+- [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
 - [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
+- [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
+- [ladies make up brushes](https://beauty.allwomenstalk.com/must-have-make-up-brushes-for-a-flawless-face/)
+- [cyber monday deals for women's clothing](https://money.allwomenstalk.com/the-best-cyber-monday-deals-on-makeup-and-clothing/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [5 Best Eyeshadows for Fall's Smoky Eye ...](https://allwomenstalk.com/smoky-fall-makeup-must-have-eye-shadows-for-this-fall/)
 

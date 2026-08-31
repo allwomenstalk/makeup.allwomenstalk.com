@@ -54,16 +54,16 @@ So before you panic that your makeup will never be the same again, try to track 
 
 ## Related Posts
 
-- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
-- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
-- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
 - [luminizers](https://makeup.allwomenstalk.com/toss-your-bronzer-and-use-these-luminizers-instead/)
 - [makeup brands expensive](https://makeup.allwomenstalk.com/drugstore-makeup-that-beat-the-expensive-brands/)
-- [brow fiber hue](https://makeup.allwomenstalk.com/keep-your-brows-on-fleek-with-these-products/)
 - [paris color riche le stylo smoky shadow azure](https://makeup.allwomenstalk.com/the-prettiest-eyeshadow-palettes-for-fall/)
-- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
 - [different eyelash curlers](https://makeup.allwomenstalk.com/the-different-types-of-eyelash-curlers-and-why-you-need-them/)
+- [drugstore cream contour stick](https://makeup.allwomenstalk.com/these-drugstore-makeup-products-make-contouring-a-breeze/)
 - [riche le smoky pearly pink](https://makeup.allwomenstalk.com/high-end-makeup-products-worth-the-hype/)
+- [pumpkin beauty products](https://beauty.allwomenstalk.com/pumpkin-beauty-products-to-get-you-through-fall/)
+- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
+- [dermablend at sephora](https://makeup.allwomenstalk.com/forget-your-face-the-top-body-makeup-products/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [4 Ways to Fix Your Broken Beauty Products!](https://allwomenstalk.com/ways-to-fix-your-broken-beauty-products/)
 

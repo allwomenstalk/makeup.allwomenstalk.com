@@ -131,16 +131,16 @@ This BB cream is so versatile! Sure, it hydrates, and protects your skin from th
 
 ## Related Posts
 
-- [damascus rose beauty balm](https://diy.allwomenstalk.com/rose-beauty-recipes-you-can-create-right-at-home/)
-- [retinol candid](https://skincare.allwomenstalk.com/improve-your-skin-by-purchasing-these-retinol-products/)
 - [things to put in bath](https://skincare.allwomenstalk.com/get-better-skin-by-bringing-these-things-into-your-bath/)
-- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
-- [prone girls](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-who-are-acne-prone/)
-- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
+- [retinol candid](https://skincare.allwomenstalk.com/improve-your-skin-by-purchasing-these-retinol-products/)
 - [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
-- [two ingredient face mask](https://skincare.allwomenstalk.com/two-ingredient-face-masks-you-can-make-right-at-home/)
-- [what are the best neck creams](https://skincare.allwomenstalk.com/the-best-neck-creams-for-girls-afraid-of-saggy-skin/)
+- [prone girls](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-who-are-acne-prone/)
+- [damascus rose beauty balm](https://diy.allwomenstalk.com/rose-beauty-recipes-you-can-create-right-at-home/)
 - [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
+- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
+- [two ingredient face mask](https://skincare.allwomenstalk.com/two-ingredient-face-masks-you-can-make-right-at-home/)
+- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
+- [what are the best neck creams](https://skincare.allwomenstalk.com/the-best-neck-creams-for-girls-afraid-of-saggy-skin/)
 - [Tinted Moisturizer for Desert Islands ...](https://allwomenstalk.com/tinted-moisturizer-for-desert-islands/)
 - [10 Best Skin Care Products for 20 Somethings ...](https://allwomenstalk.com/i-am-20-and-fabulous-best-skin-care-products-for-20-something-year-olds/)
 

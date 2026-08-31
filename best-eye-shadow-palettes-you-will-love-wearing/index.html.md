@@ -136,16 +136,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
-- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
+- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
+- [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
 - [loreal paris color stylo shadow blue](https://makeup.allwomenstalk.com/sapphire-blue-beauty-products-for-your-makeup-bag/)
+- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
 - [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
 - [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
-- [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
 - [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [tarte amazonian clay brow pencil](https://makeup.allwomenstalk.com/best-brow-products-everyone-is-raving-about/)
-- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
-- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Best Eyeshadows for Summer ...](https://allwomenstalk.com/10-best-eyeshadows-for-summer/)
 

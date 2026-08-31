@@ -48,16 +48,16 @@ Top Photo Source: _56fox.com_
 
 ## Related Posts
 
-- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
-- [makeup for fuller lips](https://makeup.allwomenstalk.com/makeup-secrets-to-make-your-lips-look-bigger/)
-- [what colour lipstick for yellow teeth](https://beauty.allwomenstalk.com/fantastic-lipsticks-to-make-your-teeth-look-whiter/)
 - [tips to keep lips pink](https://beauty.allwomenstalk.com/ways-to-keep-your-lips-naturally-pink/)
 - [wine lips makeup](https://makeup.allwomenstalk.com/tips-for-wearing-wine-coloured-lips/)
-- [blush shade for dark skin](https://makeup.allwomenstalk.com/blush-colors-for-dark-skin-that-i-love/)
-- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
 - [cool toned lip colors](https://makeup.allwomenstalk.com/tips-on-picking-the-perfect-lipstick-for-your-skin-tone/)
+- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
+- [blush shade for dark skin](https://makeup.allwomenstalk.com/blush-colors-for-dark-skin-that-i-love/)
 - [too faced sunday funday](https://makeup.allwomenstalk.com/best-nude-lipsticks/)
+- [what colour lipstick for yellow teeth](https://beauty.allwomenstalk.com/fantastic-lipsticks-to-make-your-teeth-look-whiter/)
 - [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
+- [makeup for fuller lips](https://makeup.allwomenstalk.com/makeup-secrets-to-make-your-lips-look-bigger/)
+- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

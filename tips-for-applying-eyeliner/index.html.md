@@ -56,16 +56,16 @@ I haven’t always worn eyeliner, but now that I have the method down I do it mo
 
 ## Related Posts
 
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
-- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
-- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
-- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
 - [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
-- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
+- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
 - [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
+- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
+- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
 - [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
 - [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
-- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

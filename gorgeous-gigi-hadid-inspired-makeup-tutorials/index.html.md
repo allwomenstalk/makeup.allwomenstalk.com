@@ -42,16 +42,16 @@ Gigi is gorgeous, so there's no one better to get makeup inspiration from than h
 
 ## Related Posts
 
-- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
 - [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
-- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
-- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
-- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
-- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
-- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
-- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
-- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
 - [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
+- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
+- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
+- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
+- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
+- [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
+- [eye shadow tip](https://makeup.allwomenstalk.com/follow-these-tips-for-showstopping-eye-shadow/)
+- [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
+- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [7 Makeup Tutorials You Must Watch ...](https://makeup.allwomenstalk.com/makeup-tutorials-you-must-watch/)
 

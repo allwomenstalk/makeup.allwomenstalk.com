@@ -40,16 +40,16 @@ It's up to you - should we change the course of cosmetic history?
 
 ## Related Posts
 
-- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
 - [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
 - [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
-- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
-- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
-- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
 - [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
+- [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
+- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
+- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [BEAUTY NEWS: Loreal, Almay, Coty, Kiehl's ...](https://allwomenstalk.com/beauty-news-loreal-almay-coty-kiehls/)
 

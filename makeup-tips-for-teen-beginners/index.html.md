@@ -116,16 +116,16 @@ Are you new to makeup? Have these tips helped you get started?
 
 ## Related Posts
 
-- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
-- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
-- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
-- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
-- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
-- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
-- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
 - [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
 - [adele's makeup](https://makeup.allwomenstalk.com/how-to-get-adeles-signature-makeup-look/)
+- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
+- [woman applying makeup](https://makeup.allwomenstalk.com/struggles-of-women-who-suck-at-applying-makeup/)
+- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
+- [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
+- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
+- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
+- [hooded eyes makeup tutorial](https://makeup.allwomenstalk.com/how-to-look-good-without-mascara/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

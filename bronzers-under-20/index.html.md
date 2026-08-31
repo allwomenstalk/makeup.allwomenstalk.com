@@ -82,16 +82,16 @@ Bronzers are prefect for achieving that holiday glow. Simply apply as you would 
 
 ## Related Posts
 
-- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
-- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
-- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
+- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
+- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
-- [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
-- [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
+- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
+- [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
-- [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
 - [7 Makeup Brush Sets under $50 ...](https://makeup.allwomenstalk.com/makeup-brush-sets-under-50/)
 - [9 Stylish Must-Haves under $100 ...](https://allwomenstalk.com/stylish-must-haves-under-100/)
 

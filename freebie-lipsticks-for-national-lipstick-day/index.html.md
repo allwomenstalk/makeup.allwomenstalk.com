@@ -40,16 +40,16 @@ This is just a selection of the deals for National Lipstick Day. Check out your 
 
 ## Related Posts
 
-- [sexyredd lipstick](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
-- [Augustinus Bader x Sofia Coppola Tinted Balm with ...](https://allwomenstalk.com/augustinus-bader-sofia-coppola-tinted-balm/)
-- [backstage mascara](https://allwomenstalk.com/diorshow-backstage-mascara-expert-review/)
-- [Video Tutorial for DIY Chocolate Lip Balm in 60 Se...](https://beauty.allwomenstalk.com/video-tutorial-for-diy-chocolate-lip-balm-in-seconds/)
-- [loreal paris riche le stylo smoky shadow blue spar...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [can i pull off red lipstick](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
-- [stylo smoky amber rush](https://makeup.allwomenstalk.com/the-most-popular-lipsticks-on-pinterest/)
+- [backstage mascara](https://allwomenstalk.com/diorshow-backstage-mascara-expert-review/)
+- [loreal paris riche le stylo smoky shadow blue spar...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [snow lavender and mint lip scrub exfoliator](https://beauty.allwomenstalk.com/lip-scrubs-for-luscious-lips/)
-- [Westman Atelier's Matte Lip Is The New Lipstick Yo...](https://beauty.allwomenstalk.com/westman-atelier-matte-lip-suede-review/)
+- [Augustinus Bader x Sofia Coppola Tinted Balm with ...](https://allwomenstalk.com/augustinus-bader-sofia-coppola-tinted-balm/)
 - [foundation looks grey around mouth](https://makeup.allwomenstalk.com/tips-for-perfect-nude-lips/)
+- [sexyredd lipstick](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
+- [Westman Atelier's Matte Lip Is The New Lipstick Yo...](https://beauty.allwomenstalk.com/westman-atelier-matte-lip-suede-review/)
+- [Video Tutorial for DIY Chocolate Lip Balm in 60 Se...](https://beauty.allwomenstalk.com/video-tutorial-for-diy-chocolate-lip-balm-in-seconds/)
+- [stylo smoky amber rush](https://makeup.allwomenstalk.com/the-most-popular-lipsticks-on-pinterest/)
 - [10 Best Lipsticks for This Summer ...](https://allwomenstalk.com/10-best-lipsticks-for-this-summer/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

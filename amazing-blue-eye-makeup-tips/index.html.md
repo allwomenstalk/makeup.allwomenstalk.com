@@ -54,16 +54,16 @@ There you have it ladies, my top 10 makeup tips for blue eyes! Just remember, wa
 
 ## Related Posts
 
-- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
-- [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
-- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
-- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
-- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
-- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
-- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
-- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
 - [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
 - [eyeliner round face](https://makeup.allwomenstalk.com/makeup-tips-for-a-round-face/)
+- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
+- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
+- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
+- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
+- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
+- [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
+- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
+- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

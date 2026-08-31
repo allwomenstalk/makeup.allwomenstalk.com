@@ -56,15 +56,15 @@ These are 7 great lip glosses for fair skin. Which ones are you excited to try? 
 
 ## Related Posts
 
-- [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
-- [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
-- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
-- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
+- [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
 - [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
+- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
+- [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
+- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
 - [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
 - [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
-- [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
 - [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
+- [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
 - [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
 - [My Top 5 Lip Glosses ...](https://allwomenstalk.com/my-top-5-lip-glosses/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)

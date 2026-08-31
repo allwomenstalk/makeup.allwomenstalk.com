@@ -46,16 +46,16 @@ Being in college in hard, but that doesn't mean that putting your makeup on has 
 
 ## Related Posts
 
-- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
-- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
-- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
-- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
 - [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
 - [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
-- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
+- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
 - [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
 - [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
+- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
+- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
 - [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
+- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
+- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Prom Make up Tips ...](https://allwomenstalk.com/10-prom-make-up-tips/)
 

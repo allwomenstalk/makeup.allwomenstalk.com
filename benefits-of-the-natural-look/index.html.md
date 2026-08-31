@@ -42,16 +42,16 @@ Make-up is fun to apply and looks fabulous, but you don't always have to wear it
 
 ## Related Posts
 
-- [dogestive enzymes](https://health.allwomenstalk.com/reasons-coconut-water-should-be-your-drink-of-choice/)
-- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
-- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
-- [castrol oil cooking](https://diy.allwomenstalk.com/uses-for-castor-oil-you-may-not-have-thought-of/)
-- [recipes with green tea](https://food.allwomenstalk.com/recipes-to-make-the-most-of-green-teas-health-giving-properties/)
-- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
 - [one glass a day keeps the doctor away](https://health.allwomenstalk.com/why-a-glass-of-wine-a-day-keeps-the-doctor-away/)
-- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
+- [dogestive enzymes](https://health.allwomenstalk.com/reasons-coconut-water-should-be-your-drink-of-choice/)
+- [castrol oil cooking](https://diy.allwomenstalk.com/uses-for-castor-oil-you-may-not-have-thought-of/)
+- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
 - [kohl rabbi](https://food.allwomenstalk.com/benefits-of-kohl-rabi/)
+- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
 - [carrot juice acne](https://food.allwomenstalk.com/health-tips-the-awesome-benefits-of-drinking-carrot-juice/)
+- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
+- [recipes with green tea](https://food.allwomenstalk.com/recipes-to-make-the-most-of-green-teas-health-giving-properties/)
+- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
 - [7 Places to Buy All-Natural Make-up ...](https://allwomenstalk.com/7-places-to-buy-all-natural-make-up/)
 - [7 Easy Ways to Make You Look Great ...](https://allwomenstalk.com/7-easy-ways-to-make-you-look-great/)
 

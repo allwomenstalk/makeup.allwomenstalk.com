@@ -52,16 +52,16 @@ These lipsticks for spring are a definite must-have this year. Each of these col
 
 ## Related Posts
 
-- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
-- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
-- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
+- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
+- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
 - [lancome natural beauty lipstick](https://makeup.allwomenstalk.com/foolproof-ways-to-lock-in-your-lipstick/)
 - [mint green lipstick](https://makeup.allwomenstalk.com/unique-lipstick-colors-would-you-wear-them/)
+- [best cheek stains](https://makeup.allwomenstalk.com/gorgeous-lip-and-cheek-stains-to-brighten-up-your-look/)
 - [loreal color riche le stylo blinged and brilliant](https://makeup.allwomenstalk.com/ways-to-wear-statement-lipstick-this-season/)
-- [best red gloss](https://makeup.allwomenstalk.com/pretty-red-lip-glosses-for-the-perfect-summer-pout/)
+- [lipstick for tan skin](https://makeup.allwomenstalk.com/tips-on-how-to-pick-the-right-shade-of-nude-lipstick-for-every-skin-shade/)
 - [best kissable lip balm](https://makeup.allwomenstalk.com/best-lip-balms-for-kissable-lips/)
-- [making homemade lip balm](https://diy.allwomenstalk.com/different-homemade-lip-balm-recipes/)
 - [to night lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-you-can-wear-day-or-night/)
+- [bright spring lipstick colors](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-from-the-spring-runways/)
 - [10 Prettiest Spring Lip Glosses ...](https://allwomenstalk.com/10-prettiest-spring-lip-glosses/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

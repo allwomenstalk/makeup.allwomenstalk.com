@@ -63,15 +63,15 @@ With these products, you'll be able to create the sexiest ombre lips you've ever
 ## Related Posts
 
 - [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
-- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
 - [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
+- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
 - [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
-- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [10 Best Lipsticks for This Summer ...](https://allwomenstalk.com/10-best-lipsticks-for-this-summer/)
 

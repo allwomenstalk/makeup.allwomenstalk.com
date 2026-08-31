@@ -156,16 +156,16 @@ Do you see a palette on this list that you want? What's your go-to shade?
 
 ## Related Posts
 
-- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
 - [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
-- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
 - [korean makeup brush set](https://makeup.allwomenstalk.com/makeup-brush-sets-anyone-would-love-to-receive-for-christmas/)
-- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
-- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
-- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
 - [frugalhacks](https://nails.allwomenstalk.com/nail-beauty-hacks-that-will-make-life-so-much-easier/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
+- [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
+- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
+- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
+- [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
+- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
 - [5 New Eyeshadow Palettes to Try ...](https://allwomenstalk.com/5-new-eyeshadow-palettes-to-try/)
 - [10 Very Useful Eye-shadow Palettes ...](https://allwomenstalk.com/10-very-useful-eye-shadow-palettes/)
 

@@ -56,16 +56,16 @@ What fall makeup tips can you add to this list?
 
 ## Related Posts
 
-- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
-- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
-- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
-- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
-- [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
 - [best tattoo cover up makeup](https://beauty.allwomenstalk.com/how-to-cover-up-your-tattoos-with-makeup/)
-- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
-- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
 - [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
+- [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
+- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
+- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
+- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
+- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
+- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
 - [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
+- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Amazing Makeup Must-Haves for Winter You Simply ...](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 

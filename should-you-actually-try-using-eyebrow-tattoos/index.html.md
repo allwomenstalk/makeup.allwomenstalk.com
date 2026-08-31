@@ -18,16 +18,16 @@ Now you have an alternative to filling in your eyebrows whenever you wake up in 
 
 ## Related Posts
 
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
 - [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
 - [hairsay](https://hair.allwomenstalk.com/porosity-test-what-does-your-hair-say-about-you/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [shaggy it wasnt me meme](https://lifestyle.allwomenstalk.com/are-you-guilty-of-these-white-and-not-so-white-lies/)
 - [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
-- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [10 Reasons to Thread Your Eyebrows at Eyebrow Salo...](https://allwomenstalk.com/reasons-to-thread-your-eyebrows/)
 - [5 Eyebrow Stamp Tips You've Got to Know for Brows ...](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
 

@@ -42,14 +42,14 @@ Do you wear red lipstick? It always gets smeared all over my kids when I wear it
 
 ## Related Posts
 
+- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
 - [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
-- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
 - [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
 - [claire danes makeup](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
-- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
 - [how often should i exfoliate my lips](https://skincare.allwomenstalk.com/yummy-things-you-can-use-to-exfoliate-your-lips/)
-- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
 - [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
+- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
+- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
 - [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
 - [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)

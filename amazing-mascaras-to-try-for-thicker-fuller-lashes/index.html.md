@@ -56,16 +56,16 @@ If you’re in the market for a new mascara to try, consider one of these 7 masc
 
 ## Related Posts
 
-- [mac 567 lipstick name](https://makeup.allwomenstalk.com/best-mac-lipsticks-youve-got-to-own/)
-- [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
-- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
-- [mac best red lipstick](https://makeup.allwomenstalk.com/best-red-lipsticks-you-simply-must-have/)
-- [fall red lipstick](https://makeup.allwomenstalk.com/gorgeous-drugstore-lipsticks-to-wear-this-fall/)
-- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
-- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
-- [moisturizing lipsticks](https://makeup.allwomenstalk.com/best-moisturizing-lipsticks-for-hydrated-and-beautiful-lips/)
 - [yes to carrots lip balm](https://makeup.allwomenstalk.com/prettiest-all-natural-lip-glosses-for-fall/)
+- [mac best red lipstick](https://makeup.allwomenstalk.com/best-red-lipsticks-you-simply-must-have/)
+- [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
 - [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
+- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
+- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
+- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
+- [mac 567 lipstick name](https://makeup.allwomenstalk.com/best-mac-lipsticks-youve-got-to-own/)
+- [fall red lipstick](https://makeup.allwomenstalk.com/gorgeous-drugstore-lipsticks-to-wear-this-fall/)
+- [moisturizing lipsticks](https://makeup.allwomenstalk.com/best-moisturizing-lipsticks-for-hydrated-and-beautiful-lips/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [8 Great Mascaras for Thin Lashes ...](https://allwomenstalk.com/8-great-mascaras-for-thin-lashes/)
 

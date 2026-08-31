@@ -16,16 +16,16 @@ You might as well try this trick! If it gets too messy, you can always wipe it a
 
 ## Related Posts
 
+- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
+- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
+- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
 - [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
-- [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
 - [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
-- [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
-- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
-- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [Makeup Lesson - Steal Katherine Heigl's Natural Lo...](https://allwomenstalk.com/makeup-lesson-steal-katherine-heigls-natural-look/)
 - [How to Master the Art of Putting on False Eyelashe...](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
 

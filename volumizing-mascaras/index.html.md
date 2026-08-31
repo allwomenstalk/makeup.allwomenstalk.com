@@ -64,16 +64,16 @@ I hope you enjoyed my list about **volumizing mascaras**! It's hard to find a go
 
 ## Related Posts
 
-- [REVIEW: Blissoma's Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
-- [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
-- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
-- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
-- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
 - [Beauty Soundbites \[ Lips \] ...](https://allwomenstalk.com/beauty-soundbites-lips/)
+- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
 - [estee lauder high gloss](https://allwomenstalk.com/review-estee-lauder-high-gloss-2/)
-- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
-- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
+- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
 - [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
+- [REVIEW: Blissoma's Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
+- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
+- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
+- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
+- [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Best Mascaras under $10.00 ...](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 

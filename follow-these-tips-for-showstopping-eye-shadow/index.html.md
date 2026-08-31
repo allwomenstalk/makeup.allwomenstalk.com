@@ -43,15 +43,15 @@ What are your best tips for putting on eye shadow?
 ## Related Posts
 
 - [glamor makeup looks](https://makeup.allwomenstalk.com/these-glamorous-makeup-tutorials-will-make-you-look-like-adele/)
-- [pretty grunge makeup](https://makeup.allwomenstalk.com/grunge-makeup-looks-that-any-girl-can-pull-off/)
-- [correcting makeup](https://makeup.allwomenstalk.com/color-correcting-makeup-thatll-hide-your-skin-sins/)
-- [easy makeup tutorials](https://makeup.allwomenstalk.com/cheap-drugstore-makeup-tutorials-to-recreate/)
-- [natural makeup for eyes](https://makeup.allwomenstalk.com/these-natural-makeup-looks-actually-look-natural/)
-- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
 - [le stylo smoky shadow and brilliant](https://beauty.allwomenstalk.com/how-to-make-your-eyes-look-big-and-beautiful/)
 - [paris color riche stylo smoky eye neon](https://makeup.allwomenstalk.com/glitter-tears-are-the-hottest-new-makeup-trend/)
+- [easy makeup tutorials](https://makeup.allwomenstalk.com/cheap-drugstore-makeup-tutorials-to-recreate/)
+- [correcting makeup](https://makeup.allwomenstalk.com/color-correcting-makeup-thatll-hide-your-skin-sins/)
+- [eyeline styles](https://makeup.allwomenstalk.com/these-eyeliner-styles-are-perfect-for-any-and-all-occasions/)
+- [natural makeup for eyes](https://makeup.allwomenstalk.com/these-natural-makeup-looks-actually-look-natural/)
 - [makeup hacks that actually work](https://makeup.allwomenstalk.com/weird-makeup-hacks-that-actually-work/)
 - [paris color stylo spark](https://makeup.allwomenstalk.com/you-can-put-a-spin-on-the-traditional-smoky-eye-with-these-tips/)
+- [pretty grunge makeup](https://makeup.allwomenstalk.com/grunge-makeup-looks-that-any-girl-can-pull-off/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

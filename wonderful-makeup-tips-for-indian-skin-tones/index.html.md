@@ -92,16 +92,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
-- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
 - [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
 - [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
-- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
-- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
 - [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
+- [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
+- [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
+- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
+- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [11 Makeup Tricks for Pale Skin ...](https://makeup.allwomenstalk.com/makeup-tricks-for-pale-skin/)
 

@@ -88,16 +88,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [eyeliner smears](https://makeup.allwomenstalk.com/ways-to-make-your-eyeliner-stay-longer/)
-- [makeup tips for diamond shaped face](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
-- [color riche le stylo eye unforgettable](https://makeup.allwomenstalk.com/clever-makeup-tips-on-how-to-make-your-eyes-look-bigger-instantly/)
+- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
+- [does baby oil remove makeup](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
+- [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
 - [shape your eyebrows](https://makeup.allwomenstalk.com/ways-to-perfectly-shape-your-eyebrows/)
 - [up face](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
+- [makeup tips for diamond shaped face](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
 - [makeup for young girls](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
+- [eyeliner smears](https://makeup.allwomenstalk.com/ways-to-make-your-eyeliner-stay-longer/)
 - [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
-- [does baby oil remove makeup](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
-- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
-- [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
+- [color riche le stylo eye unforgettable](https://makeup.allwomenstalk.com/clever-makeup-tips-on-how-to-make-your-eyes-look-bigger-instantly/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [10 Amazing Blue Eye Makeup Tips ...](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
 

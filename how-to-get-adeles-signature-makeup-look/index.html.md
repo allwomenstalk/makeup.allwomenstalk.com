@@ -16,16 +16,16 @@ That's all you have to do! Are you going to try to follow the advice given in th
 
 ## Related Posts
 
-- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
-- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
-- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
-- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
-- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
-- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
-- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
-- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
 - [how to set makeup with hairspray](https://makeup.allwomenstalk.com/everything-you-should-know-about-makeup-setting-spray/)
+- [amazing makeup tips](https://makeup.allwomenstalk.com/makeup-tips-from-the-kardashians/)
+- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
+- [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
+- [tweezing eyebrows](https://beauty.allwomenstalk.com/the-rules-for-tweezing-your-eyebrows/)
+- [smokey eye look with red lips](https://makeup.allwomenstalk.com/where-on-your-eye-should-you-apply-your-eye-makeup/)
+- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
 - [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [makeup for flawless skin](https://makeup.allwomenstalk.com/makeup-tricks-for-faking-flawless-skin/)
+- [great lashes](https://makeup.allwomenstalk.com/mascara-hack-all-girls-with-great-lashes-use/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: Steal Gisele Golden Look ...](https://allwomenstalk.com/beauty-tutorial-steal-gisele-golden-look/)
 

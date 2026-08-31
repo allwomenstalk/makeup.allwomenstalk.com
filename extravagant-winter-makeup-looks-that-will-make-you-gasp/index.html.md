@@ -68,16 +68,16 @@ There are plenty of winter makeup looks to choose from, even more than the ones 
 
 ## Related Posts
 
-- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
-- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
-- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
-- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
-- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
 - [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
-- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
-- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
 - [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
+- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
+- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
+- [maquillaje 7](https://makeup.allwomenstalk.com/secrets-to-long-lasting-makeup/)
+- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
+- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
+- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
 - [8 Amazing Makeup Must-Haves for Winter You Simply ...](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
 - [Top 7 Makeup Tricks for Winter ...](https://allwomenstalk.com/top-7-makeup-tricks-for-winter/)
 

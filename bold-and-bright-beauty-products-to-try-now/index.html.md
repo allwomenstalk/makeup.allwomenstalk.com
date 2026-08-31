@@ -56,16 +56,16 @@ I hope these bright beauty products have got you in the mood to add some color t
 
 ## Related Posts
 
-- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
-- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
-- [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
-- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
-- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
-- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
 - [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
+- [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
+- [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
+- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
+- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
+- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 

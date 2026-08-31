@@ -56,16 +56,16 @@ Alright ladies, I’ve shared my flake-free favorites with you, but do you have 
 
 ## Related Posts
 
-- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
-- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
-- [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
-- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
-- [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
-- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
-- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
-- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
 - [loreal stylo smoky eye shadow brilliant](https://makeup.allwomenstalk.com/alluring-winter-eyeshadow-colors-that-wont-break-the-bank/)
+- [best new beauty products of 2014](https://beauty.allwomenstalk.com/products-on-my-beauty-wish-list-for-that-you-may-want-to-add-to-your-own/)
+- [la maximalist eyeshadow blinged](https://makeup.allwomenstalk.com/makeup-tools-all-women-should-have-for-a-flawless-look/)
+- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
+- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
+- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
+- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
+- [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
 - [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
+- [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Best Mascaras under $10.00 ...](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 

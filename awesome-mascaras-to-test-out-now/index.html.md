@@ -56,16 +56,16 @@ What’s your favorite mascara? I’m always looking for new products to try out
 
 ## Related Posts
 
-- [feather eyelashes sephora](https://makeup.allwomenstalk.com/fun-pairs-of-false-lashes-youll-love-to-wear/)
-- [ped egg pink](https://beauty.allwomenstalk.com/egg-shaped-beauty-products-for-easter-and-spring/)
 - [overrated makeup brands](https://makeup.allwomenstalk.com/overrated-makeup-items-i-was-so-disappointed-with/)
+- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
+- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
+- [ped egg pink](https://beauty.allwomenstalk.com/egg-shaped-beauty-products-for-easter-and-spring/)
+- [feather eyelashes sephora](https://makeup.allwomenstalk.com/fun-pairs-of-false-lashes-youll-love-to-wear/)
 - [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
 - [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
-- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
-- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
-- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
 - [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
+- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
+- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 

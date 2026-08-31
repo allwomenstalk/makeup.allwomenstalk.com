@@ -52,16 +52,16 @@ Top Image Source: _iwritealot.com_
 
 ## Related Posts
 
-- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
+- [makeup color trends](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
+- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
 - [makeup during chemo](https://makeup.allwomenstalk.com/great-make-up-tips-for-ladies-undergoing-chemo/)
 - [does mascara make eyes look bigger](https://makeup.allwomenstalk.com/great-ways-to-make-your-eyes-look-bigger/)
-- [oval shape face makeup](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-oval-faces/)
 - [women hazel eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-for-hazel-eyes/)
-- [eyeshadows for brown skin](https://makeup.allwomenstalk.com/makeup-tips-for-olive-skin-tone/)
-- [makeup color trends](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
-- [cool eyeliner ideas](https://makeup.allwomenstalk.com/eyeliner-tips-for-teenagers/)
 - [mascara for fine short lashes](https://makeup.allwomenstalk.com/mascara-tips-for-short-eyelashes/)
 - [how to make yourself look younger with makeup](https://makeup.allwomenstalk.com/fabulous-makeup-tips-to-make-you-look-younger/)
+- [lady gaga eye liner](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
+- [oval shape face makeup](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-oval-faces/)
 - [12 Tips on How to Pluck Your Eyebrows ...](https://allwomenstalk.com/12-tips-on-how-to-pluck-your-eyebrows/)
 - [10 Beautiful Eyebrows Tips ...](https://allwomenstalk.com/beautiful-eyebrows-tips/)
 

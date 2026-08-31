@@ -152,16 +152,16 @@ Wear this alone, or layer it over another neutral shadow for a hint of shimmerin
 
 ## Related Posts
 
-- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
-- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
-- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
 - [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
-- [riche le stylo smoky shadow bronzed](https://makeup.allwomenstalk.com/embellish-your-eyes-with-these-shimmery-spring-shadows/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
+- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
 - [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
+- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
 - [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
 - [makeup storage](https://diy.allwomenstalk.com/makeup-storage-you-can-make-yourself/)
+- [riche le stylo smoky shadow bronzed](https://makeup.allwomenstalk.com/embellish-your-eyes-with-these-shimmery-spring-shadows/)
+- [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [12 Makeup Tricks for Gorgeous Blue Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-gorgeous-blue-eyes/)
 

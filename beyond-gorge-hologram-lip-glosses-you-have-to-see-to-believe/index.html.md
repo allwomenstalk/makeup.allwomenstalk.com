@@ -51,16 +51,16 @@ Aren't these lip glosses amazing? I am just dying over here and need to have the
 
 ## Related Posts
 
+- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
+- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
 - [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
-- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
 - [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
 - [seductive lips](https://makeup.allwomenstalk.com/sensational-things-to-do-for-ladies-who-want-beautiful-and-seductive-lips/)
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
-- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
-- [best waterproof mascara for swimming drugstore](https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/)
-- [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [mac a girl's got needs lipstick](https://makeup.allwomenstalk.com/mac-lipstick-dupes-for-girls-who-want-to-look-fab-while-on-a-budget/)
+- [drugstore blue red lipstick](https://makeup.allwomenstalk.com/the-best-red-lipsticks-to-give-you-the-sultry-look-you-desire/)
+- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
 - [7 Fruity Lip Glosses from Philosophy ...](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
 - [REVIEW: Estee Lauder High Gloss ...](https://allwomenstalk.com/review-estee-lauder-high-gloss-2/)
 

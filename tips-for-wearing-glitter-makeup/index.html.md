@@ -42,16 +42,16 @@ So now that I've shared these 7 tips for wearing glitter makeup, go ahead and tr
 
 ## Related Posts
 
-- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
-- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
-- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
 - [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
+- [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
+- [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
+- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
+- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
+- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
+- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
 - [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
 - [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
-- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
-- [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
-- [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
-- [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
+- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
 - [7 Makeup Tips for Those Who Wear Glasses ...](https://makeup.allwomenstalk.com/makeup-tips-for-those-who-wear-glasses/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

@@ -56,16 +56,16 @@ Do you have any tricks for making sure your lipstick stays on? You’re welcome 
 
 ## Related Posts
 
-- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
-- [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
-- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
-- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
-- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
 - [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
-- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
-- [pretty lips](https://skincare.allwomenstalk.com/tips-for-lovely-lips/)
+- [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
 - [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
+- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
+- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
+- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
+- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
 - [color le stylo smoky emerald conquest](https://makeup.allwomenstalk.com/reasons-to-love-matte-lipsticks/)
+- [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
+- [pretty lips](https://skincare.allwomenstalk.com/tips-for-lovely-lips/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

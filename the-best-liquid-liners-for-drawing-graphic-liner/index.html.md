@@ -150,16 +150,16 @@ Price: $31.00 at [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
+- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
 - [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
 - [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
-- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Best Water Proof Liquid Eyeliners That do Not Sm...](https://makeup.allwomenstalk.com/best-water-proof-liquid-eyeliners-that-do-not-smudge/)
 

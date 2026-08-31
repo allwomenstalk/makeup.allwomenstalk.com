@@ -138,16 +138,16 @@ What are some of your favorite looks to pull off at work? Let us know in the com
 
 ## Related Posts
 
-- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
-- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
-- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
-- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
-- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
-- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
-- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
 - [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
+- [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
+- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
+- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
 - [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
 - [best tattoo cover up makeup](https://beauty.allwomenstalk.com/how-to-cover-up-your-tattoos-with-makeup/)
+- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
+- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
+- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
+- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 - [12 Top Makeup Tips for Work ...](https://allwomenstalk.com/12-top-makeup-tips-for-work/)
 

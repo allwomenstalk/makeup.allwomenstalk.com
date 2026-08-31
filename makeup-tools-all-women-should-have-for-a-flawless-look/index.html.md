@@ -56,16 +56,16 @@ With the right tools it’s easy to achieve a flawless look. However, sometimes 
 
 ## Related Posts
 
-- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
-- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
-- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
-- [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
-- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
-- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
+- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
 - [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
+- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
+- [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
+- [eyebrow tint cvs](https://beauty.allwomenstalk.com/essential-products-for-groomed-eyebrows/)
+- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 - [7 Makeup Tools You Must Have to do Your Makeup lik...](https://allwomenstalk.com/7-makeup-tools-you-must-have-to-do-your-makeup-like-a-pro/)
 

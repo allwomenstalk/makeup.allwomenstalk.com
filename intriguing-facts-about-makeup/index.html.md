@@ -54,16 +54,16 @@ Sometimes it’s fun to learn about a different side of makeup. I think we have 
 
 ## Related Posts
 
-- [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
-- [how to make the eyes bigger](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-bigger/)
-- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
 - [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
-- [wide set almond eyes](https://makeup.allwomenstalk.com/tips-on-how-to-find-out-your-eye-shape/)
 - [ivory colour skin](https://makeup.allwomenstalk.com/clever-makeup-tips-for-ivory-skin/)
-- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
 - [office makeup tips](https://makeup.allwomenstalk.com/makeup-tips-for-the-office/)
+- [makeup red lip](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/)
 - [best makeup for someone who doesn't wear makeup](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-hate-makeup/)
+- [how to make the eyes bigger](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-bigger/)
+- [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
+- [wide set almond eyes](https://makeup.allwomenstalk.com/tips-on-how-to-find-out-your-eye-shape/)
 - [how to make hazel eyes pop with makeup](https://makeup.allwomenstalk.com/makeup-tips-for-hazel-eyes/)
+- [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
 - [8 Tricks Make up Artists Use ...](https://makeup.allwomenstalk.com/8-tricks-make-up-artists-use/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 

@@ -68,16 +68,16 @@ Eye shadow is one of the most important beauty products we use. It can really tr
 
 ## Related Posts
 
+- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
 - [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
 - [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
-- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
-- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
-- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
-- [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
-- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
 - [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
+- [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
+- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
+- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
+- [best products to remove makeup](https://skincare.allwomenstalk.com/best-makeup-removing-products/)
 - [8 Prettiest Eyeshadows for Spring ...](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [8 Gorgeous Sugarpill Eye Shadows ...](https://makeup.allwomenstalk.com/8-gorgeous-sugarpill-eye-shadows/)
 

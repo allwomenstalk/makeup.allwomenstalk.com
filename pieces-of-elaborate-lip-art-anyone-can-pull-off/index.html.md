@@ -62,16 +62,16 @@ Which one of these pieces of lip art do you like the best?
 
 ## Related Posts
 
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
-- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
-- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
-- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
 - [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
-- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
+- [chanel 867 lipstick](https://makeup.allwomenstalk.com/natural-looking-lipsticks-youre-not-going-to-regret-buying/)
 - [green ombre lips](https://makeup.allwomenstalk.com/the-best-lip-products-for-sexy-ombre-lips/)
-- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
+- [kylie jenner lip kit](https://makeup.allwomenstalk.com/the-truth-about-the-kylie-jenner-lip-kit/)
 - [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
+- [dior addict 423 romance](https://makeup.allwomenstalk.com/make-your-lips-sparkle-and-shine-with-these-gorgeous-glosses/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [beauty concepts volumizing mascara reviews](https://makeup.allwomenstalk.com/use-these-mascaras-for-long-luscious-lashes/)
+- [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
 - [7 Ways to Pull off Orange Lips ...](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [8 Different Ways to Make Your Lips Look Bigger ...](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
 

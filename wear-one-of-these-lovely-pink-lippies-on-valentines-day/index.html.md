@@ -131,16 +131,16 @@ Need some sparkle in your pink? You'll adore the metallic sheen in this lippy.
 
 ## Related Posts
 
-- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
-- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
-- [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
-- [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
-- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
-- [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
-- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
 - [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
+- [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
 - [how to wear matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/)
+- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
+- [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
 - [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
+- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
+- [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
+- [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
 - [8 Sexy, Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 - [7 Hot Orange Lipsticks to Try out ...](https://beauty.allwomenstalk.com/hot-orange-lipsticks-to-try-out/)
 

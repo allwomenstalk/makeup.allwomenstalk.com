@@ -78,16 +78,16 @@ Because regardless of your eye color or shape, the right liner can really make '
 
 ## Related Posts
 
-- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
-- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
-- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
-- [loreal paris riche le stylo shadow primped and pre...](https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/)
-- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
-- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
-- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
-- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
 - [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
+- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
 - [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
+- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
+- [loreal paris riche le stylo shadow primped and pre...](https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/)
+- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
+- [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
+- [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
+- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
+- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
 - [8 Items You Need to Create Dramatic Eyes ...](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 

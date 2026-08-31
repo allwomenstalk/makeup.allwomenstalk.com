@@ -56,16 +56,16 @@ Look like the bombshell you are with these kickass beauty products! These produc
 
 ## Related Posts
 
-- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
-- [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
-- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
-- [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
-- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
-- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
 - [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
-- [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
-- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
+- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
+- [gold beauty products](https://beauty.allwomenstalk.com/ultra-luxurious-beauty-products-that-contain-gold/)
+- [maximalist eyeshadow bottomless](https://makeup.allwomenstalk.com/sephora-products-that-changed-the-way-i-view-cosmetics/)
 - [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
+- [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
+- [cruelty free affordable makeup](https://makeup.allwomenstalk.com/awesome-cruelty-free-cosmetic-brands-to-try/)
+- [maybelline beauty products](https://makeup.allwomenstalk.com/best-maybelline-makeup-products-by-popular-request/)
+- [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 

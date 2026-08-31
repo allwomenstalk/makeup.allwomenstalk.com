@@ -42,16 +42,16 @@ Hopefully these tips for selecting the right foundation were helpful! Would you 
 
 ## Related Posts
 
-- [What do These Inkblots Say about You?](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
+- [do you think colors affect your mood](https://inspiration.allwomenstalk.com/this-is-fascinating-did-you-know-that-color-can-affect-your-mood/)
+- [Which Dating Stereotype Secretly Gets You Going?](https://love.allwomenstalk.com/which-dating-stereotype-secretly-gets-you-going/)
 - [What Shade of Grey Are You for Real?](https://love.allwomenstalk.com/what-shade-of-grey-are-you-for-real/)
 - [The World University Rankings 2015: Did Your Schoo...](https://lifestyle.allwomenstalk.com/the-world-university-rankings-did-your-school-make-the-top/)
 - [which golden girl are you](https://celebs.allwomenstalk.com/which-golden-girl-are-you-most-like/)
-- [MASH: What's Your Dream Home?](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
-- [Which Dating Stereotype Secretly Gets You Going?](https://love.allwomenstalk.com/which-dating-stereotype-secretly-gets-you-going/)
-- [dancing in the 90s](https://music.allwomenstalk.com/which-90s-dance-are-you/)
-- [do you think colors affect your mood](https://inspiration.allwomenstalk.com/this-is-fascinating-did-you-know-that-color-can-affect-your-mood/)
-- [What's Your Real Dream Date?](https://love.allwomenstalk.com/whats-your-real-dream-date/)
 - [Feeling Lost and Alone: Are You in the Midst of an...](https://health.allwomenstalk.com/feeling-lost-and-alone-are-you-in-the-midst-of-an-identity-crisis/)
+- [MASH: What's Your Dream Home?](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
+- [dancing in the 90s](https://music.allwomenstalk.com/which-90s-dance-are-you/)
+- [What do These Inkblots Say about You?](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
+- [What's Your Real Dream Date?](https://love.allwomenstalk.com/whats-your-real-dream-date/)
 - [Should Your Makeup Match Your Outfit?](https://makeup.allwomenstalk.com/should-your-makeup-match-your-outfit/)
 - [8 Easy Steps to Using Foundation for the First Tim...](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
 

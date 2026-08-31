@@ -48,16 +48,16 @@ With so many great options to choose from, you can easily find a nontoxic founda
 
 ## Related Posts
 
-- [top makeup removers](https://makeup.allwomenstalk.com/best-makeup-removers-for-clean-skin/)
-- [morracan oil](https://makeup.allwomenstalk.com/horrifying-ingredients-in-cosmetics-that-will-make-you-squirm/)
-- [good foundation for dry skin](https://makeup.allwomenstalk.com/best-foundations-for-dry-skin-that-work-like-a-charm/)
-- [naturel makeup look](https://makeup.allwomenstalk.com/cosmetic-products-to-use-for-an-au-natural-look/)
-- [is aquaphor a good moisturizer](https://skincare.allwomenstalk.com/genius-uses-for-aquaphor-that-are-not-to-be-missed/)
 - [dr bronner peppermint soap uses](https://diy.allwomenstalk.com/incredible-uses-for-dr-bronners-castile-soap/)
-- [what foods have the highest antioxidants](https://food.allwomenstalk.com/antioxidant-rich-foods-that-will-leave-your-skin-glowing/)
-- [foundation best for combination skin](https://makeup.allwomenstalk.com/best-foundations-for-combination-skin/)
-- [toiletry](https://lifestyle.allwomenstalk.com/toiletries-to-buy-online-instead-of-in-stores/)
+- [morracan oil](https://makeup.allwomenstalk.com/horrifying-ingredients-in-cosmetics-that-will-make-you-squirm/)
+- [is aquaphor a good moisturizer](https://skincare.allwomenstalk.com/genius-uses-for-aquaphor-that-are-not-to-be-missed/)
+- [good foundation for dry skin](https://makeup.allwomenstalk.com/best-foundations-for-dry-skin-that-work-like-a-charm/)
+- [top makeup removers](https://makeup.allwomenstalk.com/best-makeup-removers-for-clean-skin/)
 - [luxury holistic treatments](https://diy.allwomenstalk.com/luxury-spa-treatments-you-can-recreate-at-home/)
+- [foundation best for combination skin](https://makeup.allwomenstalk.com/best-foundations-for-combination-skin/)
+- [what foods have the highest antioxidants](https://food.allwomenstalk.com/antioxidant-rich-foods-that-will-leave-your-skin-glowing/)
+- [toiletry](https://lifestyle.allwomenstalk.com/toiletries-to-buy-online-instead-of-in-stores/)
+- [naturel makeup look](https://makeup.allwomenstalk.com/cosmetic-products-to-use-for-an-au-natural-look/)
 - [7 Places to Buy All-Natural Make-up ...](https://allwomenstalk.com/7-places-to-buy-all-natural-make-up/)
 - [7 Mineral -Based Foundations to Try ...](https://makeup.allwomenstalk.com/mineral-based-foundations-to-try/)
 

@@ -60,15 +60,15 @@ If you think blue eyeliner is just for the bold, then you're wrong! This summer 
 
 ## Related Posts
 
+- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
 - [best target makeup products](https://makeup.allwomenstalk.com/best-affordable-drugstore-makeup-products-every-girl-needs-to-have/)
 - [lilly pulitzer travel cosmetic bag](https://bags.allwomenstalk.com/best-travel-makeup-bags-for-all-your-exursions/)
-- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
-- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
-- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
-- [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
 - [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
-- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
+- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
+- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
+- [skincare for gym-goers](https://beauty.allwomenstalk.com/sweat-proof-beauty-products-to-take-to-the-gym/)
+- [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
+- [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
 - [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [5 Fabulous Makeup Trends for Spring-Summer ...](https://allwomenstalk.com/fabulous-makeup-trends-for-spring-summer/)

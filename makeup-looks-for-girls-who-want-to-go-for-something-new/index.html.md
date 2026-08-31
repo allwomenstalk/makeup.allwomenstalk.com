@@ -112,16 +112,16 @@ Which of these items do you want to have?
 
 ## Related Posts
 
+- [how to apply make up correctly](https://makeup.allwomenstalk.com/makeup-basics-for-girls-learning-how-to-wear-correctly/)
+- [Detailed Step-by-Step Guide to Getting Kardashian-...](https://beauty.allwomenstalk.com/detailed-step-by-step-guide-to-getting-kardashian-worthy-lashes/)
+- [Beauty 101: Eyebrow Microblading ...](https://beauty.allwomenstalk.com/beauty-101-eyebrow-microblading/)
+- [Sweat-Proof Makeup Tutorials That Will See You thr...](https://makeup.allwomenstalk.com/sweat-proof-makeup-tutorials-that-will-see-you-through-summer/)
+- [prom dresses for brunettes](https://fashion.allwomenstalk.com/gorgeous-makeup-and-fashion-looks-for-brunettes/)
 - [dark haired beauties](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-for-dark-haired-beauties/)
 - [Instagram Makeup Inspiration Any Girl Can Copy ...](https://makeup.allwomenstalk.com/instagram-makeup-inspiration-any-girl-can-copy/)
-- [Beauty 101: Eyebrow Microblading ...](https://beauty.allwomenstalk.com/beauty-101-eyebrow-microblading/)
-- [Professional Secrets to beyond Perfect Makeup ...](https://makeup.allwomenstalk.com/professional-secrets-to-beyond-perfect-makeup/)
 - [stylo eye bottomless](https://makeup.allwomenstalk.com/tips-for-women-who-are-new-to-using-liquid-liner/)
-- [Detailed Step-by-Step Guide to Getting Kardashian-...](https://beauty.allwomenstalk.com/detailed-step-by-step-guide-to-getting-kardashian-worthy-lashes/)
+- [Professional Secrets to beyond Perfect Makeup ...](https://makeup.allwomenstalk.com/professional-secrets-to-beyond-perfect-makeup/)
 - [Everything You Need to Know about Your Makeup Brus...](https://makeup.allwomenstalk.com/everything-you-should-know-about-your-makeup-brushes/)
-- [Sweat-Proof Makeup Tutorials That Will See You thr...](https://makeup.allwomenstalk.com/sweat-proof-makeup-tutorials-that-will-see-you-through-summer/)
-- [how to apply make up correctly](https://makeup.allwomenstalk.com/makeup-basics-for-girls-learning-how-to-wear-correctly/)
-- [prom dresses for brunettes](https://fashion.allwomenstalk.com/gorgeous-makeup-and-fashion-looks-for-brunettes/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [13 Classic Makeup Looks to Rock ...](https://beauty.allwomenstalk.com/classic-makeup-looks-to-rock/)
 

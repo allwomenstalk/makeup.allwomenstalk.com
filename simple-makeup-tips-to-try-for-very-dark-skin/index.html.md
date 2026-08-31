@@ -56,16 +56,16 @@ So girlies, now that you know exactly what makeup tips are out there for you, do
 
 ## Related Posts
 
-- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
-- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
-- [makeup hacks to look younger](https://makeup.allwomenstalk.com/simple-makeup-tricks-to-make-you-look-younger/)
-- [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
 - [loreal color riche le stylo smoky eye silver coutu...](https://makeup.allwomenstalk.com/awesome-makeup-shortcuts-for-busy-babes/)
-- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
-- [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
+- [masks for a masquerade ball](https://makeup.allwomenstalk.com/ways-to-wear-makeup-inside-masquerade-mask/)
+- [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
+- [pictures of makeup faces](https://makeup.allwomenstalk.com/steps-to-a-flawless-five-minute-face/)
 - [girls who wear glasses](https://makeup.allwomenstalk.com/makeup-tips-for-girls-who-wear-glasses/)
+- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
+- [makeup hacks to look younger](https://makeup.allwomenstalk.com/simple-makeup-tricks-to-make-you-look-younger/)
+- [color riche stylo smoky eye always pearly pink](https://makeup.allwomenstalk.com/beautiful-eye-shadows-to-wear-this-autumn/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 

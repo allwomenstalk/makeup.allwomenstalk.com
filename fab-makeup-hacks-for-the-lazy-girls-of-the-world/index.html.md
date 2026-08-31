@@ -42,16 +42,16 @@ Read on to see the best makeup hacks all lazy girls of the world (well, actually
 
 ## Related Posts
 
-- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
 - [holly richards permanent makeup & microblading](https://beauty.allwomenstalk.com/the-basics-of-microblading/)
-- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
 - [eyeliner videos](https://makeup.allwomenstalk.com/eyeliner-hacks-you-never-knew-you-needed-in-life/)
-- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [paris riche stylo smoky timeless blue](https://makeup.allwomenstalk.com/tips-to-make-small-eyes-look-bigger/)
+- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
+- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
 - [how to get your makeup to stay on all day](https://makeup.allwomenstalk.com/how-to-keep-your-makeup-looking-fresh-all-day/)
 - [simple full face makeup](https://makeup.allwomenstalk.com/5-minute-makeup-routine/)
-- [tinting eyebrows](https://beauty.allwomenstalk.com/how-to-tint-your-eyebrows/)
-- [routine hot](https://makeup.allwomenstalk.com/ways-to-shorten-your-makeup-routine/)
-- [latina look makeup](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-longer/)
+- [does vaseline actually grow lashes](https://beauty.allwomenstalk.com/ways-to-make-your-eyelashes-grow/)
+- [is it okay to wear makeup to the gym](https://makeup.allwomenstalk.com/hacks-for-wearing-makeup-at-the-gym/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 
