@@ -3,7 +3,7 @@ title: "7 Candy Cane Makeup Tutorials for the Holiday Season ..."
 description: "Candy Cane Eyeliner; Candy Cane Lips; Candy Cane Colors; Candy Cane Eyes; Candy Canes All over; More ..."
 url: "https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/"
 category: "makeup"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Candy Cane Makeup Tutorials for the Holiday Season ...
@@ -42,16 +42,16 @@ You might not want to wear all of these out of the house, but they'll be perfect
 
 ## Related Posts
 
+- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
+- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
+- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
+- [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
+- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
+- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
+- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
 - [best tattoo cover up makeup](https://beauty.allwomenstalk.com/how-to-cover-up-your-tattoos-with-makeup/)
 - [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
-- [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
-- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
-- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
-- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
-- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
-- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 
