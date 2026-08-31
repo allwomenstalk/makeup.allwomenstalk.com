@@ -80,16 +80,16 @@ Lashes are an important part of the makeup process and these 11 mascaras should 
 
 ## Related Posts
 
+- [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
 - [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
+- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
+- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
+- [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
+- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
 - [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
 - [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
-- [what skincare products to splurge on](https://makeup.allwomenstalk.com/reasons-to-splurge-on-your-makeup-products/)
-- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
-- [toiletries brands](https://beauty.allwomenstalk.com/fine-toiletry-brands-from-the-uk/)
-- [best blush matte](https://makeup.allwomenstalk.com/matte-blushes-to-add-to-your-makeup-bag/)
-- [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
-- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
 - [63 Best Affordable Mascaras ...](https://allwomenstalk.com/63-affordable-mascaras-expert-reviews/)
 - [11 Best Fake Eyelashes ...](https://allwomenstalk.com/6-best-fake-eyelashes/)
 

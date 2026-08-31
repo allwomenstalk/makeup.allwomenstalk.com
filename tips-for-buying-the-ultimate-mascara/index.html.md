@@ -42,16 +42,16 @@ What’s your favorite brand of mascara? I love Maybelline and Color Girl, but w
 
 ## Related Posts
 
-- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
-- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
-- [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
-- [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
-- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
-- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
 - [pretty lips](https://skincare.allwomenstalk.com/tips-for-lovely-lips/)
+- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
+- [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
 - [color le stylo smoky emerald conquest](https://makeup.allwomenstalk.com/reasons-to-love-matte-lipsticks/)
-- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
 - [ruby lips meaning](https://makeup.allwomenstalk.com/all-you-need-to-know-to-rock-a-bold-lip-easy-steps/)
+- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
+- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
+- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
+- [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
+- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
 - [7 Impressively Useful Tips on How to Avoid Messy a...](https://makeup.allwomenstalk.com/impressively-useful-tips-on-how-to-avoid-messy-and-clumpy-mascara/)
 - [7 Mascara Tips: How to Apply Mascara ...](https://allwomenstalk.com/7-rules-of-applying-mascara-the-right-way/)
 

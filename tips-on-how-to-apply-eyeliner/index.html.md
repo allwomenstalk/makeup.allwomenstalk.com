@@ -42,16 +42,16 @@ Do you use eyeliner, ladies? Well, if you do, I really hope you found these tips
 
 ## Related Posts
 
-- [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
-- [SUMMER 06 MAKEUP PODCAST . Strong Brows ...](https://allwomenstalk.com/summer-06-makeup-podcast-strong-brows/)
-- [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
-- [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
-- [NY: Your Eyebrows Should Be ...](https://allwomenstalk.com/ny-your-eyebrows-should-be/)
-- [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
-- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
 - [le stylo smoky eye blinged](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
-- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
+- [Blush Application: Tutorial ...](https://allwomenstalk.com/blush-application-tutorial/)
+- [paris le stylo smoky garde azure](https://celebs.allwomenstalk.com/demis-make-up-connection/)
+- [7 Tips to Fix Tired Looking Eyes ...](https://health.allwomenstalk.com/tips-to-fix-tired-looking-eyes/)
+- [SUMMER 06 MAKEUP PODCAST . Strong Brows ...](https://allwomenstalk.com/summer-06-makeup-podcast-strong-brows/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
+- [Elke's Makeup Tips](https://allwomenstalk.com/elkes-makeup-tips/)
+- [NY: Your Eyebrows Should Be ...](https://allwomenstalk.com/ny-your-eyebrows-should-be/)
+- [The Makeup Show . Day 2 ...](https://allwomenstalk.com/the-makeup-show-day-2/)
+- [alison raffaele cosmetics](https://allwomenstalk.com/makeup/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Liquid Eyeliner Application Tips ...](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
 

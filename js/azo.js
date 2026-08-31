@@ -17,10 +17,19 @@ azo = {
   </template>
     `, 
       load: async function (length = 1, blog = 'food') {
-          const postId = document.querySelector('meta[name="postid"]').content
+          const meta = document.querySelector('meta[name="postid"]')
+          const postId = meta ? meta.content : ''
           const url = `https://us-east-1.aws.data.mongodb-api.com/app/azoio-evvkb/endpoint/list?size=${length}&blog=${blog}${postId ? `&post=${postId}` : ''}`;
-          const response = await fetch(url);
-          const list = (await response.json())
+          let payload
+          try {
+            const response = await fetch(url);
+            if (!response.ok) return [];
+            payload = await response.json();
+          } catch {
+            return [];
+          }
+          if (!Array.isArray(payload)) return [];
+          const list = payload
             .filter(item => window.location.hash.substring(1) !== item._id)
             .slice(0, length)
             .map(item => postId ? ({ ...item, url: `https://allwomenstalk.com/explore/?from=${postId}#${item._id}` }) : item);

@@ -56,16 +56,16 @@ Have you ever tried a makeup setting spray? What other info can you share?
 
 ## Related Posts
 
-- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
+- [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
 - [does sleeping in makeup cause wrinkles](https://makeup.allwomenstalk.com/tips-for-sleeping-in-your-makeup/)
 - [lip liner gone wrong](https://makeup.allwomenstalk.com/lip-liner-mistakes-thatll-ruin-your-look/)
-- [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
-- [thanksgiving makeup ideas](https://makeup.allwomenstalk.com/makeup-tips-for-looking-flirty-at-holiday-parties/)
-- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
-- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
-- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
+- [latina makeup](https://makeup.allwomenstalk.com/elaborate-makeup-for-when-you-have-time-on-your-hands/)
 - [rocker chic makeup](https://makeup.allwomenstalk.com/quick-and-easy-makeup-looks-you-can-rock-at-the-office/)
-- [cold look](https://makeup.allwomenstalk.com/makeup-tips-for-the-cold-weather/)
+- [christmas eyeshadow look](https://makeup.allwomenstalk.com/makeup-tips-thatll-help-you-create-fabulous-christmas-cards/)
+- [holiday eyebrows](https://makeup.allwomenstalk.com/holiday-eye-makeup-to-end-the-year-with-a-bang/)
+- [paris color stylo glistening](https://makeup.allwomenstalk.com/its-finally-time-for-you-to-breakup-with-your-makeup/)
+- [how to draw candy cane](https://makeup.allwomenstalk.com/candy-cane-makeup-tutorials-for-the-holiday-season/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 

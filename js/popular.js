@@ -27,12 +27,17 @@ popular = {
   </template>
     `, 
       load: async function () {
-          const postId = document.querySelector('meta[name="postid"]').content
           const url = `https://allwomenstalk.com/popular/list.json`;
-          const response = await fetch(url);
-          const list = (await response.json())
-          arr = list.items
-          return arr.sort(() => Math.random() - 0.5);
+          try {
+            const response = await fetch(url);
+            if (!response.ok) return [];
+            const list = await response.json();
+            const arr = list && list.items;
+            if (!Array.isArray(arr)) return [];
+            return arr.slice().sort(() => Math.random() - 0.5);
+          } catch {
+            return [];
+          }
       }
   }
   

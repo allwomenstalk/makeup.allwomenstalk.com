@@ -28,16 +28,16 @@ Facebook is a great place for scoping out free samples. Lots of companies that h
 
 ## Related Posts
 
-- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
-- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
 - [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
-- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
+- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
+- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
+- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
+- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 

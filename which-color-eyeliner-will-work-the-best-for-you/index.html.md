@@ -56,16 +56,16 @@ Of course you can always experiment; sometimes a surprising color will work for 
 
 ## Related Posts
 
-- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
+- [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
 - [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
+- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
 - [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
 - [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
-- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
 - [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
-- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
-- [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
+- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [7 Liquid Eyeliners ...](https://makeup.allwomenstalk.com/liquid-eyeliners/)
 - [REVIEW: Revlon Colorstay Eyeliner ...](https://allwomenstalk.com/review-revlon-colorstay-eyeliner/)
 

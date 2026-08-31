@@ -56,16 +56,16 @@ Blue eyes are an amazing feature to have, so you should try to draw attention to
 
 ## Related Posts
 
-- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
-- [btown eyed girl](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-brown-eyed-girls/)
+- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
+- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
+- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
+- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
 - [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
 - [best eyebrows for diamond face](https://beauty.allwomenstalk.com/what-are-the-best-eyebrows-for-your-face-shape/)
-- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
-- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
-- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
-- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
-- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [btown eyed girl](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-brown-eyed-girls/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
+- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
 - [7 Eye Makeup Tips for Your Eye Color ...](https://makeup.allwomenstalk.com/eye-makeup-tips-for-your-eye-color/)
 - [12 Makeup Tricks for Gorgeous Blue Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-gorgeous-blue-eyes/)
 

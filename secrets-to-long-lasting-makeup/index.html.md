@@ -56,16 +56,16 @@ That’s it for my secrets to long lasting makeup. I hope you find these tips us
 
 ## Related Posts
 
-- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
-- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
-- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
-- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
-- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
-- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
 - [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
-- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
-- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
+- [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
 - [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
+- [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
+- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
+- [makeup for enlarged pores](https://makeup.allwomenstalk.com/kinds-of-makeup-to-avoid-if-you-have-large-pores/)
+- [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
+- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
+- [why primer before makeup](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

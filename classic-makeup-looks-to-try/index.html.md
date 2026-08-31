@@ -57,15 +57,15 @@ So girls, these are just a few of the classic makeup looks that I absolutely lov
 ## Related Posts
 
 - [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
-- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
-- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
+- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
 - [makeup trends 2013](https://beauty.allwomenstalk.com/eye-makeup-trends-for-summer/)
 - [best mascara for lengthening lashes](https://makeup.allwomenstalk.com/lengthening-mascaras-that-are-better-than-false-lashes/)
-- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
-- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
-- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
-- [melting makeup](https://makeup.allwomenstalk.com/tantalizing-tips-to-keep-your-makeup-from-melting-off-your-face/)
 - [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
+- [melting makeup](https://makeup.allwomenstalk.com/tantalizing-tips-to-keep-your-makeup-from-melting-off-your-face/)
+- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
+- [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
+- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
+- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
 - [7 '70s Makeup Looks ...](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

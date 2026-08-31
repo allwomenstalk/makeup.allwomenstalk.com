@@ -66,16 +66,16 @@ It doesn’t matter if you prefer emeralds, rubies, or sapphires, there is a lip
 
 ## Related Posts
 
-- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
 - [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
-- [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
+- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
+- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
 - [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
 - [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
+- [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
 - [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
-- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
-- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [8 Sexy Lipsticks for Summer ...](https://allwomenstalk.com/8-sexy-lipsticks-for-summer/)
 

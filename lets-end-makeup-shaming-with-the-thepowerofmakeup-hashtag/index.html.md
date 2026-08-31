@@ -122,16 +122,16 @@ Oh my gosh, I love her freckles!
 
 ## Related Posts
 
-- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
 - [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
 - [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
-- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
-- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
 - [how pale am i](https://makeup.allwomenstalk.com/how-to-pull-off-bronzer-when-youre-pale/)
-- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
-- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
-- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
 - [paris riche stylo eye infinite sky](https://beauty.allwomenstalk.com/banish-puffy-eyes-for-good-by-following-these-tips/)
+- [makeup ideas for dark hair](https://makeup.allwomenstalk.com/last-minute-makeup-looks-for-all-skin-types/)
+- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [makeup on fleek](https://makeup.allwomenstalk.com/makeup-tutorials-for-flawless-gym-days/)
+- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
+- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
+- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
 - [\[ MAKEUP \] ...](https://allwomenstalk.com/makeup/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 

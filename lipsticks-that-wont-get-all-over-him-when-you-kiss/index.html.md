@@ -70,16 +70,16 @@ You don't want to leave lipstick marks all over your boyfriend's face. That's wh
 
 ## Related Posts
 
+- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
+- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
 - [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
 - [dior brown lipstick](https://celebs.allwomenstalk.com/how-to-pull-off-brown-lipstick-like-a-celebrity/)
-- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
-- [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
-- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
 - [do mac test on animals](https://makeup.allwomenstalk.com/the-sexiest-mac-lipsticks-for-fall/)
+- [do lip oils work](https://beauty.allwomenstalk.com/all-you-need-to-know-about-lip-oils/)
+- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
 - [lip sculpture](https://makeup.allwomenstalk.com/pieces-of-elaborate-lip-art-anyone-can-pull-off/)
-- [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
+- [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

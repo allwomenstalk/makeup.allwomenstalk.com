@@ -68,16 +68,16 @@ Did any of these lip and cheek stains intrigue you? Honestly, if it were up to m
 
 ## Related Posts
 
-- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
-- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
-- [no 7 cream blush](https://makeup.allwomenstalk.com/of-the-cheekiest-cream-blushes-for-a-rosy-glow/)
-- [how to pick red lipstick for your skin tone](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red-lipstick/)
 - [lipstick tutorial for beginners](https://makeup.allwomenstalk.com/lovely-lipstick-tutorials-to-spice-up-your-makeup/)
-- [paris color riche stylo eye shadow timeless spark](https://wedding.allwomenstalk.com/tips-to-choosing-the-perfect-wedding-lipstick/)
-- [color of your lips](https://beauty.allwomenstalk.com/unique-ways-to-add-color-to-your-lips/)
-- [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
-- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
+- [good cheap eyeliner](https://makeup.allwomenstalk.com/meltproof-eyeliners-that-will-stand-up-to-the-heat/)
+- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
+- [no 7 cream blush](https://makeup.allwomenstalk.com/of-the-cheekiest-cream-blushes-for-a-rosy-glow/)
 - [wear red lipstick](https://makeup.allwomenstalk.com/tips-to-follow-when-wearing-red-lipstick/)
+- [how to pick red lipstick for your skin tone](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red-lipstick/)
+- [summer lip gloss colors](https://makeup.allwomenstalk.com/gorgeous-lip-glosses-to-try-out-as-summer-approaches/)
+- [paris color riche stylo eye shadow timeless spark](https://wedding.allwomenstalk.com/tips-to-choosing-the-perfect-wedding-lipstick/)
+- [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
+- [color of your lips](https://beauty.allwomenstalk.com/unique-ways-to-add-color-to-your-lips/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [Expert Beauty Tip: Get the Perfect Lip Stain ...](https://allwomenstalk.com/expert-beauty-tip-get-the-perfect-lip-stain/)
 

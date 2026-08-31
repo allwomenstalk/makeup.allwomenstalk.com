@@ -62,16 +62,16 @@ There you have it, my top 8 makeup tips for brunettes that will bring out the be
 
 ## Related Posts
 
-- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
 - [square-shaped face](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-square-shaped-faces/)
-- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
-- [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
-- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
 - [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
-- [eyeliner round face](https://makeup.allwomenstalk.com/makeup-tips-for-a-round-face/)
-- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
-- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
+- [tips makeup](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-green-eyes/)
 - [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
+- [ginger spice eye makeup](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
+- [eyeliner round face](https://makeup.allwomenstalk.com/makeup-tips-for-a-round-face/)
+- [blue makeup looks](https://makeup.allwomenstalk.com/amazing-blue-eye-makeup-tips/)
+- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
+- [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
+- [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
 - [8 Make up Tricks for Autumn ...](https://makeup.allwomenstalk.com/make-up-tricks-for-autumn/)
 - [11 Makeup Tricks for Pale Skin ...](https://makeup.allwomenstalk.com/makeup-tricks-for-pale-skin/)
 

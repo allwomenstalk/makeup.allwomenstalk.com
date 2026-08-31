@@ -44,16 +44,16 @@ Top Photo Credit: [sam b-r](https://www.flickr.com/photos/ropeboy/3543221305/)
 
 ## Related Posts
 
-- [Beauty Soundbites \[ Lips \] ...](https://allwomenstalk.com/beauty-soundbites-lips/)
-- [philosophy lip gloss discontinued](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
-- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 - [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
 - [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
+- [philosophy lip gloss discontinued](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
 - [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
-- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
-- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
+- [Beauty Soundbites \[ Lips \] ...](https://allwomenstalk.com/beauty-soundbites-lips/)
 - [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
 - [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
+- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
+- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
+- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

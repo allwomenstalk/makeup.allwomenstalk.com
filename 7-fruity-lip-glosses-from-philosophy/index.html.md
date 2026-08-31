@@ -49,16 +49,16 @@ I can’t wait to try that Beach Girl lip shine, and I’ll bet the Orange Jelly
 
 ## Related Posts
 
-- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
-- [Beauty Soundbites \[ Lips \] ...](https://allwomenstalk.com/beauty-soundbites-lips/)
-- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
-- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
-- [REVIEW: Blissoma's Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
-- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
-- [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
-- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
 - [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
+- [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
+- [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
 - [REVIEW: Maybelline ...](https://allwomenstalk.com/review-maybelline/)
+- [REVIEW: Blissoma's Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
+- [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
+- [john frieda luminous glaze review](https://allwomenstalk.com/review-john-frieda-luminous-color-glaze/)
+- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
+- [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
+- [Beauty Soundbites \[ Lips \] ...](https://allwomenstalk.com/beauty-soundbites-lips/)
 - [7 Great Skin Care Sets from Philosophy ...](https://skincare.allwomenstalk.com/7-great-skin-care-sets-from-philosophy/)
 - [7 Fab Spring Products from Philosophy ...](https://skincare.allwomenstalk.com/7-fab-spring-products-from-philosophy/)
 

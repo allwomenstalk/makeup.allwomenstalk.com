@@ -64,16 +64,16 @@ So these are just a few of the many reasons why I love makeup so much. What abou
 
 ## Related Posts
 
-- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
 - [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
-- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
-- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
 - [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
-- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
-- [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
+- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
 - [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
-- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
+- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
 - [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
+- [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
+- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
+- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
+- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

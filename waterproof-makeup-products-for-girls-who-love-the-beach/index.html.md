@@ -159,16 +159,16 @@ At the end of the day, that waterproof makeup's got to come off, and this remove
 
 ## Related Posts
 
-- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
+- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
 - [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
 - [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
-- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
-- [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
-- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
-- [psl meaning beauty](https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/)
 - [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
+- [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
+- [psl meaning beauty](https://makeup.allwomenstalk.com/from-your-lattes-to-your-face-pumpkin-spice-makeup-is-now-a-thing/)
+- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
 - [what shampoo does kylie jenner use](https://makeup.allwomenstalk.com/the-makeup-products-kylie-jenner-uses-for-her-daily-beauty-routine/)
-- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
+- [best inexpensive makeup brushes](https://makeup.allwomenstalk.com/top-affordable-makeup-tools-for-girls-on-a-budget/)
+- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [7 Absolutely Real Waterproof Mascaras ...](https://makeup.allwomenstalk.com/absolutely-real-waterproof-mascaras/)
 

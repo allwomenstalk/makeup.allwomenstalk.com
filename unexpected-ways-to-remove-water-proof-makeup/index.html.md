@@ -44,16 +44,16 @@ Top Image Source: [fashioncopious.typepad.com](https://fashioncopious.typepad.co
 
 ## Related Posts
 
-- [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
-- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
 - [hot eye makeup](https://makeup.allwomenstalk.com/makeup-looks-to-look-hot-without-a-smoky-eye/)
-- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
-- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
-- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
+- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
+- [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
 - [teenagers makeup](https://makeup.allwomenstalk.com/classic-makeup-tutorials-for-teenagers/)
-- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
+- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
 - [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
+- [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
+- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
 - [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
+- [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 - [7 Ways to Keep Cosmetics Hygienic ...](https://allwomenstalk.com/7-ways-to-keep-cosmetics-hygienic/)
 

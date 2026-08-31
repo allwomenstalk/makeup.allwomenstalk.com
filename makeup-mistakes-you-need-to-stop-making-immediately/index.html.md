@@ -56,16 +56,16 @@ Are you making any of these makeup mistakes? Got any other tips for getting the 
 
 ## Related Posts
 
-- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
-- [loreal stylo shadow a twist](https://makeup.allwomenstalk.com/makeup-101-types-of-eyeliner/)
 - [diy wedding makeup tutorial](https://makeup.allwomenstalk.com/wedding-day-makeup-tutorials-that-will-make-his-jaw-drop/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
-- [fix dry mascara](https://makeup.allwomenstalk.com/how-to-fix-a-mascara-smudge-without-ruining-all-of-your-makeup/)
-- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
+- [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
+- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
 - [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
 - [best face powder for sensitive skin](https://makeup.allwomenstalk.com/is-powder-essential-to-your-makeup-routine/)
-- [eye makeup hooded eyes](https://makeup.allwomenstalk.com/hot-makeup-tips-for-hooded-eyes/)
-- [eyebrow threading neat me](https://beauty.allwomenstalk.com/all-the-info-you-could-ever-need-on-eyebrow-threading/)
+- [loreal stylo shadow a twist](https://makeup.allwomenstalk.com/makeup-101-types-of-eyeliner/)
+- [thick and dark eyebrows](https://beauty.allwomenstalk.com/girls-who-look-gorgeous-with-their-naturally-thick-eyebrows/)
+- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
+- [fix dry mascara](https://makeup.allwomenstalk.com/how-to-fix-a-mascara-smudge-without-ruining-all-of-your-makeup/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 - [8 Classic Make up Mistakes to Avoid ...](https://allwomenstalk.com/8-classic-make-up-mistakes-to-avoid/)
 

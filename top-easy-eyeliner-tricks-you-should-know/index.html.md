@@ -82,16 +82,16 @@ See ladies, there are just a few eyeliner tricks that you can mix and match with
 
 ## Related Posts
 
-- [color stylo smoky eye skirt](https://makeup.allwomenstalk.com/ways-to-apply-makeup-faster/)
+- [fun eyeliner for hooded eyes](https://makeup.allwomenstalk.com/makeup-tips-for-hooded-eyes/)
 - [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
+- [color stylo smoky eye skirt](https://makeup.allwomenstalk.com/ways-to-apply-makeup-faster/)
+- [color riche le stylo smoky eye always pink](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-keep-your-makeup-on-all-day/)
+- [make up for long face](https://makeup.allwomenstalk.com/makeup-tips-for-a-heart-shaped-face/)
+- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
+- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
 - [dark skin or brown skin](https://makeup.allwomenstalk.com/marvelous-makeup-tips-for-dark-skin/)
 - [natural women over 50](https://beauty.allwomenstalk.com/fabulous-makeup-tips-for-women-over-50/)
-- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
-- [fun eyeliner for hooded eyes](https://makeup.allwomenstalk.com/makeup-tips-for-hooded-eyes/)
-- [color riche le stylo smoky eye always pink](https://makeup.allwomenstalk.com/helpful-tips-on-how-to-keep-your-makeup-on-all-day/)
-- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
 - [best eye makeup for blonde hair blue eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes/)
-- [make up for long face](https://makeup.allwomenstalk.com/makeup-tips-for-a-heart-shaped-face/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

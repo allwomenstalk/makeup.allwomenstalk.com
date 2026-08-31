@@ -86,16 +86,16 @@ These liquid and powder foundations, BB creams, and CC creams are my top favorit
 
 ## Related Posts
 
-- [hand exfoliator diy](https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/)
 - [newest korean](https://beauty.allwomenstalk.com/newest-korean-beauty-products-for-girls-who-want-nothing-but-perfect-skin/)
 - [homemade chemical peels](https://skincare.allwomenstalk.com/latest-penetrating-diy-facial-peels-for-girls-who-want-a-deep-glow/)
 - [shiny face skin](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-with-shiny-skin/)
-- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
 - [lina's body butters](https://skincare.allwomenstalk.com/body-oil-products-for-girls-who-want-the-smoothest-skin-this-winter/)
-- [exposed acne product](https://skincare.allwomenstalk.com/you-can-now-get-this-popular-acne-medication-over-the-counter-for-the-first-time-ever/)
 - [luxurious bubble bath](https://beauty.allwomenstalk.com/simple-step-by-step-guide-the-most-luxurious-bubble-bath-of-your-life/)
-- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
+- [hand exfoliator diy](https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/)
+- [exposed acne product](https://skincare.allwomenstalk.com/you-can-now-get-this-popular-acne-medication-over-the-counter-for-the-first-time-ever/)
+- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
 - [boka toothpaste side effects](https://beauty.allwomenstalk.com/best-natural-toothpastes-for-girls-staying-away-from-chemicals/)
+- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
 - [8 Light, Oil-Free Foundations ...](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
 - [10 Best Foundations for Fall and Winter ...](https://allwomenstalk.com/10-best-foundations-for-fall-and-winter/)
 

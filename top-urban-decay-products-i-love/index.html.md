@@ -79,16 +79,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22712688)
 
 ## Related Posts
 
+- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
+- [glow up checklist](https://beauty.allwomenstalk.com/top-beauty-products-you-need-on-your-fall-beauty-checklist/)
 - [makeup to even skin tone](https://skincare.allwomenstalk.com/makeup-products-that-will-get-you-an-even-skin-tone/)
 - [best of sephora](https://makeup.allwomenstalk.com/top-sephora-products/)
-- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
-- [bare essentials faux tan](https://makeup.allwomenstalk.com/best-bare-escentuals-products-youve-got-to-try/)
-- [makeup with cool packaging](https://beauty.allwomenstalk.com/worst-makeup-packaging-ever/)
-- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
 - [blush ideas makeup](https://makeup.allwomenstalk.com/different-unique-uses-for-blush/)
-- [glow up checklist](https://beauty.allwomenstalk.com/top-beauty-products-you-need-on-your-fall-beauty-checklist/)
+- [necessary beauty products](https://beauty.allwomenstalk.com/unnecessary-beauty-products-you-actually-dont-need/)
 - [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
+- [oscillating mascara](https://beauty.allwomenstalk.com/most-gimmicky-beauty-products-ever/)
 - [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
+- [makeup with cool packaging](https://beauty.allwomenstalk.com/worst-makeup-packaging-ever/)
 - [9 Lipsticks I Swear by ...](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products/)
 

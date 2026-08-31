@@ -130,16 +130,16 @@ This article was written in collaboration with Holly Riordan.
 
 ## Related Posts
 
-- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
-- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
-- [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
-- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
-- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
-- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
-- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
-- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
-- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
 - [riche smoky eye shadow blinged brilliant](https://makeup.allwomenstalk.com/splendid-makeup-tips-to-enhance-the-gold-in-your-eyes/)
+- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
+- [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
+- [how to pick out the right makeup](https://beauty.allwomenstalk.com/tremendously-helpul-tips-on-finding-the-right-makeup-for-your-hair-color/)
+- [liquid eyeliner or eyeshadow first](https://makeup.allwomenstalk.com/tips-for-wearing-liquid-eyeliner-this-fall/)
+- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
+- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
+- [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

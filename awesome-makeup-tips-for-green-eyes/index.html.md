@@ -94,16 +94,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
-- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
-- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
-- [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
-- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
-- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
 - [eyeliner round face](https://makeup.allwomenstalk.com/makeup-tips-for-a-round-face/)
-- [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
 - [make up for long face](https://makeup.allwomenstalk.com/makeup-tips-for-a-heart-shaped-face/)
+- [redhead makeup looks](https://makeup.allwomenstalk.com/little-known-makeup-tips-for-redheads/)
 - [how to make your eyes blue](https://makeup.allwomenstalk.com/tips-to-make-your-eyes-stand-out/)
+- [makeup for 30s](https://makeup.allwomenstalk.com/awesome-makeup-tips-for-your-30s/)
+- [orange eye makeup](https://makeup.allwomenstalk.com/wonderful-tips-for-dramatic-eye-makeup/)
+- [best eyeliner techniques](https://makeup.allwomenstalk.com/top-easy-eyeliner-tricks-you-should-know/)
+- [how to hide high cheekbones with makeup](https://makeup.allwomenstalk.com/excellent-ways-to-define-your-cheekbones/)
+- [latina makeup eyebrows](https://makeup.allwomenstalk.com/makeup-tips-for-latina-women/)
+- [big round eyes drawing](https://makeup.allwomenstalk.com/makeup-tips-for-big-eyes-2/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

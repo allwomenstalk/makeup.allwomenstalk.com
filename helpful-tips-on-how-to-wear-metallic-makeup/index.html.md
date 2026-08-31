@@ -42,16 +42,16 @@ These are just a few tips that will hopefully make the idea of wearing metallic 
 
 ## Related Posts
 
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
-- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
-- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [teen makeup looks](https://beauty.allwomenstalk.com/amazing-eye-makeup-tips-for-teenagers/)
+- [paris eyeshadow mega blinged and](https://makeup.allwomenstalk.com/incredibly-dramatic-makeup-looks-to-try/)
 - [makeup looks natural indian](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
+- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
 - [reddit jowls](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-jowls/)
 - [pale blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-wearing-blue-eyeshadow/)
-- [how do i make my eyes less puffy](https://makeup.allwomenstalk.com/fab-eye-makeup-tricks-to-hide-puffiness/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [bad winged eyeliner](https://makeup.allwomenstalk.com/eyeliner-tips-for-blue-eyes/)
+- [goingmake](https://makeup.allwomenstalk.com/liberating-reasons-for-going-make-up-free/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

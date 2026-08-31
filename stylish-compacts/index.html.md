@@ -71,15 +71,15 @@ There are a variety of different compacts out there. Designs range from sleek an
 ## Related Posts
 
 - [Getting to Know ETSY Shop: Vint Design ...](https://lifestyle.allwomenstalk.com/getting-to-know-etsy-shop-vint-design/)
-- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
-- [8 Wacky Things You Can Rent These Days ...](https://lifestyle.allwomenstalk.com/unusual-things-you-can-rent-these-days/)
-- [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
-- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
-- [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
-- [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
-- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
 - [sport wind](https://lifestyle.allwomenstalk.com/wind-powered-sports/)
+- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
+- [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
+- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
+- [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
+- [8 Wacky Things You Can Rent These Days ...](https://lifestyle.allwomenstalk.com/unusual-things-you-can-rent-these-days/)
+- [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
 - [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
+- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
 - [8 Super Glamorous Sequined Essentials ...](https://fashion.allwomenstalk.com/super-glamorous-sequined-essentials/)
 - [8 Stylish Suede Shoes ...](https://shoes.allwomenstalk.com/8-stylish-suede-shoes/)
 

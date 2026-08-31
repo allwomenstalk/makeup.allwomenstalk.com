@@ -56,16 +56,16 @@ Nars makes excellent products and it would be great fun to have them all, but at
 
 ## Related Posts
 
-- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
-- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
-- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
 - [margaret rose powder compact](https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/)
-- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
-- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
+- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
+- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
 - [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
+- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
 - [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
+- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

@@ -43,15 +43,15 @@ Taylor Swift has always been a gorgeous girl. That's why she's perfect to use as
 ## Related Posts
 
 - [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
-- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
-- [easy day makeup](https://makeup.allwomenstalk.com/the-4-minute-makeup-routine-for-low-maintenance-women/)
-- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
-- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
-- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
-- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
 - [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
-- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
 - [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
+- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
+- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
+- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
+- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
+- [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
+- [easy day makeup](https://makeup.allwomenstalk.com/the-4-minute-makeup-routine-for-low-maintenance-women/)
+- [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 

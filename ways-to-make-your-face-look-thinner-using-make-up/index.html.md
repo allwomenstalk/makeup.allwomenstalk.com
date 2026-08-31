@@ -56,16 +56,16 @@ Even though I no longer wear make-up, I did wear a lot at one point and have man
 
 ## Related Posts
 
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
 - [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
+- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
 - [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
 - [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
-- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
-- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
-- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
 - [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
 - [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
+- [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
+- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
 - [7 Easy Beauty Tricks to Look Younger ...](https://allwomenstalk.com/7-easy-beauty-tricks-to-look-younger/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

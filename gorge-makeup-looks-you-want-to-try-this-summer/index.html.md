@@ -210,16 +210,16 @@ She even has her own makeup classes! If you need some makeup ideas for some of t
 
 ## Related Posts
 
-- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
-- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
-- [nolay nose](https://makeup.allwomenstalk.com/beautiful-makeup-looks-for-girls-who-want-to-shake-up-their-beauty-routine/)
 - [how to feel pretty without makeup](https://beauty.allwomenstalk.com/hacks-for-girls-who-want-to-look-good-without-makeup/)
+- [riche stylo avant azure](https://makeup.allwomenstalk.com/video-tutorials-for-girls-who-want-to-enhance-their-cheekbones/)
+- [makeup girl](https://makeup.allwomenstalk.com/easy-makeup-tutorials-for-green-eyed-girls/)
+- [tutorial how to apply mascara](https://makeup.allwomenstalk.com/tutorials-for-applying-mascara-for-girls-tired-of-fake-eyelashes/)
+- [nolay nose](https://makeup.allwomenstalk.com/beautiful-makeup-looks-for-girls-who-want-to-shake-up-their-beauty-routine/)
+- [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
 - [how to do eyeshadow on hooded eyes](https://makeup.allwomenstalk.com/makeup-tutorials-for-girls-with-hooded-lids/)
 - [can crying ruin lash extensions](https://beauty.allwomenstalk.com/habits-that-can-ruin-your-eyelashes/)
 - [jaw dropping beautiful](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-youll-want-to-copy-right-now/)
-- [tutorial how to apply mascara](https://makeup.allwomenstalk.com/tutorials-for-applying-mascara-for-girls-tired-of-fake-eyelashes/)
-- [chic makeup](https://fashion.allwomenstalk.com/beautiful-fashion-and-makeup-ideas-for-chic-girls/)
-- [makeup girl](https://makeup.allwomenstalk.com/easy-makeup-tutorials-for-green-eyed-girls/)
+- [how to stop makeup from transferring](https://makeup.allwomenstalk.com/stop-doing-these-things-that-are-making-your-makeup-dirty/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

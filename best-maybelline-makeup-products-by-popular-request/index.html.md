@@ -56,16 +56,16 @@ I have a friend who uses one makeup brand exclusively, and even does the same fo
 
 ## Related Posts
 
-- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
 - [good drugstore primer](https://makeup.allwomenstalk.com/best-drugstore-primers-to-use-right-now/)
 - [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
 - [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
 - [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
-- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [margaret rose powder compact](https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/)
 - [full size products](https://beauty.allwomenstalk.com/times-to-buy-beauty-minis-versus-full-sized-products/)
-- [makeup forever duo mat](https://makeup.allwomenstalk.com/products-from-makeup-forever-that-will-make-you-want-to-go-shopping/)
+- [nars product](https://makeup.allwomenstalk.com/compelling-nars-products-that-will-justify-their-price/)
+- [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
+- [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

@@ -188,15 +188,15 @@ One of my favorite Desi beauty vloggers includes [@anchalmua](https://www.facebo
 
 ## Related Posts
 
-- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
 - [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
-- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
-- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
 - [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
 - [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
+- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
 - [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
+- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
 - [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
 - [loreal paris riche le stylo shadow primped and pre...](https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/)
+- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
 - [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
 - [19 Wonderful Makeup Tips for Indian Skin Tones ...](https://makeup.allwomenstalk.com/wonderful-makeup-tips-for-indian-skin-tones/)
 - [Makeup Artist Brings Animated Characters to Life o...](https://makeup.allwomenstalk.com/makeup-artist-brings-animated-characters-to-life-on-her-face/)

@@ -56,16 +56,16 @@ These are a few eye makeup mistakes that women make. What are some others that y
 
 ## Related Posts
 
-- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
-- [color stylo bottomless](https://makeup.allwomenstalk.com/reasons-to-incorporate-color-into-your-makeup-routine/)
 - [beauty products blog](https://beauty.allwomenstalk.com/ways-to-get-free-makeup-by-beauty-blogging/)
-- [makeup mistakes that age you](https://makeup.allwomenstalk.com/makeup-mistakes-that-make-you-look-older-2/)
-- [eye makeup for dark hair](https://makeup.allwomenstalk.com/amazing-tips-for-women-with-dark-hair/)
-- [famous makeup influencers](https://makeup.allwomenstalk.com/makeup-bloggers-to-like-on-facebook/)
 - [amazing face makeup](https://makeup.allwomenstalk.com/makeup-tips-to-brighten-your-face/)
 - [paris riche stylo smoky bottomless java](https://makeup.allwomenstalk.com/ways-to-add-grey-into-your-makeup-and-beauty-routine/)
-- [how do you apply make up](https://makeup.allwomenstalk.com/easy-to-apply-make-up-items-you-can-use-your-fingertips-for/)
 - [exact eyelights](https://makeup.allwomenstalk.com/ways-to-transition-your-makeup-from-winter-to-spring/)
+- [color stylo bottomless](https://makeup.allwomenstalk.com/reasons-to-incorporate-color-into-your-makeup-routine/)
+- [famous makeup influencers](https://makeup.allwomenstalk.com/makeup-bloggers-to-like-on-facebook/)
+- [how do you apply make up](https://makeup.allwomenstalk.com/easy-to-apply-make-up-items-you-can-use-your-fingertips-for/)
+- [makeup mistakes that age you](https://makeup.allwomenstalk.com/makeup-mistakes-that-make-you-look-older-2/)
+- [eye makeup for dark hair](https://makeup.allwomenstalk.com/amazing-tips-for-women-with-dark-hair/)
+- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 

@@ -70,16 +70,16 @@ Finding the ideal blush colors for dark skin comes down to choosing rich, pigmen
 
 ## Related Posts
 
-- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
 - [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
-- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
-- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
-- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
-- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
-- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
-- [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
 - [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
 - [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
+- [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
+- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
+- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
+- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
+- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [My Top 5 Blushes ...](https://allwomenstalk.com/my-top-5-blushes/)
 

@@ -56,16 +56,16 @@ I know I can’t be the only one who has rushed mornings when getting my full fa
 
 ## Related Posts
 
-- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
 - [do you put on mascara before false eyelashes](https://makeup.allwomenstalk.com/ways-to-make-the-most-of-false-eyelashes/)
-- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
 - [color riche le stylo infinite sky](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-younger/)
-- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
-- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
-- [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
 - [new years eve makeup ideas](https://makeup.allwomenstalk.com/new-years-eve-makeup-tutorials-thatll-make-you-feel-like-the-belle-of-the-ball/)
+- [holiday looks makeup](https://makeup.allwomenstalk.com/ideas-for-perfect-holiday-makeup/)
+- [how to buy foundation for the first time](https://makeup.allwomenstalk.com/easy-steps-to-using-foundation-for-the-first-time/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [how to apply top eyeliner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner/)
+- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
 - [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
+- [eye liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 

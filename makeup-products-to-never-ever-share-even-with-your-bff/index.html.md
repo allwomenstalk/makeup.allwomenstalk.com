@@ -56,16 +56,16 @@ It kind of sucks that you have to avoid sharing some products (and it sucks even
 
 ## Related Posts
 
-- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
-- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
 - [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
-- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
-- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
-- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
-- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
-- [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
 - [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
+- [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
+- [nigerian eyebrows](https://makeup.allwomenstalk.com/the-hottest-nigerian-makeup-artist-to-hit-the-web/)
+- [unicorn face makeup](https://makeup.allwomenstalk.com/droolworthy-unicorn-makeup-products/)
+- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
+- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
 - [hottest instagram accounts 2023](https://beauty.allwomenstalk.com/hottest-beauty-products-all-influencers-are-secretly-using/)
+- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
 - [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
 - [7 Weird Makeup Trends to Avoid ...](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
 

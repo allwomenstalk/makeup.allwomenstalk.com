@@ -42,16 +42,16 @@ Lipstick is wonderful for making you feel gorgeous, but gloss is just as valuabl
 
 ## Related Posts
 
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
-- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
+- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
 - [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
-- [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
-- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
 - [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
-- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
+- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
 - [My Top 5 Lip Glosses ...](https://allwomenstalk.com/my-top-5-lip-glosses/)
 - [All about the Lip Stains](https://allwomenstalk.com/all-about-the-lip-stains/)
 

@@ -42,16 +42,16 @@ Which of these makeup looks will you be recreating for New Year's?
 
 ## Related Posts
 
-- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
-- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
 - [paris riche le stylo eye shadow primped and](https://makeup.allwomenstalk.com/eyeshadow-tricks-that-every-girl-should-know/)
-- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
-- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
-- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
-- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
-- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
-- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
 - [tips for make up](https://makeup.allwomenstalk.com/tips-for-getting-the-most-out-of-your-make-up-brushes/)
+- [cold red lipstick](https://makeup.allwomenstalk.com/ways-to-hide-your-cold-with-makeup/)
+- [yellow and black eyeshadow looks](https://makeup.allwomenstalk.com/daring-eye-makeup-looks-to-try-in/)
+- [photogenic makeup](https://makeup.allwomenstalk.com/easy-tricks-for-photo-friendly-makeup/)
+- [alicia buckle lipstick](https://makeup.allwomenstalk.com/makeup-tricks-to-fake-a-good-nights-sleep/)
+- [how to make face appear thinner](https://makeup.allwomenstalk.com/makeup-tricks-to-make-your-face-look-thinner/)
+- [free makeup](https://makeup.allwomenstalk.com/easy-ways-to-get-free-makeup/)
+- [how many layers of mascara](https://makeup.allwomenstalk.com/mascara-mistakes-you-might-be-making/)
+- [easy valentine's day makeup](https://makeup.allwomenstalk.com/undeniably-gorgeous-makeup-tutorials-for-valentines-day/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

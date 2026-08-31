@@ -56,16 +56,16 @@ These’re 7 tips you can use to wear a smoky eye a little differently. Which on
 
 ## Related Posts
 
-- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
-- [glamor makeup looks](https://makeup.allwomenstalk.com/these-glamorous-makeup-tutorials-will-make-you-look-like-adele/)
-- [alien eyebrow neglect](https://makeup.allwomenstalk.com/never-make-these-makeup-mistakes-if-you-wear-glasses/)
-- [body makeuo](https://makeup.allwomenstalk.com/body-makeup-thatll-hide-all-of-your-skin-sins/)
 - [what cancels purple](https://makeup.allwomenstalk.com/what-should-you-know-about-color-correcting-makeup/)
-- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
-- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
-- [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
+- [glamor makeup looks](https://makeup.allwomenstalk.com/these-glamorous-makeup-tutorials-will-make-you-look-like-adele/)
 - [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
+- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
+- [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
+- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
+- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
+- [alien eyebrow neglect](https://makeup.allwomenstalk.com/never-make-these-makeup-mistakes-if-you-wear-glasses/)
 - [which country wears the least makeup](https://makeup.allwomenstalk.com/here-are-the-real-reasons-why-women-wear-makeup/)
+- [body makeuo](https://makeup.allwomenstalk.com/body-makeup-thatll-hide-all-of-your-skin-sins/)
 - [7 Things Needed to Make Smoky Eyes ...](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [Natali@](https://www.flickr.com/photos/nata_li/2813565524/)
 
 ## Related Posts
 
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
-- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
-- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
-- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
-- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 - [make up test](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
-- [how to apply liquid eyeliner](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
 - [fast makeup](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [loreal color riche stylo bottomless](https://makeup.allwomenstalk.com/summer-makeup-looks/)
+- [how to apply liquid eyeliner](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
+- [too much makeup girl](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
+- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
+- [tips to make makeup last longer](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
+- [7 Tips for Streamlining Your Makeup Collection ...](https://makeup.allwomenstalk.com/7-tips-for-streamlining-your-makeup-collection/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [8 Tricks Make up Artists Use ...](https://makeup.allwomenstalk.com/8-tricks-make-up-artists-use/)
 

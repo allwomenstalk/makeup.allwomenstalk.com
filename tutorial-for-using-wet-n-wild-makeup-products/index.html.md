@@ -27,16 +27,16 @@ I hope you like this tutorial for Wet n Wild! What have you learned?
 
 ## Related Posts
 
-- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
-- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
-- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
-- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
-- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
-- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
-- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
-- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
-- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
 - [blue mascara looks](https://makeup.allwomenstalk.com/how-to-wear-coloured-mascara/)
+- [minimal makeup ideas](https://makeup.allwomenstalk.com/tips-for-a-natural-no-makeup-look/)
+- [easy contour drawing](https://makeup.allwomenstalk.com/tips-to-make-contouring-your-face-easy/)
+- [prone girl](https://makeup.allwomenstalk.com/how-to-wear-makeup-when-you-have-acne-prone-skin/)
+- [perfect mascara application](https://makeup.allwomenstalk.com/best-tips-for-applying-mascara/)
+- [celebrity beauties](https://beauty.allwomenstalk.com/makeup-videos-from-our-favorite-celebrity-beauties/)
+- [make up on fleek](https://beauty.allwomenstalk.com/ways-to-make-your-eyebrows-on-fleek/)
+- [believe makeup](https://makeup.allwomenstalk.com/dont-believe-these-false-facts-about-makeup/)
+- [how to contour face shapes](https://makeup.allwomenstalk.com/how-to-contour-for-your-face-shape/)
+- [paris riche stylo smoldering plum](https://makeup.allwomenstalk.com/supermodel-secrets-for-natural-looking-makeup/)
 - [How to Apply Mineral Makeup - Your Ultimate Guide!](https://allwomenstalk.com/how-to-apply-mineral-makeup-your-ultimate-guide/)
 - [7 Makeup Tutorials You Must Watch ...](https://makeup.allwomenstalk.com/makeup-tutorials-you-must-watch/)
 

@@ -74,16 +74,16 @@ How long does your morning makeup routine take? Will you try this one instead?
 
 ## Related Posts
 
-- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
-- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
-- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
-- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
-- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
 - [pear face haircut](https://beauty.allwomenstalk.com/face-shapes-and-their-typical-characteristics-for-curious-girls/)
-- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
 - [young girls make up](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-resting-bitch-face/)
-- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
 - [makeup tutorials for older women](https://makeup.allwomenstalk.com/vintage-makeup-looks-for-women-with-old-souls/)
+- [non irritating eye makeup](https://makeup.allwomenstalk.com/how-to-apply-makeup-on-sensitive-eyes-without-irritating-them/)
+- [when to toss makeup](https://makeup.allwomenstalk.com/this-is-when-you-should-toss-old-makeup/)
+- [make up hacks](https://makeup.allwomenstalk.com/super-easy-makeup-hacks-for-super-lazy-women/)
+- [wide eye girls](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-girls-with-wide-set-eyes/)
+- [tumblr beauties](https://makeup.allwomenstalk.com/7-makeup-tutorials-for-women-who-love-tumblr/)
+- [clumsy eyes](https://makeup.allwomenstalk.com/great-makeup-techniques-for-clumsy-girls/)
+- [deepset eye](https://makeup.allwomenstalk.com/every-woman-with-deep-set-eyes-should-watch-these-eyeshadow-tutorials/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Fabulous 5-Minute Beauty Tips ...](https://beauty.allwomenstalk.com/fabulous-minute-beauty-tips/)
 

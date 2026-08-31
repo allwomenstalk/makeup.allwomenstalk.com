@@ -56,16 +56,16 @@ Have you tried some of these popular cosmetics? Has your experience been anythin
 
 ## Related Posts
 
-- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
-- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
-- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
 - [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
-- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
-- [feather eyelashes sephora](https://makeup.allwomenstalk.com/fun-pairs-of-false-lashes-youll-love-to-wear/)
 - [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
 - [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
 - [ped egg pink](https://beauty.allwomenstalk.com/egg-shaped-beauty-products-for-easter-and-spring/)
+- [feather eyelashes sephora](https://makeup.allwomenstalk.com/fun-pairs-of-false-lashes-youll-love-to-wear/)
+- [womens blush brushes](https://makeup.allwomenstalk.com/excellent-brands-of-makeup-brushes-youll-wonder-how-you-lived-without/)
+- [great drugstore makeup](https://makeup.allwomenstalk.com/great-drugstore-duplicates-for-high-end-makeup/)
+- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
+- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
+- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
 - [7 Beauty Products I Totally Hated ...](https://makeup.allwomenstalk.com/beauty-products-i-totally-hated/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 

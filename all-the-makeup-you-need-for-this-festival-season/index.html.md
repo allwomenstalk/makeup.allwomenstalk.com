@@ -65,15 +65,15 @@ So which summer festivals are you going to this year? And what's in your makeup 
 
 ## Related Posts
 
-- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
 - [yuni jasmine real face](https://beauty.allwomenstalk.com/absolute-best-bath-body-products-under-50-for-girls-on-all-budgets/)
-- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
-- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
-- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
-- [best makeup brands](https://makeup.allwomenstalk.com/best-makeup-products-everyone-is-buying-right-now/)
-- [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
 - [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
+- [best makeup brands](https://makeup.allwomenstalk.com/best-makeup-products-everyone-is-buying-right-now/)
+- [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
+- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
+- [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
 - [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
+- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
+- [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
 - [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)

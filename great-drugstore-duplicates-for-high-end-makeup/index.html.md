@@ -56,16 +56,16 @@ Makeup is so much fun to play around with. These are some of my favorite drugsto
 
 ## Related Posts
 
-- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
-- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
-- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
-- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
-- [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
-- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
-- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
 - [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
+- [best drugstore brush for liquid foundation](https://makeup.allwomenstalk.com/must-have-makeup-brushes-for-beginners/)
+- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
 - [vbeaute reviews](https://beauty.allwomenstalk.com/indulgent-beauty-products-you-didnt-know-you-needed/)
+- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
 - [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
+- [loreal stylo smoky eye timeless spark](https://makeup.allwomenstalk.com/best-eye-shadow-primers-youve-gotta-try/)
+- [tarte picture perfect duo picture perfect duo](https://makeup.allwomenstalk.com/top-rated-eyelash-curlers-for-almost-every-budget/)
+- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
+- [benefit cosmetics discontinued products](https://makeup.allwomenstalk.com/fabulous-and-fun-named-products-from-benefit-cosmetics/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Long-Lasting Make-up Products ...](https://allwomenstalk.com/7-long-lasting-make-up-products/)
 

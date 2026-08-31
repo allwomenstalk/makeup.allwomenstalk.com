@@ -56,16 +56,16 @@ Would you try pastel eyeliner? What color?
 
 ## Related Posts
 
-- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
-- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
 - [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
-- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
-- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
-- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
-- [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
-- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
-- [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
 - [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
+- [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
+- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
+- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
+- [double chin makeup hack](https://makeup.allwomenstalk.com/simple-ways-to-score-free-makeup-samples/)
+- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
+- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
 - [Makeup 101: 5 Helpful Eyeliner and Mascara Tips .....](https://makeup.allwomenstalk.com/makeup-101-helpful-eyeliner-and-mascara-tips/)
 - [7 Insider Tips for Getting Your Mascara Just Right...](https://makeup.allwomenstalk.com/insider-tips-for-getting-your-mascara-just-right/)
 

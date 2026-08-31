@@ -41,15 +41,15 @@ Quick tips for perfect matte lips:
 ## Related Posts
 
 - [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
-- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
-- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
-- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
-- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
 - [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
+- [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
 - [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
+- [berry lip makeup look](https://makeup.allwomenstalk.com/stunning-photos-of-your-favorite-celebrities-wearing-berry-lips/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [how to make lips super soft](https://skincare.allwomenstalk.com/how-to-keep-your-lips-soft-and-smooth/)
+- [graphic eyeliner ideas](https://makeup.allwomenstalk.com/the-best-liquid-liners-for-drawing-graphic-liner/)
 - [7 Gorgeous Alternatives to Lipstick to Try ...](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
 - [7 Luscious Lipsticks for Summer That You're Gonna ...](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
 

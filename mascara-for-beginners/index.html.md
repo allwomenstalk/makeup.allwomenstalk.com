@@ -42,15 +42,15 @@ I love talking mascara with you. What questions do you have when it comes to thi
 
 ## Related Posts
 
-- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
+- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
+- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
 - [mascara kylie jenner](https://makeup.allwomenstalk.com/steal-kylie-jenners-mascara-trick/)
+- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
+- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
 - [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [paris smoky eye hollywood icon](https://makeup.allwomenstalk.com/bad-makeup-habits-you-have-to-drop/)
-- [loreal le stylo smoky eye amber](https://makeup.allwomenstalk.com/smoky-eye-inspiration-to-make-your-makeup-fierce/)
-- [eyeliner hack](https://makeup.allwomenstalk.com/eyeliner-for-beginners/)
-- [loreal riche le smoky eye shadow blinged](https://makeup.allwomenstalk.com/makeup-videos-that-illustrate-perfect-cat-eyes/)
-- [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
+- [sephora urban decay space cowboy](https://makeup.allwomenstalk.com/glamorous-golden-glitter-makeup-looks/)
 - [make up problem](https://makeup.allwomenstalk.com/solutions-to-your-pesky-makeup-problems/)
 - [Blinc Mascara – Expert Review ...](https://allwomenstalk.com/blinc-mascara-expert-review/)
 - [L’Oreal Bare Naturale Mascara - Expert Review ...](https://allwomenstalk.com/loreal-bare-naturale-mascara-expert-review/)

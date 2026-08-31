@@ -56,15 +56,15 @@ Nobody is safe from these make up mistakes. We have all seen them on others or o
 
 ## Related Posts
 
-- [paris riche le smoky eye shadow eternal sunshine](https://makeup.allwomenstalk.com/ways-to-wear-bold-eye-shadow-this-season/)
-- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
+- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
+- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
 - [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
 - [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
-- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
 - [how to choose the right makeup](https://makeup.allwomenstalk.com/things-to-consider-when-choosing-make-up-that-will-have-you-looking-fabulous/)
+- [paris riche stylo eye and brilliant](https://makeup.allwomenstalk.com/colored-eyeliners-that-will-make-your-eyes-pop/)
+- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
+- [paris riche le smoky eye shadow eternal sunshine](https://makeup.allwomenstalk.com/ways-to-wear-bold-eye-shadow-this-season/)
 - [mary kay yellow concealer](https://makeup.allwomenstalk.com/concealer-mistakes-that-could-be-doing-you-more-harm-than-you-realize/)
-- [how to do clean makeup look](https://makeup.allwomenstalk.com/ways-to-get-the-no-makeup-makeup-look/)
-- [makeup for blue clothes](https://makeup.allwomenstalk.com/ways-to-wear-blue-make-up/)
 - [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
 - [8 Classic Make up Mistakes to Avoid ...](https://allwomenstalk.com/8-classic-make-up-mistakes-to-avoid/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)

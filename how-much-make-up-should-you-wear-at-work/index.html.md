@@ -43,15 +43,15 @@ How much make-up do you wear to work? Will these tips help you get it just right
 ## Related Posts
 
 - [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
-- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
-- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
-- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
-- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
-- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
-- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
-- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
 - [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
+- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
+- [powerbrows](https://beauty.allwomenstalk.com/how-to-get-power-brows-like-cara-delevigne/)
+- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
+- [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
+- [paris riche stylo smoky always pearly](https://makeup.allwomenstalk.com/summer-makeup-trends-you-havent-tried-yet/)
+- [orange makeup meme](https://beauty.allwomenstalk.com/witty-makeup-memes-all-makeup-lovers-can-relate-to/)
+- [how to make your eyes sparkle](https://beauty.allwomenstalk.com/ways-to-make-your-eyes-look-like-theyre-sparkling/)
+- [smudge free makeup](https://makeup.allwomenstalk.com/how-can-you-keep-your-makeup-smudge-free/)
 - [How do You Organize Your Makeup?](https://allwomenstalk.com/how-do-you-organize-your-makeup/)
 - [12 Top Makeup Tips for Work ...](https://allwomenstalk.com/12-top-makeup-tips-for-work/)
 

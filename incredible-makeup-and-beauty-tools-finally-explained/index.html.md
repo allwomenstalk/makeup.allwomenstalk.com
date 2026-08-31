@@ -134,16 +134,16 @@ As you can see, there are a ton of different makeup tools out there to use but y
 
 ## Related Posts
 
-- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
-- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
-- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
+- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
+- [while analyzing sonia's features, you noticed that...](https://beauty.allwomenstalk.com/travel-friendly-beauty-products-to-pack/)
+- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
 - [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
 - [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [what's illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
-- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

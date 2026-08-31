@@ -16,16 +16,16 @@ You have to admit that these shades look amazing on these beautiful women! If yo
 
 ## Related Posts
 
-- [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
-- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
-- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
-- [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
-- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
-- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
-- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
 - [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
+- [consensual mac](https://makeup.allwomenstalk.com/your-lips-but-better-lip-products-you-need-now/)
+- [sephora smokey eye](https://makeup.allwomenstalk.com/red-lips-inspos-thatll-have-you-running-to-sephora/)
+- [slick lips](https://makeup.allwomenstalk.com/take-a-look-at-these-oil-slick-lips/)
 - [90s grunge hairstyles female](https://makeup.allwomenstalk.com/heres-how-you-can-pull-off-the-grunge-lipstick-trend/)
+- [paris color riche le smoky eye pearly pink](https://makeup.allwomenstalk.com/wear-one-of-these-lovely-pink-lippies-on-valentines-day/)
 - [bright berry lipstick](https://makeup.allwomenstalk.com/wear-berry-lipstick-the-way-these-instagram-beauties-do/)
+- [black dress with red lips](https://fashion.allwomenstalk.com/these-outfit-ideas-will-look-amazing-with-red-lipstick/)
+- [tarte lip surgeons matte lip crayon](https://makeup.allwomenstalk.com/every-girl-needs-to-test-out-these-grunge-lipsticks/)
+- [leopard makeup look](https://makeup.allwomenstalk.com/look-at-these-delicious-leopard-lips/)
 - [REVIEW: Blissoma's Lip Elixir ...](https://allwomenstalk.com/review-blissomas-lip-elixir/)
 - [My Top 5 Lip Plumpers ...](https://allwomenstalk.com/my-top-5-lip-plumpers/)
 

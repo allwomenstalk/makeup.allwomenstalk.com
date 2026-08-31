@@ -94,16 +94,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
-- [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
-- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
-- [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
-- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
 - [ivory colour skin](https://makeup.allwomenstalk.com/clever-makeup-tips-for-ivory-skin/)
 - [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
-- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
-- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
+- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
+- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
+- [tomboy glow up](https://makeup.allwomenstalk.com/splendid-makeup-tips-for-tomboys/)
 - [eye makeup unique](https://makeup.allwomenstalk.com/swirl-makeup-tutorials-for-unique-eye-makeup/)
+- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
+- [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
+- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
+- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [7 Liquid Eyeliner Application Tips ...](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
 

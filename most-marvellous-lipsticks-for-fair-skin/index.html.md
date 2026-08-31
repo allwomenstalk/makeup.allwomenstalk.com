@@ -72,16 +72,16 @@ Top Image Source: [Gemma Booth](https://goo.gl/MUh5V0)
 
 ## Related Posts
 
-- [8 Great Lip Products for Chapped Lips ...](https://skincare.allwomenstalk.com/great-lip-products-for-chapped-lips/)
-- [best lipgloss summer](https://beauty.allwomenstalk.com/standout-summer-lip-glosses/)
-- [color le stylo eye smoldering plum](https://beauty.allwomenstalk.com/tips-on-how-to-wear-matte-lips-this-season/)
 - [iluvsarahii before and after bbl](https://beauty.allwomenstalk.com/pointers-for-growing-luscious-lashes/)
-- [8 Awesome Tips for Kissable Lips ...](https://beauty.allwomenstalk.com/awesome-tips-for-kissable-lips/)
+- [8 Great Lip Products for Chapped Lips ...](https://skincare.allwomenstalk.com/great-lip-products-for-chapped-lips/)
+- [color le stylo eye smoldering plum](https://beauty.allwomenstalk.com/tips-on-how-to-wear-matte-lips-this-season/)
+- [best lipgloss summer](https://beauty.allwomenstalk.com/standout-summer-lip-glosses/)
 - [rich red lipstick](https://makeup.allwomenstalk.com/rich-red-lipsticks-for-fall/)
 - [7 Homemade Lip Balms to Try ...](https://makeup.allwomenstalk.com/homemade-lip-balms-to-try/)
-- [9 Useful Ways to Reduce Lip Lines ...](https://skincare.allwomenstalk.com/useful-ways-to-reduce-lip-lines/)
 - [7 Steps for Voluminous Looking Lips ...](https://beauty.allwomenstalk.com/steps-for-volunious-looking-lips/)
 - [7 Pretty Pointers on Caring for Lips ...](https://skincare.allwomenstalk.com/pretty-pointers-on-caring-for-lips/)
+- [8 Awesome Tips for Kissable Lips ...](https://beauty.allwomenstalk.com/awesome-tips-for-kissable-lips/)
+- [9 Useful Ways to Reduce Lip Lines ...](https://skincare.allwomenstalk.com/useful-ways-to-reduce-lip-lines/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
 

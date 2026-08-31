@@ -81,15 +81,15 @@ These are my tricks for keeping eyeliner from sliding away, but I’m sure you h
 ## Related Posts
 
 - [coral color lipstick](https://makeup.allwomenstalk.com/ways-to-incorporate-coral-makeup/)
-- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
 - [best mascara for lengthening lashes](https://makeup.allwomenstalk.com/lengthening-mascaras-that-are-better-than-false-lashes/)
-- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
 - [asian big eye makeup](https://makeup.allwomenstalk.com/asian-eye-makeup-tricks-to-try/)
 - [pin up look makeup](https://makeup.allwomenstalk.com/pin-up-girl-makeup-looks-to-try/)
-- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
-- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
+- [beauty tips for black women](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
 - [paris color le stylo smoky eye a twist](https://makeup.allwomenstalk.com/new-smoky-eye-looks/)
+- [good eye primers](https://makeup.allwomenstalk.com/primers-for-perfect-eyeshadow/)
+- [cat eye makeup over 40](https://makeup.allwomenstalk.com/classic-makeup-looks-to-try/)
 - [how to apply liquid eye liner](https://makeup.allwomenstalk.com/tips-for-applying-eyeliner-perfectly/)
+- [makeup tips for photos](https://makeup.allwomenstalk.com/tips-for-photography-friendly-makeup/)
 - [7 Tips to Apply Liquid Liner like a Pro ...](https://makeup.allwomenstalk.com/tips-to-apply-liquid-liner-like-a-pro/)
 - [7 Tips on How to Apply Eyeliner ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eyeliner/)
 

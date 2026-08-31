@@ -43,15 +43,15 @@ So ladies, there you have it! All of my top makeup tips for all eye shapes that 
 ## Related Posts
 
 - [can you wash mascara off in the shower](https://makeup.allwomenstalk.com/ways-to-get-mascara-off-easily/)
-- [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
 - [hot eye makeup](https://makeup.allwomenstalk.com/makeup-looks-to-look-hot-without-a-smoky-eye/)
-- [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
-- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
-- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
-- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
-- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
-- [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
 - [cool eye makeup](https://makeup.allwomenstalk.com/top-tips-for-awesome-eye-makeup/)
+- [how to do makeup for brown eyes](https://makeup.allwomenstalk.com/fab-makeup-tricks-to-enhance-the-green-in-your-eyes/)
+- [eye gem makeup](https://makeup.allwomenstalk.com/eye-gem-makeup-tricks-to-try/)
+- [colored eyes girls](https://makeup.allwomenstalk.com/awesome-makeup-secrets-for-multi-colored-eyes/)
+- [mascaras with small brushes](https://makeup.allwomenstalk.com/things-you-need-to-know-about-mascara-brushes/)
+- [how to get off waterproof makeup](https://makeup.allwomenstalk.com/unexpected-ways-to-remove-water-proof-makeup/)
+- [copper hair latina](https://makeup.allwomenstalk.com/makeup-tips-for-latina-skin-tones/)
+- [how to have thicker eyebrows](https://makeup.allwomenstalk.com/awesome-tips-for-getting-thicker-eyebrows/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Gorgeous Eye Makeup Ideas ...](https://allwomenstalk.com/gorgeous-eye-makeup-ideas/)
 

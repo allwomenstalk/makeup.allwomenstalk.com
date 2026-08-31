@@ -40,16 +40,16 @@ What other tips do you have for women who want to create a [smokey eye look](htt
 
 ## Related Posts
 
-- [how to use color oops](https://hair.allwomenstalk.com/dont-panic-heres-how-to-fix-that-bad-hair-color/)
-- [make up colorful](https://makeup.allwomenstalk.com/gorgeous-ways-to-add-some-color-to-your-face/)
-- [nose lashes](https://beauty.allwomenstalk.com/things-you-need-to-do-for-long-lashes/)
 - [riche stylo always pearly](https://makeup.allwomenstalk.com/secrets-girls-with-gorgeous-makeup-wont-tell-you/)
 - [infographic about makeup](https://makeup.allwomenstalk.com/youll-be-blown-away-by-these-makeup-infographics/)
 - [why do i look wide in photos](https://beauty.allwomenstalk.com/all-you-need-to-do-to-make-your-eyes-look-wide-awake/)
-- [eye shape makeup](https://makeup.allwomenstalk.com/the-best-makeup-routine-for-your-eye-shape/)
 - [learn how to do your makeup](https://makeup.allwomenstalk.com/a-video-for-women-who-have-never-learned-how-to-do-makeup/)
+- [nose lashes](https://beauty.allwomenstalk.com/things-you-need-to-do-for-long-lashes/)
+- [how to use color oops](https://hair.allwomenstalk.com/dont-panic-heres-how-to-fix-that-bad-hair-color/)
+- [eye shape makeup](https://makeup.allwomenstalk.com/the-best-makeup-routine-for-your-eye-shape/)
 - [lauren conrad makeup](https://makeup.allwomenstalk.com/steal-lauren-conrads-5-minute-makeup-routine/)
 - [looking good with glasses](https://beauty.allwomenstalk.com/tweaks-thatll-make-your-glasses-look-more-stylish/)
+- [make up colorful](https://makeup.allwomenstalk.com/gorgeous-ways-to-add-some-color-to-your-face/)
 - [7 Things Needed to Make Smoky Eyes ...](https://makeup.allwomenstalk.com/things-needed-to-make-smoky-eyes/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 

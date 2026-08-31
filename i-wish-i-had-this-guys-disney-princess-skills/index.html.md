@@ -68,16 +68,16 @@ To see more of Richard's amazing cosplays, follow him on Instagram at @theoffici
 
 ## Related Posts
 
-- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
-- [calculus videos](https://lifestyle.allwomenstalk.com/videos-in-which-a-hot-guy-completely-covers-your-calculus-i-save-it-now/)
-- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
 - [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
+- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
 - [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
+- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
+- [calculus videos](https://lifestyle.allwomenstalk.com/videos-in-which-a-hot-guy-completely-covers-your-calculus-i-save-it-now/)
+- [eating pretzels gif](https://lifestyle.allwomenstalk.com/youll-be-strangely-hypnotized-by-these-mesmerizing-gifs-of-things-being-made/)
+- [why did he ghost me](https://love.allwomenstalk.com/what-happens-when-mr-ghost-is-back/)
 - [riche stylo eye enchanted](https://lifestyle.allwomenstalk.com/real-life-enchanted-roses-just-like-beauty-and-the-beast/)
 - [watch pranks](https://funny.allwomenstalk.com/watch-these-hilarious-pranks-to-brighten-your-day/)
 - [short stories from hogwarts of heroism, hardship a...](https://books.allwomenstalk.com/just-jk-hogwarts-is-back-on-our-radar-and-heres-the-magical/)
-- [eating pretzels gif](https://lifestyle.allwomenstalk.com/youll-be-strangely-hypnotized-by-these-mesmerizing-gifs-of-things-being-made/)
-- [why did he ghost me](https://love.allwomenstalk.com/what-happens-when-mr-ghost-is-back/)
 - [If I Could Pick the Cast for the Twilight Movie – ...](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 - [A Little Bit of a Crush, Now* ...](https://allwomenstalk.com/a-little-bit-of-a-crush-now/)
 

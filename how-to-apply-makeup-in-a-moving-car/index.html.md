@@ -16,16 +16,16 @@ Now you can finish your face while you're on your way to work. Do you ever apply
 
 ## Related Posts
 
+- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
+- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
+- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
+- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
+- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
 - [i know nothing about makeup](https://makeup.allwomenstalk.com/do-makeup-techniques-confuse-you/)
 - [how to do makeup like a model](https://makeup.allwomenstalk.com/gorgeous-gigi-hadid-inspired-makeup-tutorials/)
 - [where to.contour](https://makeup.allwomenstalk.com/how-to-contour-each-face-shape/)
-- [eyebrow filter instagram](https://beauty.allwomenstalk.com/how-to-get-instagram-eyebrows/)
-- [eyebrow hacks](https://makeup.allwomenstalk.com/these-eyebrow-hacks-will-make-you-look-better-than-ever/)
-- [crazy makeup transformation](https://makeup.allwomenstalk.com/these-elaborate-makeup-transformations-will-wow-you/)
-- [paris color le stylo smoky shadow bottomless java](https://makeup.allwomenstalk.com/pastel-makeup-thatll-make-you-look-gorgeous-this-spring/)
-- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
 - [blusher face shape](https://makeup.allwomenstalk.com/which-blush-application-technique-will-flatter-your-face-shape/)
-- [what color is embarrassment](https://makeup.allwomenstalk.com/dont-make-these-embarrassing-blush-mistakes/)
+- [how to prevent makeup from caking](https://makeup.allwomenstalk.com/ways-to-stop-your-concealer-from-caking/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 - [Doable Tips to Keep Your Make-up in Place ...](https://makeup.allwomenstalk.com/doable-tips-for-keeping-your-make-up-in-place/)
 

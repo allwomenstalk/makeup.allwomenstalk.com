@@ -50,15 +50,15 @@ I finally wrapped up my seemingly never-ending search for a good foundation with
 
 ## Related Posts
 
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
+- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
+- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
 - [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
 - [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
-- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
-- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
 - [8 Best Drugstore Beauty Products ...](https://makeup.allwomenstalk.com/best-drugstore-beauty-products-3/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)

@@ -158,16 +158,16 @@ $2.99 at [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
-- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
 - [riche stylo smoky eye shadow java](https://beauty.allwomenstalk.com/classic-makeup-mistakes-women-need-to-stop-making/)
-- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
+- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
 - [foratone](https://makeup.allwomenstalk.com/makeup-lies-weve-all-fallen-for-at-one-point-or-another/)
 - [flattering sunglasses](https://fashion.allwomenstalk.com/fab-tips-to-finding-the-most-flattering-sunglasses-for-your-face/)
-- [loreal riche stylo smoky eye shadow avant garde](https://makeup.allwomenstalk.com/gorgeous-makeup-looks-to-match-your-mood-whenever-it-strikes/)
-- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
+- [makeup of girls](https://makeup.allwomenstalk.com/makeup-removers-for-girls-with-even-the-toughest-of-smudges/)
 - [makeup inspiration easy](https://makeup.allwomenstalk.com/easy-makeup-looks-every-girl-should-learn-to-master/)
+- [makeup sticks](https://makeup.allwomenstalk.com/the-greatest-makeup-sticks-to-give-you-an-easy-and-mess-free-routine/)
 - [amazing make up](https://makeup.allwomenstalk.com/how-to-fix-make-up-after-gym/)
+- [big expressive eyes](https://makeup.allwomenstalk.com/makeup-tricks-to-help-you-make-your-eyes-more-expressive/)
+- [buzzfeed mascara](https://makeup.allwomenstalk.com/ways-to-make-your-makeup-look-the-best-it-ever-has/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [Beauty Tips from a Regular Girls Makeup Bag ...](https://allwomenstalk.com/beauty-tips-from-a-regular-girls-makeup-bag/)
 

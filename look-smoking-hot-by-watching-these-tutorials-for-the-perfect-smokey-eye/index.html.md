@@ -42,16 +42,16 @@ Don’t you just love a smokey eye? Which of these videos did you like the best?
 
 ## Related Posts
 
-- [btown eyed girl](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-brown-eyed-girls/)
-- [argaphobia](https://lifestyle.allwomenstalk.com/join-us-on-meerkat-now-to-discuss-what-we-should-write-about-next/)
 - [blue eyes pink eyeshadow](https://makeup.allwomenstalk.com/the-best-makeup-tips-for-blue-eyed-girls/)
-- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
-- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
-- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
-- [how to trim lashes](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
 - [smokey eye brown and gold](https://makeup.allwomenstalk.com/smoldering-smokey-eye-tutorials-to-complement-different-skin-tones/)
+- [argaphobia](https://lifestyle.allwomenstalk.com/join-us-on-meerkat-now-to-discuss-what-we-should-write-about-next/)
+- [the vanity room](https://makeup.allwomenstalk.com/find-your-fantasy-makeup-room-inspiration-here/)
+- [btown eyed girl](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-brown-eyed-girls/)
+- [how to trim lashes](https://makeup.allwomenstalk.com/how-to-master-the-art-of-putting-on-false-eyelashes/)
 - [best eyebrows for diamond face](https://beauty.allwomenstalk.com/what-are-the-best-eyebrows-for-your-face-shape/)
+- [how much makeup is too much for school](https://makeup.allwomenstalk.com/how-much-make-up-should-you-wear-at-work/)
 - [summer make up](https://makeup.allwomenstalk.com/these-summer-makeup-looks-will-make-you-look-gorge-instantly/)
+- [how can i make my eyes symmetrical](https://makeup.allwomenstalk.com/tips-for-making-your-makeup-look-symmetrical/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

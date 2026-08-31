@@ -42,16 +42,16 @@ There's nothing wrong with experimentation, so no matter what your eye color is,
 
 ## Related Posts
 
-- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
-- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
 - [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
+- [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
+- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
 - [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
 - [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
-- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
 - [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
-- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
 - [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
-- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look/)
 - [Beauty Tutorial: How to Get That Fabulous Smoky Lo...](https://allwomenstalk.com/beauty-tutorial-how-to-get-that-fabulous-smoky-look-2/)
 

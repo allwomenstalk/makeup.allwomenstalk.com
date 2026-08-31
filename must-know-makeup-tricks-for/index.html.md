@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/12144799)
 
 ## Related Posts
 
-- [eyeliner smears](https://makeup.allwomenstalk.com/ways-to-make-your-eyeliner-stay-longer/)
-- [makeup for young girls](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
-- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
-- [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
 - [up face](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
+- [light eyeshadow makeup](https://makeup.allwomenstalk.com/makeup-tricks-for-brown-eyes/)
+- [makeup for young girls](https://makeup.allwomenstalk.com/makeup-tricks-for-teenage-girls/)
 - [blueeyedbeauty00](https://makeup.allwomenstalk.com/makeup-tricks-for-gorgeous-blue-eyes/)
-- [makeup tips for diamond shaped face](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
 - [color riche le stylo eye unforgettable](https://makeup.allwomenstalk.com/clever-makeup-tips-on-how-to-make-your-eyes-look-bigger-instantly/)
-- [does baby oil remove makeup](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
 - [how to fix creased concealer](https://makeup.allwomenstalk.com/ways-to-avoid-getting-creases-in-eyeshadow/)
+- [eyeliner smears](https://makeup.allwomenstalk.com/ways-to-make-your-eyeliner-stay-longer/)
+- [does baby oil remove makeup](https://makeup.allwomenstalk.com/best-ways-to-remove-your-makeup-easily/)
+- [how to wear bronzer](https://makeup.allwomenstalk.com/essential-tips-on-how-to-wear-bronzer/)
+- [makeup tips for diamond shaped face](https://makeup.allwomenstalk.com/clever-makeup-tips-for-oval-faces/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

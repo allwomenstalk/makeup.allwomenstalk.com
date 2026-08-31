@@ -136,16 +136,16 @@ These are our favorite 15 best curling wands, but we’d love to hear yours! Wha
 
 ## Related Posts
 
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
-- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
+- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 10 High-Tech Beauty Tools for Your Beautyre .....](https://allwomenstalk.com/top-10-high-tech-beauty-tools-for-your-beauty/)
 

@@ -42,15 +42,15 @@ Now you have a bunch of new looks you can try, inspired by the one and only Adel
 
 ## Related Posts
 
-- [which country wears the least makeup](https://makeup.allwomenstalk.com/here-are-the-real-reasons-why-women-wear-makeup/)
-- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
-- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
 - [body makeuo](https://makeup.allwomenstalk.com/body-makeup-thatll-hide-all-of-your-skin-sins/)
-- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
 - [alien eyebrow neglect](https://makeup.allwomenstalk.com/never-make-these-makeup-mistakes-if-you-wear-glasses/)
 - [what cancels purple](https://makeup.allwomenstalk.com/what-should-you-know-about-color-correcting-makeup/)
-- [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
+- [eye makeup mistakes](https://makeup.allwomenstalk.com/embarrassing-eyeshadow-mistakes-youre-making/)
+- [sexy eyeliner](https://makeup.allwomenstalk.com/ladies-here-are-different-eyeliner-looks-for-you-to-try/)
+- [sparkle make up](https://makeup.allwomenstalk.com/glittery-makeup-ideas-to-help-you-sparkle-at-a-party/)
 - [eyelash game](https://makeup.allwomenstalk.com/how-to-take-your-eyelash-game-to-the-next-level/)
+- [which country wears the least makeup](https://makeup.allwomenstalk.com/here-are-the-real-reasons-why-women-wear-makeup/)
+- [color stylo smoky rush](https://makeup.allwomenstalk.com/how-to-create-a-perfect-navy-blue-smoky-eye/)
 - [eyebrow tint definition](https://beauty.allwomenstalk.com/what-exactly-is-eyebrow-tinting/)
 - [7 Lovely Ways to Achieve a Glamorous Makeup Look ....](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/)
 - [The Cheat-Sheet of Makeup Tips for Looking like a ...](https://makeup.allwomenstalk.com/makeup-cheats-to-make-you-look-like-an-a-list-celebrity/)

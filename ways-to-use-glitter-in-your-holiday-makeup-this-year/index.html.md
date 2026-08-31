@@ -56,16 +56,16 @@ Do you wear glitter for the holidays? How do you plan to do it this year?
 
 ## Related Posts
 
-- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
-- [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
-- [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
-- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
-- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
-- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
-- [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
 - [girls makeup photo](https://makeup.allwomenstalk.com/this-girl-brings-indian-makeup-looks-to-a-whole-new-level-must-see/)
 - [how to fill in thin eyebrows](https://beauty.allwomenstalk.com/lifesaving-shaping-tips-for-girls-with-thin-eyebrows/)
+- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
+- [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
+- [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
+- [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
 - [makeup makes wrinkles look worse](https://makeup.allwomenstalk.com/makeup-mistakes-to-watch-out-for-that-are-making-you-look-tired/)
+- [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
+- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
+- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
 - [7 Colorful Makeup Trends to Try ...](https://makeup.allwomenstalk.com/colorful-makeup-trends-to-try/)
 - [7 Natural Eye Makeup Ideas to Try ...](https://makeup.allwomenstalk.com/natural-eye-makeup-ideas-to-try/)
 

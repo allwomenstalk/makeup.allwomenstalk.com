@@ -54,16 +54,16 @@ Each of these beauty products will help you look pretty in pink all day long. Th
 
 ## Related Posts
 
-- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
-- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
 - [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
-- [7 Best Drugstore Beauty Products to Try ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-to-try/)
-- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
-- [9 Cult Beauty Buys under $10 You've Got to Try out...](https://beauty.allwomenstalk.com/cult-beauty-buys-under-10-youve-got-to-try-out/)
-- [7 of My Favorite Inexpensive Beauty Products ...](https://beauty.allwomenstalk.com/of-my-favorite-inexpensive-beauty-products/)
 - [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
+- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
+- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
+- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
+- [7 of My Favorite Inexpensive Beauty Products ...](https://beauty.allwomenstalk.com/of-my-favorite-inexpensive-beauty-products/)
 - [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
 - [smashbox my digits](https://makeup.allwomenstalk.com/holiday-beauty-collections-that-are-to-die-for/)
+- [7 Best Drugstore Beauty Products to Try ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-to-try/)
+- [9 Cult Beauty Buys under $10 You've Got to Try out...](https://beauty.allwomenstalk.com/cult-beauty-buys-under-10-youve-got-to-try-out/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

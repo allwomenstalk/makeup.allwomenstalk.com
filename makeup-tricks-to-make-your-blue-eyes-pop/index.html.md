@@ -56,16 +56,16 @@ These are 7 tips to make your blue eyes pop. Now it’s your turn. What’s your
 
 ## Related Posts
 
-- [look like model](https://makeup.allwomenstalk.com/look-like-a-victoria-secret-model-with-these-makeup-tutorials/)
-- [d10 eye](https://makeup.allwomenstalk.com/lessons-in-makeup-eye-brushes/)
+- [how to get the last bit of foundation out of a gla...](https://makeup.allwomenstalk.com/ways-to-get-every-bit-of-make-up-from-the-containers/)
 - [eyebrow fleek](https://beauty.allwomenstalk.com/weak-to-fleek-foolproof-tips-for-growing-bolder-brows/)
 - [funky makeup ideas](https://makeup.allwomenstalk.com/blondes-have-more-fun-makeup-tips-for-ladies-with-light-hair/)
-- [how to make eyes look more awake](https://makeup.allwomenstalk.com/makeup-tricks-to-look-more-awake-and-sexy/)
-- [eyebrow measurement](https://beauty.allwomenstalk.com/really-useful-infographics-how-to-get-the-perfect-eyebrows/)
 - [benefits of wearing no makeup](https://makeup.allwomenstalk.com/solid-reasons-to-have-occasional-makeup-free-days/)
+- [how to make eyes look more awake](https://makeup.allwomenstalk.com/makeup-tricks-to-look-more-awake-and-sexy/)
+- [d10 eye](https://makeup.allwomenstalk.com/lessons-in-makeup-eye-brushes/)
+- [eyebrow measurement](https://beauty.allwomenstalk.com/really-useful-infographics-how-to-get-the-perfect-eyebrows/)
 - [makeup idea](https://makeup.allwomenstalk.com/makeup-looks-from-pinterest-thatll-make-you-swoon/)
+- [look like model](https://makeup.allwomenstalk.com/look-like-a-victoria-secret-model-with-these-makeup-tutorials/)
 - [eyeliner with glasses](https://makeup.allwomenstalk.com/handy-makeup-tricks-for-gorgeous-gals-with-glasses/)
-- [how to get the last bit of foundation out of a gla...](https://makeup.allwomenstalk.com/ways-to-get-every-bit-of-make-up-from-the-containers/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 

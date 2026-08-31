@@ -42,16 +42,16 @@ These are 7 things that make a difference between a good makeup day and a bad ma
 
 ## Related Posts
 
-- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
-- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
-- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
-- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
-- [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
-- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
-- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
 - [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
-- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
+- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
+- [mascara clumping in bottle](https://makeup.allwomenstalk.com/how-to-fix-and-avoid-clumpy-mascara/)
+- [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
+- [wedding makeup with glasses](https://makeup.allwomenstalk.com/makeup-tutorials-for-gals-with-glasses/)
 - [how to put blush on](https://makeup.allwomenstalk.com/blush-application-tips-for-attractive-cheeks/)
+- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
+- [makup tips](https://makeup.allwomenstalk.com/life-saving-makeup-tips-for-anyone-with-acne/)
+- [adele look a like](https://makeup.allwomenstalk.com/look-like-adele-by-following-these-makeup-tips/)
 - [7 Ways to Test Makeup ...](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 

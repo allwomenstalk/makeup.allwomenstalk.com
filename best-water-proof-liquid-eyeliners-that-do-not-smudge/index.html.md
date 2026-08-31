@@ -56,16 +56,16 @@ Now that you know which water proof liquid eyeliners won’t smudge, feel free t
 
 ## Related Posts
 
-- [how to do a red lip](https://makeup.allwomenstalk.com/steps-to-creating-perfect-red-lips/)
+- [paris riche stylo blinged and brilliant](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
+- [makeup looks for red dress](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
+- [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
+- [lush lip plumper](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
+- [orange lips makeup](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [7 Liquid Eyeliners ...](https://makeup.allwomenstalk.com/liquid-eyeliners/)
+- [how to do a red lip](https://makeup.allwomenstalk.com/steps-to-creating-perfect-red-lips/)
+- [sweet lip gloss](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 - [luscious lips](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [boots max factor lipfinity](https://makeup.allwomenstalk.com/9-lipsticks-i-swear-by/)
-- [sweet lip gloss](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
-- [7 Fruity Lip Glosses ...](https://makeup.allwomenstalk.com/fruity-lip-glosses/)
-- [orange lips makeup](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
-- [makeup looks for red dress](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
-- [lush lip plumper](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
-- [paris riche stylo blinged and brilliant](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Fun Eyeliner Styles ...](https://makeup.allwomenstalk.com/fun-eyeliner-styles/)
 - [13 Best Eyeliners You Won't Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
 

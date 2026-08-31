@@ -132,15 +132,15 @@ Expand your collection of lipsticks and pick up one of these awesome, moisturizi
 
 ## Related Posts
 
-- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
-- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
-- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
 - [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
-- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
 - [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
 - [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
+- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
+- [best long wearing lip gloss](https://beauty.allwomenstalk.com/best-lip-glosses/)
+- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
 - [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
 - [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
 - [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)

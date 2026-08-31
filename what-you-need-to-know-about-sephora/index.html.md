@@ -42,14 +42,14 @@ We all know that Sephora is the go-to place for all of our makeup needs. Whateve
 
 ## Related Posts
 
-- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
-- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
-- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
 - [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
 - [gym toiletries for her](https://beauty.allwomenstalk.com/beauty-products-to-keep-in-your-gym-bag/)
+- [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
+- [sephora travel shampoo](https://makeup.allwomenstalk.com/travel-sized-sephora-products-to-keep-on-you-at-all-times/)
 - [signs you're not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
+- [why is elf so cheap](https://makeup.allwomenstalk.com/unbelievably-cheap-makeup-steals-from-e-l-f-makeup/)
 - [tend skin dupes](https://makeup.allwomenstalk.com/splurge-or-save-how-to-buy-makeup-like-a-pro/)
 - [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)

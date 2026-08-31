@@ -145,16 +145,16 @@ Price: $22.00 at [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
-- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
-- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
-- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
-- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [what is jennifer lawrence natural hair color](https://makeup.allwomenstalk.com/makeup-looks-inspired-by-jennifer-lawrence/)
+- [the best lash primer](https://makeup.allwomenstalk.com/how-exactly-do-you-use-lash-primer/)
 - [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
-- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
+- [best makeup primer for beginners](https://makeup.allwomenstalk.com/makeup-primers-for-beginners/)
 - [chanel makeup tips](https://makeup.allwomenstalk.com/makeup-tips-that-work-as-well-as-plastic-surgery/)
 - [basic makeup images](https://makeup.allwomenstalk.com/basic-makeup-tips-for-girls-who-hate-makeup/)
+- [how many shades darker for contouring](https://makeup.allwomenstalk.com/how-clown-contouring-is-done/)
+- [farida makeup tutorial](https://makeup.allwomenstalk.com/the-best-makeup-tutorials-for-beginners/)
+- [eyedrows](https://beauty.allwomenstalk.com/sets-of-eyebrows-that-are-very-much-not-on-fleek/)
+- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Tips for Fabulous Evening Makeup ...](https://makeup.allwomenstalk.com/tips-for-fabulous-evening-makeup/)
 

@@ -42,16 +42,16 @@ This is one makeup term guide that should help you understand the purchases that
 
 ## Related Posts
 
-- [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
-- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
 - [diy lash glue](https://beauty.allwomenstalk.com/must-know-tips-on-how-to-care-for-eyelashes-2/)
-- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
-- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
 - [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
-- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
 - [la maximalist eyeshadow blinged and brilliant](https://makeup.allwomenstalk.com/clever-makeup-tips-for-college-girls/)
-- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
 - [ombre hair tutorial](https://hair.allwomenstalk.com/fab-pro-looking-diy-ombre-tutorials/)
+- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
+- [why women love makeup](https://makeup.allwomenstalk.com/splendid-reasons-to-love-makeup/)
+- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
+- [sensible eyes](https://makeup.allwomenstalk.com/makeup-tips-for-sensitive-eyes/)
+- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
+- [makeup transformation celebrity](https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 

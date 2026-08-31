@@ -58,14 +58,14 @@ Who knew that a simple lipstick could bring so much to your life?
 
 - [pretty lips](https://skincare.allwomenstalk.com/tips-for-lovely-lips/)
 - [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
+- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
+- [what brand of lipstick stays on all day](https://makeup.allwomenstalk.com/lipstick-that-actually-lasts-the-best-brands-thatll-stay-on-all-day/)
 - [how to find the right lipstick color](https://makeup.allwomenstalk.com/the-perfect-pout-lip-infographics-you-have-to-see/)
+- [ruby lips meaning](https://makeup.allwomenstalk.com/all-you-need-to-know-to-rock-a-bold-lip-easy-steps/)
 - [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
+- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
 - [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
 - [light pink lips](https://makeup.allwomenstalk.com/makeup-trend-pale-pink-lips-inspos-you-must-try-for-yourself/)
-- [ruby lips meaning](https://makeup.allwomenstalk.com/all-you-need-to-know-to-rock-a-bold-lip-easy-steps/)
-- [what brand of lipstick stays on all day](https://makeup.allwomenstalk.com/lipstick-that-actually-lasts-the-best-brands-thatll-stay-on-all-day/)
-- [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
-- [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

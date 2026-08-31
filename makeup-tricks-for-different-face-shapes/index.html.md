@@ -56,16 +56,16 @@ Whatever face shape you have, embrace it. No face shape is better than another, 
 
 ## Related Posts
 
-- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
-- [how to hide sunburn](https://makeup.allwomenstalk.com/marvelous-makeup-tips-to-cover-up-a-sunburn/)
 - [sea inspired makeup](https://makeup.allwomenstalk.com/unbelievably-pretty-mermaid-makeup-tutorials/)
-- [eye makeup male](https://makeup.allwomenstalk.com/male-makeup-artists-to-follow-on-instagram/)
-- [cute summer makeup](https://makeup.allwomenstalk.com/incredible-ideas-for-summer-makeup/)
-- [mature womens makeup](https://makeup.allwomenstalk.com/makeup-mistakes-mature-women-make/)
+- [how to wear eyeliner on bottom lid](https://makeup.allwomenstalk.com/wickedly-beautiful-ways-to-wear-eyeliner/)
+- [can expired lipstick cause cold sores](https://makeup.allwomenstalk.com/signs-its-time-to-replace-your-make-up/)
 - [celebrity cheat list](https://makeup.allwomenstalk.com/makeup-cheats-to-make-you-look-like-an-a-list-celebrity/)
 - [brigitte bardot eyebrows](https://beauty.allwomenstalk.com/absolutely-flawless-eyebrows/)
 - [brown blue makeup](https://makeup.allwomenstalk.com/different-ways-to-create-gorgeous-smokey-eyes/)
-- [can expired lipstick cause cold sores](https://makeup.allwomenstalk.com/signs-its-time-to-replace-your-make-up/)
+- [mature womens makeup](https://makeup.allwomenstalk.com/makeup-mistakes-mature-women-make/)
+- [cute summer makeup](https://makeup.allwomenstalk.com/incredible-ideas-for-summer-makeup/)
+- [how to hide sunburn](https://makeup.allwomenstalk.com/marvelous-makeup-tips-to-cover-up-a-sunburn/)
+- [eye makeup male](https://makeup.allwomenstalk.com/male-makeup-artists-to-follow-on-instagram/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 

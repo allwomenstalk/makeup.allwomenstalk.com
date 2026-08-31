@@ -42,16 +42,16 @@ These are 7 mistakes that are commonly made when it comes to concealer. Now, it 
 
 ## Related Posts
 
-- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
-- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
-- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
-- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
 - [how to brighten your eyes](https://beauty.allwomenstalk.com/totally-simple-ways-to-brighten-your-eyes/)
-- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
-- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
-- [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
-- [makeup brushes quotes](https://makeup.allwomenstalk.com/pros-and-cons-of-using-makeup-brushes/)
+- [loreal le stylo smoky neon](https://makeup.allwomenstalk.com/classic-eye-makeup-looks-that-never-fail-to-impress/)
 - [homecoming makeup look](https://makeup.allwomenstalk.com/gorgeous-prom-makeup-ideas-you-need-to-try/)
+- [how to organize makeup palettes](https://makeup.allwomenstalk.com/tips-for-organizing-your-makeup/)
+- [easter makeup looks](https://makeup.allwomenstalk.com/ways-to-wear-pastel-makeup-without-looking-like-an-easter-egg/)
+- [how to get makeup to stay](https://makeup.allwomenstalk.com/clever-tricks-to-prevent-your-makeup-from-fading/)
+- [where to buy typology](https://makeup.allwomenstalk.com/ways-to-use-vaseline-in-your-makeup-routine/)
+- [are fake lashes bad for you](https://beauty.allwomenstalk.com/legitimate-reasons-to-avoid-fake-lashes/)
+- [terzo no makeup](https://makeup.allwomenstalk.com/foolproof-makeup-looks-that-anyone-can-try/)
+- [makeup brushes quotes](https://makeup.allwomenstalk.com/pros-and-cons-of-using-makeup-brushes/)
 - [7 Tips for Perfect Concealer ...](https://makeup.allwomenstalk.com/tips-for-perfect-concealer/)
 - [8 Most Common Makeup Mistakes ...](https://allwomenstalk.com/8-most-common-makeup-mistakes/)
 

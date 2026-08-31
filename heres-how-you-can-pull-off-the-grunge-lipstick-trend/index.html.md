@@ -106,16 +106,16 @@ I love that she's wearing a 90s stretchy choker, too!
 
 ## Related Posts
 
+- [how to improve kissing](https://love.allwomenstalk.com/sweet-lips-tips-for-girls-who-want-to-be-better-kissers/)
+- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
+- [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
 - [how to wear matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/)
+- [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
+- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
+- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
 - [color riche smoky avant](https://makeup.allwomenstalk.com/how-lucy-hale-creates-custom-lip-colors/)
 - [big pretty lips](https://makeup.allwomenstalk.com/this-video-will-show-you-how-to-fake-big-lips/)
-- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
-- [sexy natural makeup](https://makeup.allwomenstalk.com/natural-nude-lippies-thatll-look-sexy-in-spring/)
-- [long-lasting lip stain](https://makeup.allwomenstalk.com/lip-stains-thatll-keep-your-color-on-all-day-long/)
-- [stand out lipstick](https://makeup.allwomenstalk.com/bold-lip-colors-thatll-make-you-stand-out-in-a-crowd/)
-- [how to improve kissing](https://love.allwomenstalk.com/sweet-lips-tips-for-girls-who-want-to-be-better-kissers/)
-- [lipstick gum](https://makeup.allwomenstalk.com/how-to-make-diy-lipstick-out-of-bubble-gum/)
-- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
 - [7 Ways to Pull off Orange Lips ...](https://makeup.allwomenstalk.com/7-ways-to-pull-off-orange-lips/)
 - [5 Tips to Embrace the Nude Lip Look ...](https://allwomenstalk.com/embrace-the-nude-look-for-your-lips/)
 

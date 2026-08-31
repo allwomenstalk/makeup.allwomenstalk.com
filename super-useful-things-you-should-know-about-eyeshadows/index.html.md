@@ -42,16 +42,16 @@ Practice makes it perfect, but even the smallest of tricks can make a huge diffe
 
 ## Related Posts
 
-- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
 - [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
-- [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
 - [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
+- [can i do my own makeup for wedding](https://wedding.allwomenstalk.com/points-in-favor-of-doing-your-own-wedding-makeup/)
 - [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
-- [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
-- [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
-- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
 - [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
+- [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
 - [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
+- [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
+- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
+- [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 

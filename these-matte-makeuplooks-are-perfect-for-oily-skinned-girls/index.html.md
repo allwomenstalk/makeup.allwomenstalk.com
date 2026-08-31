@@ -54,16 +54,16 @@ Got any tips about how to banish oily skin altogether? Barring that, please feel
 
 ## Related Posts
 
-- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
-- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
-- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
-- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
-- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
 - [jeffree star insta](https://makeup.allwomenstalk.com/men-on-instagram-who-know-a-thing-or-two-about-makeup/)
-- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
-- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
-- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
 - [daytime makeup](https://makeup.allwomenstalk.com/dazzling-daytime-makeup-looks-for-ladies-with-fair-skin/)
+- [mac cosmetics nz](https://makeup.allwomenstalk.com/beautiful-makeup-inspofor-girls-who-are-not-afraid-to-play-with-color/)
+- [shani yourman](https://makeup.allwomenstalk.com/videos-for-women-who-havent-mastered-contouring-yet/)
+- [little makeup lovers](https://makeup.allwomenstalk.com/only-makeup-lovers-will-understand-these-things/)
+- [old money makeup tutorial](https://makeup.allwomenstalk.com/makeup-tutorials-for-women-with-a-face-full-of-acne/)
+- [corporate makeup look](https://makeup.allwomenstalk.com/magical-makeup-tricks-for-full-faced-ladies-to-try/)
+- [too faced mascara melt off](https://makeup.allwomenstalk.com/removers-for-women-who-wear-heavy-makeup/)
+- [eyeshadow tutorials for blue eyes](https://makeup.allwomenstalk.com/these-makeup-tutorials-will-make-your-blue-eyes-stand-out/)
+- [contouring videos](https://makeup.allwomenstalk.com/contouring-videos-for-girls-who-cant-stand-their-nose/)
 - [Instant Makeup Inspirations for Girls Who Feel The...](https://makeup.allwomenstalk.com/stuck-in-a-makeup-rut-scroll-through-these-amazing-makeup-looks-for-instant-inspiration/)
 - [Perfect Date Night Makeup Secrets for All Girls .....](https://makeup.allwomenstalk.com/the-secrets-to-perfect-date-night-makeup/)
 

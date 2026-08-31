@@ -56,16 +56,16 @@ There are many more mascaras that deserve a spot on this list but I had to narro
 
 ## Related Posts
 
-- [is it bad to sleep with makeup on](https://makeup.allwomenstalk.com/reasons-not-to-sleep-with-makeup-on/)
-- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
-- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
-- [sephora shade match](https://makeup.allwomenstalk.com/valid-and-surprising-reasons-you-shouldnt-wear-makeup/)
 - [flawless finish makeup](https://makeup.allwomenstalk.com/makeup-tips-for-a-flawless-finish/)
-- [melting makeup](https://makeup.allwomenstalk.com/tantalizing-tips-to-keep-your-makeup-from-melting-off-your-face/)
-- [makeup trends 2013](https://beauty.allwomenstalk.com/eye-makeup-trends-for-summer/)
-- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
+- [paris eyeshadow mega neon skirt](https://beauty.allwomenstalk.com/reasons-why-blush-is-a-must-in-your-makeup-routine/)
 - [livelovediy](https://diy.allwomenstalk.com/professional-painting-secrets-that-will-blow-your-mind/)
+- [is it bad to sleep with makeup on](https://makeup.allwomenstalk.com/reasons-not-to-sleep-with-makeup-on/)
+- [makeup trends 2013](https://beauty.allwomenstalk.com/eye-makeup-trends-for-summer/)
+- [sephora shade match](https://makeup.allwomenstalk.com/valid-and-surprising-reasons-you-shouldnt-wear-makeup/)
+- [metallic makeup look](https://makeup.allwomenstalk.com/metallic-makeup-looks-thatll-suit-everyone/)
+- [how to pick the right blush color](https://makeup.allwomenstalk.com/totally-terrific-tips-on-choosing-your-best-blush/)
 - [stylo eye shadow unforgettable](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/)
+- [melting makeup](https://makeup.allwomenstalk.com/tantalizing-tips-to-keep-your-makeup-from-melting-off-your-face/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [7 Surprisingly Awesome Mascaras ...](https://allwomenstalk.com/7-surprisingly-awesome-mascaras/)
 

@@ -72,16 +72,16 @@ Here’s the thing, the top brands are the top brands for a reason, and that is 
 
 ## Related Posts
 
-- [Not Loving the Fiberwig Mascara](https://allwomenstalk.com/not-loving-the-fiberwig-mascara-ebeautydaily-the-beauty-blog/)
-- [Bats for Lashes - Horse & I ...](https://allwomenstalk.com/bats-for-lashes-horse-i/)
-- [lipstick name tattoo](https://inspiration.allwomenstalk.com/lip-tattoos/)
-- [Guest Post: Popping My Lipstick Cherry ...](https://allwomenstalk.com/guest-post-popping-my-lipstick-cherry/)
-- [The Lure of the Luscious Proenza Pink Lippie](https://allwomenstalk.com/the-lure-of-the-luscious-proenza-pink-lippie/)
-- [All about the Lip Stains](https://allwomenstalk.com/all-about-the-lip-stains/)
-- [Drug Store Lashes - Rimmel ...](https://allwomenstalk.com/drug-store-lashes-rimmel/)
-- [luscious lips](https://allwomenstalk.com/luscious-lips/)
 - [lockamp](https://allwomenstalk.com/tarte-lock-roll-eyeshadow-duo/)
+- [lipstick name tattoo](https://inspiration.allwomenstalk.com/lip-tattoos/)
+- [luscious lips](https://allwomenstalk.com/luscious-lips/)
+- [Drug Store Lashes - Rimmel ...](https://allwomenstalk.com/drug-store-lashes-rimmel/)
+- [All about the Lip Stains](https://allwomenstalk.com/all-about-the-lip-stains/)
 - [Not Loving the Fiberwig Mascara](https://allwomenstalk.com/not-loving-the-fiberwig-mascara/)
+- [Guest Post: Popping My Lipstick Cherry ...](https://allwomenstalk.com/guest-post-popping-my-lipstick-cherry/)
+- [Not Loving the Fiberwig Mascara](https://allwomenstalk.com/not-loving-the-fiberwig-mascara-ebeautydaily-the-beauty-blog/)
+- [The Lure of the Luscious Proenza Pink Lippie](https://allwomenstalk.com/the-lure-of-the-luscious-proenza-pink-lippie/)
+- [Bats for Lashes - Horse & I ...](https://allwomenstalk.com/bats-for-lashes-horse-i/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

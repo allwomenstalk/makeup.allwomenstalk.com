@@ -140,16 +140,16 @@ What are you dressing as for Halloween this year? Will you do face paint?
 
 ## Related Posts
 
-- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
 - [halloween themed bar drinks](https://food.allwomenstalk.com/alcoholic-drinks-fit-for-halloween/)
-- [movies like casper meets wendy](https://movies.allwomenstalk.com/halloween-movies-that-wont-give-you-sleepless-nights/)
-- [best halloween apps](https://apps.allwomenstalk.com/halloween-apps-for-the-ultimate-fan/)
-- [batwoman makeup](https://makeup.allwomenstalk.com/greatest-halloween-makeup-tutorials-to-look-absolutely-awesome/)
+- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
 - [pinterest hot halloween costumes](https://lifestyle.allwomenstalk.com/pinterests-most-popular-halloween-costumes-for/)
+- [movies like casper meets wendy](https://movies.allwomenstalk.com/halloween-movies-that-wont-give-you-sleepless-nights/)
 - [male cartoon makeup](https://makeup.allwomenstalk.com/halloween-makeup-looks-for-girls-who-love-it/)
-- [pumpkin spice pringles](https://lifestyle.allwomenstalk.com/perfectly-ordinary-items-that-have-been-pumpkin-spiced-to-death/)
 - [history buff meaning](https://lifestyle.allwomenstalk.com/halloween-tradition-meanings-for-the-history-buff-in-you/)
+- [best halloween apps](https://apps.allwomenstalk.com/halloween-apps-for-the-ultimate-fan/)
 - [mermaid makeup pink](https://makeup.allwomenstalk.com/the-absolute-best-halloween-mermaid-makeup-tutorial-ever/)
+- [pumpkin spice pringles](https://lifestyle.allwomenstalk.com/perfectly-ordinary-items-that-have-been-pumpkin-spiced-to-death/)
+- [batwoman makeup](https://makeup.allwomenstalk.com/greatest-halloween-makeup-tutorials-to-look-absolutely-awesome/)
 - [10 Sexy Halloween Masks to Match Your Little Black...](https://allwomenstalk.com/10-sexy-halloween-masks-to-match-your-little-black-dress/)
 - [7 Cool Halloween Masks ...](https://allwomenstalk.com/7-cool-halloween-masks/)
 

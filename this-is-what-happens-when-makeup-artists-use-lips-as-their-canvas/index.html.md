@@ -240,15 +240,15 @@ What do you think?
 
 ## Related Posts
 
-- [lipstick hacks](https://makeup.allwomenstalk.com/ladies-youll-look-flawless-when-you-try-these-lipstick-hacks/)
 - [homemade lip balm with vaseline](https://diy.allwomenstalk.com/diy-lip-balms-that-you-can-make-yourself/)
-- [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
-- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
+- [lipstick hacks](https://makeup.allwomenstalk.com/ladies-youll-look-flawless-when-you-try-these-lipstick-hacks/)
 - [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
 - [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
-- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
-- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
 - [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
+- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
+- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
+- [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
+- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
 - [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [The Hunt for Natural Looking Lips ...](https://allwomenstalk.com/the-hunt-for-natural-looking-lips/)

@@ -178,15 +178,15 @@ Are you ready to get your glam on? Let Canadian multihyphenate Janice Joostema s
 ## Related Posts
 
 - [fit and curvy](https://fashion.allwomenstalk.com/curvy-fit-girls-will-love-these-photos/)
-- [amber scholl](https://fashion.allwomenstalk.com/snapchat-adventures-with-amber-scholl/)
-- [kayla itsines instagram](https://fitness.allwomenstalk.com/instagram-fitspiration-for-girls-trying-to-lose-weight/)
-- [women's body inspiration](https://fitness.allwomenstalk.com/inspiring-photos-for-girls-who-want-6-pack-abs/)
-- [confident plus size body positive quotes](https://inspiration.allwomenstalk.com/body-positive-instagram-accounts-for-girls-who-need-a-self-confidence-boost/)
-- [spicy selfie](https://beauty.allwomenstalk.com/fun-poses-for-girls-who-love-selfies/)
-- [genius packing hacks](https://travel.allwomenstalk.com/instagram-travel-hacks-that-are-borderline-genius/)
-- [salads instagram](https://diet.allwomenstalk.com/instagram-inspo-for-girls-who-are-trying-to-eat-more-salads/)
-- [la dolce vita outfit](https://lifestyle.allwomenstalk.com/tantalizing-pics-of-la-dolce-vita-we-all-crave/)
 - [female fitness pics](https://fitness.allwomenstalk.com/this-girl-will-give-you-a-pics-worth-of-fintess-inspo-that-you-secretly-needed/)
+- [la dolce vita outfit](https://lifestyle.allwomenstalk.com/tantalizing-pics-of-la-dolce-vita-we-all-crave/)
+- [kayla itsines instagram](https://fitness.allwomenstalk.com/instagram-fitspiration-for-girls-trying-to-lose-weight/)
+- [spicy selfie](https://beauty.allwomenstalk.com/fun-poses-for-girls-who-love-selfies/)
+- [salads instagram](https://diet.allwomenstalk.com/instagram-inspo-for-girls-who-are-trying-to-eat-more-salads/)
+- [women's body inspiration](https://fitness.allwomenstalk.com/inspiring-photos-for-girls-who-want-6-pack-abs/)
+- [genius packing hacks](https://travel.allwomenstalk.com/instagram-travel-hacks-that-are-borderline-genius/)
+- [confident plus size body positive quotes](https://inspiration.allwomenstalk.com/body-positive-instagram-accounts-for-girls-who-need-a-self-confidence-boost/)
+- [amber scholl](https://fashion.allwomenstalk.com/snapchat-adventures-with-amber-scholl/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Lovely Ways to Achieve a Glamorous Makeup Look ....](https://makeup.allwomenstalk.com/lovely-ways-to-achieve-a-glamorous-makeup-look/)
 

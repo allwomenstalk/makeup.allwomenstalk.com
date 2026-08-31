@@ -59,15 +59,15 @@ My favorite brand of makeup that works with almost every type of skin is Bare Mi
 ## Related Posts
 
 - [makeup artist for hire](https://wedding.allwomenstalk.com/reasons-to-hire-a-makeup-artist-for-your-wedding-day/)
-- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
-- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
 - [val garland glasses](https://makeup.allwomenstalk.com/impressive-makeup-artists-to-follow-on-instagram/)
-- [eye makeup for dark hair](https://makeup.allwomenstalk.com/amazing-tips-for-women-with-dark-hair/)
-- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
-- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
-- [exact eyelights](https://makeup.allwomenstalk.com/ways-to-transition-your-makeup-from-winter-to-spring/)
 - [beauty gurus](https://beauty.allwomenstalk.com/beauty-gurus-to-help-you-with-your-make-up-dilemmas/)
 - [why am i so bad at makeup](https://makeup.allwomenstalk.com/bad-makeup-tips-that-dont-work-for-anyone/)
+- [exact eyelights](https://makeup.allwomenstalk.com/ways-to-transition-your-makeup-from-winter-to-spring/)
+- [primer to minimize pores](https://makeup.allwomenstalk.com/makeup-primers-that-minimize-pores-and-make-you-look-younger/)
+- [where can i get lash extensions](https://beauty.allwomenstalk.com/tips-for-protecting-your-eyelashes-from-damage/)
+- [what makes eyelashes long](https://makeup.allwomenstalk.com/tricks-to-make-your-eyelashes-look-longer-and-fuller/)
+- [paris le stylo eye emerald conquest](https://makeup.allwomenstalk.com/terrible-eye-makeup-mistakes-you-may-be-making/)
+- [eye makeup for dark hair](https://makeup.allwomenstalk.com/amazing-tips-for-women-with-dark-hair/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 - [7 Ways to Tell if You Have Too Much Makeup on ...](https://makeup.allwomenstalk.com/ways-to-tell-if-you-have-too-much-makeup-on/)
 

@@ -56,16 +56,16 @@ These are 7 spring makeup trends you can enjoy now. Which ones are you most anxi
 
 ## Related Posts
 
-- [sexy face makeup](https://makeup.allwomenstalk.com/sexy-makeup-trends-that-will-be-blowing-up-soon/)
-- [bringing back the 90s](https://fashion.allwomenstalk.com/bringing-sexy-back-these-90s-trends-are-quickly-making-a-comeback/)
-- [sexiest hair color](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-of/)
-- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
-- [coachella 2015 outfits](https://fashion.allwomenstalk.com/outfit-ideas-for-coachella/)
 - [2015 hair trends](https://hair.allwomenstalk.com/hot-hair-trends-for-fall/)
-- [christmas dcor](https://lifestyle.allwomenstalk.com/the-top-christmas-decor-trends-for/)
 - [every decade fashion](https://fashion.allwomenstalk.com/the-best-styles-to-steal-from-every-decade/)
-- [food and beverage trendspet food trends](https://food.allwomenstalk.com/these-food-trends-will-be-big-in/)
+- [christmas dcor](https://lifestyle.allwomenstalk.com/the-top-christmas-decor-trends-for/)
+- [coachella 2015 outfits](https://fashion.allwomenstalk.com/outfit-ideas-for-coachella/)
+- [sexiest hair color](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-of/)
 - [men hairstyle with clean shave](https://hair.allwomenstalk.com/the-craziest-beauty-trends-men-rocked-in/)
+- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
+- [bringing back the 90s](https://fashion.allwomenstalk.com/bringing-sexy-back-these-90s-trends-are-quickly-making-a-comeback/)
+- [food and beverage trendspet food trends](https://food.allwomenstalk.com/these-food-trends-will-be-big-in/)
+- [sexy face makeup](https://makeup.allwomenstalk.com/sexy-makeup-trends-that-will-be-blowing-up-soon/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 

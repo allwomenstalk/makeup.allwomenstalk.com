@@ -70,16 +70,16 @@ These are some of my essential makeup accessories. We all have something we canâ
 
 ## Related Posts
 
-- [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
-- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
-- [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
-- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
-- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
-- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
-- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
 - [newed makeup](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [best makeup products winter](https://makeup.allwomenstalk.com/amazing-makeup-must-haves-for-winter-you-simply-need-to-try/)
+- [riche stylo shadow infinite sky](https://makeup.allwomenstalk.com/8-prettiest-eyeshadows-for-spring/)
+- [best oil-free foundation](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
 - [highlight kits with cap](https://hair.allwomenstalk.com/stunning-at-home-highlight-products/)
+- [7 Dangerous Chemicals Found in Your Makeup Bag ...](https://makeup.allwomenstalk.com/7-dangerous-chemicals-found-in-your-makeup-bag/)
+- [best mascara under 10](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
+- [10 New Makeup Products of Fall 2011 ...](https://makeup.allwomenstalk.com/new-makeup-products-of-fall/)
+- [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
+- [models own bronzer](https://makeup.allwomenstalk.com/bronzers-under-20/)
 - [12 Things to Have in Your Make-up Bag ...](https://allwomenstalk.com/12-things-to-have-in-your-make-up-bag/)
 - [8 Great Travel Makeup Kits ...](https://allwomenstalk.com/8-great-travel-makeup-kits/)
 

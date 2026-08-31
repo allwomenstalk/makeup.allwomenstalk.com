@@ -83,15 +83,15 @@ This article was written in collaboration with editor Vanessa Salles.
 ## Related Posts
 
 - [smacker](https://makeup.allwomenstalk.com/best-lip-smackers-to-try/)
-- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
-- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
-- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
+- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
 - [blush shade for dark skin](https://makeup.allwomenstalk.com/blush-colors-for-dark-skin-that-i-love/)
+- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
 - [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
 - [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
+- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
 - [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
 - [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
-- [lip plumping methods](https://beauty.allwomenstalk.com/ways-to-plump-up-thin-lips/)
+- [natural lip scrubs](https://skincare.allwomenstalk.com/luscious-all-natural-lip-scrubs/)
 - [8 Exquisitely Lovely Must-Have Lip-Colors ...](https://beauty.allwomenstalk.com/exquisitely-lovely-must-have-lip-colors/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

@@ -42,16 +42,16 @@ These tips for refreshing your makeup throughout the day will help you to always
 
 ## Related Posts
 
-- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
 - [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
-- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
-- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
+- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
 - [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
+- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
+- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
+- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
+- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
 - [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
 - [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
-- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
-- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
-- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
+- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [7 Tips to Make Your Makeup Last All Day ...](https://makeup.allwomenstalk.com/7-tips-to-make-your-makeup-last-all-day/)
 

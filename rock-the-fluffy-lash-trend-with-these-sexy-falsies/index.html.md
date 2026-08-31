@@ -131,16 +131,16 @@ This little tool helps you lock your lashes and comb them through so they look l
 
 ## Related Posts
 
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
-- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
-- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
-- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [milk makeup lip marker](https://makeup.allwomenstalk.com/pretty-pieces-of-makeup-you-can-have-fun-with/)
-- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
+- [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
+- [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
+- [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [best makeup dupes](https://makeup.allwomenstalk.com/perfect-drugstore-dupes-for-high-end-makeup-products/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
+- [paris riche stylo shadow primped and previous](https://makeup.allwomenstalk.com/fabulous-benefits-of-splurging-on-high-end-eyeshadow-palettes/)
 - [13 Classic Makeup Looks to Rock ...](https://beauty.allwomenstalk.com/classic-makeup-looks-to-rock/)
 - [11 Best Fake Eyelashes ...](https://allwomenstalk.com/6-best-fake-eyelashes/)
 

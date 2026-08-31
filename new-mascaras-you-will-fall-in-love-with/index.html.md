@@ -61,16 +61,16 @@ There are so many new mascaras on the market so it’s hard to know which ones t
 
 ## Related Posts
 
-- [7 Switches to Make in Your Beauty Products for Fal...](https://beauty.allwomenstalk.com/switches-to-make-in-your-beauty-products-for-fall/)
-- [is dollar store makeup good](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
-- [lots of makeup](https://makeup.allwomenstalk.com/makeup-items-you-dont-need-to-spend-a-lot-on/)
 - [Bring in the Fall Season with These Pumpkin Scente...](https://beauty.allwomenstalk.com/bring-in-the-fall-season-with-these-pumpkin-scented-beauty-products/)
 - [7 Cheap Beauty Products to Buy when You're Broke b...](https://beauty.allwomenstalk.com/cheap-beauty-products-to-buy-when-youre-broke-but-want-to-look-great-fast/)
-- [college beauty essentials](https://beauty.allwomenstalk.com/essential-beauty-products-for-college/)
-- [7 Ways Sephora is Stepping up the Beauty Game ...](https://beauty.allwomenstalk.com/ways-sephora-is-stepping-up-the-beauty-game/)
-- [christmas themed beauty products](https://beauty.allwomenstalk.com/stores-that-sell-holiday-themed-beauty-products/)
-- [7 Lovely Beauty Products for Christmas ...](https://beauty.allwomenstalk.com/lovely-beauty-products-for-christmas/)
 - [stylo smoky sunshine](https://makeup.allwomenstalk.com/e-is-for-electronic-makeup/)
+- [lots of makeup](https://makeup.allwomenstalk.com/makeup-items-you-dont-need-to-spend-a-lot-on/)
+- [is dollar store makeup good](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
+- [christmas themed beauty products](https://beauty.allwomenstalk.com/stores-that-sell-holiday-themed-beauty-products/)
+- [7 Ways Sephora is Stepping up the Beauty Game ...](https://beauty.allwomenstalk.com/ways-sephora-is-stepping-up-the-beauty-game/)
+- [college beauty essentials](https://beauty.allwomenstalk.com/essential-beauty-products-for-college/)
+- [7 Switches to Make in Your Beauty Products for Fal...](https://beauty.allwomenstalk.com/switches-to-make-in-your-beauty-products-for-fall/)
+- [7 Lovely Beauty Products for Christmas ...](https://beauty.allwomenstalk.com/lovely-beauty-products-for-christmas/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 

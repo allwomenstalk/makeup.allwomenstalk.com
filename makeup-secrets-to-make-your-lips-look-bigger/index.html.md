@@ -93,15 +93,15 @@ This article was written in collaboration with editors Lydia Sheehan and Sabrina
 ## Related Posts
 
 - [cool toned lip colors](https://makeup.allwomenstalk.com/tips-on-picking-the-perfect-lipstick-for-your-skin-tone/)
-- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
-- [what colour lipstick for yellow teeth](https://beauty.allwomenstalk.com/fantastic-lipsticks-to-make-your-teeth-look-whiter/)
 - [wine lips makeup](https://makeup.allwomenstalk.com/tips-for-wearing-wine-coloured-lips/)
-- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
-- [tips to keep lips pink](https://beauty.allwomenstalk.com/ways-to-keep-your-lips-naturally-pink/)
-- [too faced sunday funday](https://makeup.allwomenstalk.com/best-nude-lipsticks/)
-- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
 - [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
+- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
 - [blush shade for dark skin](https://makeup.allwomenstalk.com/blush-colors-for-dark-skin-that-i-love/)
+- [tips to keep lips pink](https://beauty.allwomenstalk.com/ways-to-keep-your-lips-naturally-pink/)
+- [what colour lipstick for yellow teeth](https://beauty.allwomenstalk.com/fantastic-lipsticks-to-make-your-teeth-look-whiter/)
+- [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
+- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
+- [too faced sunday funday](https://makeup.allwomenstalk.com/best-nude-lipsticks/)
 - [7 Tips for Perfect Nude Lips ...](https://makeup.allwomenstalk.com/tips-for-perfect-nude-lips/)
 - [8 Different Ways to Make Your Lips Look Bigger ...](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
 

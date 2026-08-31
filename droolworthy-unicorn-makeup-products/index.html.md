@@ -71,15 +71,15 @@ OK ladies, which unicorn product would you want to try first? I'm really feeling
 ## Related Posts
 
 - [best makeup brands](https://makeup.allwomenstalk.com/best-makeup-products-everyone-is-buying-right-now/)
-- [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
-- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
-- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
-- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
 - [best beauty products on a budget](https://beauty.allwomenstalk.com/best-beauty-products-under-20-for-girls-on-a-budget/)
-- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
 - [highlighters sephora](https://makeup.allwomenstalk.com/illuminating-highlighters-for-girls-who-want-a-radiant-complexion/)
-- [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
+- [mermaid makeup products](https://beauty.allwomenstalk.com/hottest-unicorn-and-mermaid-makeup-products-for-all-girls-who-love-beauty-trends/)
 - [urban decay unicorn](https://beauty.allwomenstalk.com/unicorn-coachella-beauty-products/)
+- [crystals for beauty](https://beauty.allwomenstalk.com/crystal-infused-beauty-products-for-the-new-age-girls/)
+- [vib rouge perks](https://beauty.allwomenstalk.com/perks-to-shopping-sephora-you-never-knew-you-needed-in-life/)
+- [makeup accessories amazon](https://makeup.allwomenstalk.com/best-selling-makeup-products-on-amazon-for-girls-who-like-quality-and-price/)
+- [festival makeup kit](https://makeup.allwomenstalk.com/all-the-makeup-you-need-for-this-festival-season/)
+- [coachella color palette](https://beauty.allwomenstalk.com/drool-worthy-coachella-beauty-must-haves-for-this-year/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 

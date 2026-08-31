@@ -36,16 +36,16 @@ I know, I know, you haven’t been to Hot Topic since your early teen Nightmare 
 
 ## Related Posts
 
-- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
-- [Makeup for Darker Skins, Catwalk Catastrophe, Matt...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
-- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
-- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
 - [Coming Soon:  Prime Time Primer from Bare Escentua...](https://allwomenstalk.com/coming-soon-prime-time-primer-from-bare-escentuals/)
-- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
 - [Beauty Beat:  Mascara Madness!](https://allwomenstalk.com/beauty-beat-mascara-madness/)
+- [Makeup for Darker Skins, Catwalk Catastrophe, Matt...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
+- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
+- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [Pure Pressed Minerals](https://allwomenstalk.com/pure-pressed-minerals/)
+- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [10 Drugstore Make-up Picks That Won't Break the Ba...](https://allwomenstalk.com/10-drugstore-make-up-picks-that-wont-break-the-bank/)
 
