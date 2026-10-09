@@ -3,7 +3,7 @@ title: "The History of Cosmetics and Creating a New Norm ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://makeup.allwomenstalk.com/the-history-of-cosmetics/"
 category: "makeup"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # The History of Cosmetics and Creating a New Norm ...
@@ -40,16 +40,16 @@ It's up to you - should we change the course of cosmetic history?
 
 ## Related Posts
 
-- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
-- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
 - [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
-- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
+- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
 - [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [56 chubby the foundation stick](https://makeup.allwomenstalk.com/the-best-makeup-products-for-your-new-years-eve-look/)
+- [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
 - [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
+- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
 - [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [bobbi brown cosmetics black friday](https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/)
-- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 - [BEAUTY NEWS: Loreal, Almay, Coty, Kiehl's ...](https://allwomenstalk.com/beauty-news-loreal-almay-coty-kiehls/)
 

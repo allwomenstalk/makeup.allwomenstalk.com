@@ -3,7 +3,7 @@ title: "What Is Athletic Blush? A Simple Guide to the Low, Sheer Flush"
 description: "Learn where athletic blush goes, how to blend the low, sheer flush, and which color and texture to try for your skin tone."
 url: "https://makeup.allwomenstalk.com/athletic-blush/"
 category: "makeup"
-last_updated: "2026-10-08"
+last_updated: "2026-10-09"
 ---
 
 # What Is Athletic Blush? A Simple Guide to the Low, Sheer Flush
