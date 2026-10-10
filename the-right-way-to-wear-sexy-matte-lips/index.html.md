@@ -1,69 +1,121 @@
 ---
-title: "Easy Steps on How to do Matte Lipstick the Right Way ..."
-description: "Choose Some Shades That Look Good in Matte Form; Don’t Count on Matte Lipstick for Hydration; Prep Your Lips; Resist the Urge to Add Gloss!; Go for a Dewey Foundation; More ..."
+title: "Is Matte Lipstick Back? How to Wear a Bold Lip Now"
+description: "A fresh guide to bold and matte lipstick: prep, line, apply and blot, choose a comfortable finish, and find a shade you love."
 url: "https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/"
 category: "makeup"
-last_updated: "2026-10-09"
+last_updated: "2026-10-10"
 ---
 
-# Easy Steps on How to do Matte Lipstick the Right Way ...
+# Is Matte Lipstick Back? How to Wear a Bold Lip Now
 
-Matte lips are the go-to look right now. If you’ve been used to lip gloss or creamy lipsticks then matte lipstick can feel shocking at first. There’re some tips that make matte lips easier to wear and help them look great on you. Soon, you’ll wonder how you ever wore anything else.
+Yes, a bold lip is back on the beauty radar, including matte lipstick. According to Spate data cited by [Allure](https://www.allure.com/story/return-to-lipstick-trend-2026), US interest in matte lipstick rose nearly 19% during the period it measured; Allure also reports a 121% rise in Pinterest searches for “bold lip combo.” Today's version can be velvety, softly blurred, or sharply defined. You get to choose the finish, and you don't need a full face of makeup to make it work.
 
-## 1. Choose Some Shades That Look Good in Matte Form
+_Updated October 2026._
 
-Before you can wear matte lips, you have to shop for the right matte lipstick. It’s become such a popular trend that almost every brand of cosmetics has a selection of matte lippies. A good tip to remember is that whatever shades flatter you in other lip products will probably work well in matte. A lovely matte lippie I’m currently hooked on is Mac Honey Love. It’s the perfect shade of nude.
+## Is matte lipstick really back?
 
-## 2. Don’t Count on Matte Lipstick for Hydration
+It's having a moment, though lipstick never disappeared. [Allure's trend report](https://www.allure.com/story/return-to-lipstick-trend-2026) cites Spate's US data across Google, TikTok, and Instagram for the matte lipstick increase, and Pinterest's beauty report for the “bold lip combo” figure. Those are two different measures from two different sources, rather than a single measure of how many people wear lipstick. The report also points to cranberry and crimson celebrity looks and makeup artists pairing a strong lip with otherwise fresh skin.
 
-As pretty as matte lipstick is, it’s not going to hydrate your lips. Lip glosses, balms and creamy lipstick all offer moisture to parched lips. You can’t count on a matte lipstick for hydration. In fact, it could dry your lips out more. Because of this, it’s especially important to apply a great lip product at night to restore moisture.
+Trend signal
+What it measures
 
-## 3. Prep Your Lips
+Nearly 19% increase in matte lipstick interest, per Spate data cited by Allure
+A change in US search and social interest during Spate's study period, not lipstick sales
 
-The best way to wear matte lipstick is with a balm under it. It doesn’t have to be anything fancy; regular old chapstick will do the job. You can also use a lip primer to moisturize your lips as well as prep them for matte lipstick. Matte lipstick isn’t nearly as forgiving as cream formulas are so it’s good to use a primer to keep it in place. With creamy lipsticks you can simply wipe any mistake away but matte formulas tend to stay put, mistakes and all.
+121% increase for “bold lip combo,” per Pinterest data cited by Allure
+A change in searches on Pinterest, not proof that everyone wears the look
 
-## 4. Resist the Urge to Add Gloss!
+## How today's bold lip feels different
 
-Your first reaction to seeing matte lips on yourself may be to reach for gloss. While you certainly can add gloss on top and some people do, you’re losing the matte finish. It’s tempting but if you can hang in there, you’ll get used to the look of lips without shine. You may come to prefer the matte look. It could be your signature thing!
+If your memory of liquid matte is a color that seemed to set like paint, you have more options now. Makeup artists interviewed by [Allure](https://www.allure.com/story/return-to-lipstick-trend-2026) describe a softer, more velvety finish; its [blurred lip guide](https://www.allure.com/story/blurred-lips-makeup-trend) shows how to diffuse color from the center instead of drawing one hard edge.
 
-## 5. Go for a Dewey Foundation
+The throwback matte look
+A current way to wear it
 
-Matte foundation and matte lips don’t agree. The only exception to this is if you have naturally oily skin that makes even a matte foundation seem creamy. Otherwise, choose a foundation that has words like creamy, dewey or luminous in the description or name. Not only will this make your skin look radiant but it’ll create a beautiful contrast with your lips.
+Fully opaque liquid matte
+Velvety bullet, demi-matte, stain, or softly blurred matte
 
-## 6. Play up Your Eyes
+A precise, visibly overdrawn outline
+A line close to your natural shape, or an intentionally diffused edge
 
-One thing about a matte lipstick is that it looks attractive without stealing the show. You can still pull off dramatic eye makeup because your lips have a subtleness they don’t have when you’re wearing shiny gloss. Winged liner gets full focus when you’ve got matte lips. In fact, it’s one of the best styles of makeup you can pair with matte lips. If you haven’t tried it yet then prepare to fall in love!
+Full glam around the lip
+Fresh skin, light cheek color, and whatever eye makeup you like
 
-## 7. Give Yourself Time to Adjust
+One thick coat
+Thin layers that you can blot and touch up
 
-Lastly, give yourself time to adjust to your new look. Just like with any change, it make take a few days to get used to it. You may find you love it or that it takes awhile to grow on you. You also may feel it’s not the right look for you and that’s okay. You can always go back to your other lip products. That’s the great thing about lipstick; it’s only a one day commitment!
+These are looks to try, not rules. A crisp, full-coverage red is still gorgeous if that's your thing.
 
-## 8. Exfoliate before Use
+## How to wear a bold lip, step by step
 
-Dead and dry skin causes your lipstick to look dull and uneven, which is completely unacceptable with matte lipstick. Try getting a lip scrub, or simply brush your lips with a toothbrush to rid them of that dull skin and help keep them beautiful with the matte color of choice.
+### Prep, gently
 
-## 9. Blot
+Start with comfortable lips. Smooth on balm while you do the rest of your makeup, then blot excess before color so the pigment can grip. If your lips are cracked or sore, skip scrubbing and choose a comfortable formula until they feel better. There is no need to force a long-wear matte on irritated skin.
 
-Blotting your lips post-application will allow you to remove any excess color or shine, leaving you with the perfect matte look. Just be wary of using tissues or paper towels, as this leaves little paper fibers on your lips. A small piece of toilet paper is actually said to work best.
+### Decide where the edge goes
 
-## 10. Use a Lip LIner
+For a neat outline, trace near your natural lip line with a pencil close to your lipstick shade. Work in small strokes and check the shape with your face relaxed. For a blurred effect, soften the line with a clean fingertip or brush. Liner is a tool, not an entry fee: skip it when a stain or soft bullet gives you the edge you want.
 
-As previously mentioned, matte color tends to stay put while a glossy color wipes off. In order to avoid mistakes and lipstick mishaps, use a lip liner so all you have to do is color between the lines. This will also prevent color bleeding outside the lips giving you the perfect shape.
+### Apply a light layer
 
-These 10 tips can help you look your best in matte lips. Do you have a favorite matte lipstick? What’re your feelings about this lipstick formula?
+For definition, use the bullet or a lip brush and fill from the center toward the corners. For a diffused lip, put color in the center and press your lips together, then tap outward. That center-out method follows the technique makeup artist Joseph Carillo shared with [Allure](https://www.allure.com/story/blurred-lips-makeup-trend). A thin first layer is easier to control than a heavy swipe.
+
+### Blot, then add color where needed
+
+Press once with a tissue. Add a second thin layer only where the color looks uneven. Keep a mirror and your lipstick for touch-ups after eating; even long-wear formulas can move. For more practical tips, see [ways to make lipstick last longer](https://makeup.allwomenstalk.com/ways-to-make-your-lipstick-last-longer/).
+
+### Let the lip lead the look
+
+A little concealer where you want it, brushed brows, and a strong lip can be the whole look. If you enjoy eye makeup, try [eye looks that work with red lipstick](https://makeup.allwomenstalk.com/clever-eye-makeup-tips-to-go-with-red-lipstick/). You do not have to keep the rest of your face bare to “earn” a bold shade.
+
+## Matte, demi-matte, or blurred: which feels right?
+
+Choose by comfort and the effect you want. A classic matte gives a crisp, opaque statement. A demi-matte keeps much of that impact with a softer surface. A blurred lip looks diffused and forgiving if you prefer easy touch-ups. Try a stain or dab a bold lipstick on with a fingertip before committing to a full coat. If one formula feels tight or flakes, switch formulas or finishes rather than adding more layers over it.
+
+## How to pick a bold shade
+
+Start with a color you already enjoy, then turn up its depth or saturation. Cranberry, brick red, plum, and rich berry can all be bold; so can orange, fuchsia, or deep brown. Undertone can be a useful comparison in the mirror, but it is not a rule about who may wear what. Look at the shade in daylight against your own skin and decide whether you like the contrast.
+
+For ideas, browse [how to choose a red lipstick shade](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red-lipstick/), [lipstick colors on deep skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/), and [vampy shades for fall](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/). The best shade is the one you want to put on again.
+
+## If your matte lipstick cracks, feathers, or feels dry
+
+For visible cracks, remove the buildup and reapply a thin coat instead of stacking more pigment on top. For feathering, try a closer-to-the-edge liner and blot before going out. If the product feels uncomfortable, take it off; a softer matte or satin lipstick may give you the same color without the sensation. Persistent irritation deserves a pause from the product and advice from a qualified clinician. These are application tips, not a diagnosis of why your lips are dry.
+
+## A low-pressure way to try the look
+
+Wear your chosen color at home first. Then dab it on as a stain for a coffee run, blur the edges for a dinner, or wear the full shade when you feel like it. The lipstick drawer is yours; you can make the comeback as subtle or as loud as you want.
+
+## FAQ
+
+### Is matte lipstick back?
+
+Bold lipstick and softer matte finishes are drawing renewed attention. Allure cites rising US interest in matte lipstick and Pinterest interest in bold lip combinations. That is a trend signal, not a requirement to replace your gloss or balm.
+
+### What is the difference between matte, demi-matte, and a blurred lip?
+
+Matte describes a low-shine finish. Demi-matte is usually a softer-looking, less flat version. Blurred describes the application: color is diffused, often strongest at the center, so it can be done with several kinds of lipstick.
+
+### Do I need lip liner?
+
+No. Use liner if you want a more defined edge or want to tidy the corners. A stain, soft matte bullet, or center-out application can look great without it.
+
+### Can I wear a bold lip every day?
+
+Absolutely. Keep the rest of your routine as simple or elaborate as you like, and choose a formula you can comfortably touch up. A bold color is not reserved for a party.
 
 ## Related Posts
 
-- [makeup for very dark skin](https://makeup.allwomenstalk.com/how-ladies-with-dark-skin-can-cheat-the-sexy-nude-lip/)
-- [burgundy lipstick on dark skin](https://makeup.allwomenstalk.com/bold-lipsticks-for-girls-who-want-to-make-a-statement/)
-- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
+- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
 - [how to improve kissing](https://love.allwomenstalk.com/sweet-lips-tips-for-girls-who-want-to-be-better-kissers/)
+- [burgundy lipstick on dark skin](https://makeup.allwomenstalk.com/bold-lipsticks-for-girls-who-want-to-make-a-statement/)
+- [tarte lip therapy lip mask](https://skincare.allwomenstalk.com/lip-balms-thatll-give-you-a-sexy-summer-pout/)
 - [kylie lip kit sephora](https://makeup.allwomenstalk.com/products-that-can-replace-kylies-lip-kit/)
 - [how to make homemade lip plumper](https://beauty.allwomenstalk.com/diy-recipes-thatll-give-you-plumper-lips/)
+- [makeup for very dark skin](https://makeup.allwomenstalk.com/how-ladies-with-dark-skin-can-cheat-the-sexy-nude-lip/)
 - [bold lipstick shades](https://makeup.allwomenstalk.com/bold-lipstick-shades-all-celebs-are-wearing-now/)
-- [kylie jenner lip kits](https://makeup.allwomenstalk.com/alternatives-to-kylies-lip-kits-that-are-even-more-adorable/)
-- [tarte lip therapy lip mask](https://skincare.allwomenstalk.com/lip-balms-thatll-give-you-a-sexy-summer-pout/)
-- [kylie jenner eyes before and after](https://makeup.allwomenstalk.com/these-kylie-jenner-makeup-tutorials-will-make-your-lips-look-amazing/)
+- [fun facts about lip gloss](https://makeup.allwomenstalk.com/curious-girls-will-love-these-lipstick-facts/)
 - [Expert Beauty Tip: Get the Perfect Lip Stain ...](https://allwomenstalk.com/expert-beauty-tip-get-the-perfect-lip-stain/)
 - [7 Insider Tips for Getting Your Mascara Just Right...](https://makeup.allwomenstalk.com/insider-tips-for-getting-your-mascara-just-right/)
 
