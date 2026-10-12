@@ -76,7 +76,7 @@ You can, but they are optional and may make the result less “ghost.” Elle's 
 
 ### Are ghost lashes the same as white Halloween lashes?
 
-No. “Ghost” here means barely visible, naturally bare lashes. White costume lashes are an intentionally conspicuous effect. The two looks share a word, not a technique.
+No. “Ghost��� here means barely visible, naturally bare lashes. White costume lashes are an intentionally conspicuous effect. The two looks share a word, not a technique.
 
 ## Site Information
 
