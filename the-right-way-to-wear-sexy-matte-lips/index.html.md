@@ -3,7 +3,7 @@ title: "Is Matte Lipstick Back? How to Wear a Bold Lip Now"
 description: "A fresh guide to bold and matte lipstick: prep, line, apply and blot, choose a comfortable finish, and find a shade you love."
 url: "https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/"
 category: "makeup"
-last_updated: "2026-10-10"
+last_updated: "2026-10-12"
 ---
 
 # Is Matte Lipstick Back? How to Wear a Bold Lip Now
@@ -45,6 +45,8 @@ One thick coat
 Thin layers that you can blot and touch up
 
 These are looks to try, not rules. A crisp, full-coverage red is still gorgeous if that's your thing.
+
+Prefer sheer color with shine? Try our [stained glass lips guide](https://makeup.allwomenstalk.com/stained-glass-lips/) for a translucent, glossy option that lets your natural lip show through.
 
 ## How to wear a bold lip, step by step
 
