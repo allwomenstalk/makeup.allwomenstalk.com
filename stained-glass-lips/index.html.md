@@ -3,7 +3,7 @@ title: "Stained Glass Lips: How to Get the Sheer Glossy Look"
 description: "Get the translucent stained glass lip look with a glossy stain or products you own, and compare it with matte and blurred finishes."
 url: "https://makeup.allwomenstalk.com/stained-glass-lips/"
 category: "makeup"
-last_updated: "2026-10-13"
+last_updated: "2026-10-22"
 ---
 
 # Stained Glass Lips: How to Get the Sheer Glossy Look

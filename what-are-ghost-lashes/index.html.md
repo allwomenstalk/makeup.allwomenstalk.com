@@ -3,7 +3,7 @@ title: "What Are Ghost Lashes? The No-Mascara Look, Explained"
 description: "Ghost lashes mean bare lashes or just a kiss of mascara. Learn how to wear the look and how it differs from white Halloween lashes."
 url: "https://makeup.allwomenstalk.com/what-are-ghost-lashes/"
 category: "makeup"
-last_updated: "2026-10-12"
+last_updated: "2026-10-22"
 ---
 
 # What Are Ghost Lashes? The No\-Mascara Look, Explained
@@ -76,7 +76,7 @@ You can, but they are optional and may make the result less “ghost.” Elle's 
 
 ### Are ghost lashes the same as white Halloween lashes?
 
-No. “Ghost��� here means barely visible, naturally bare lashes. White costume lashes are an intentionally conspicuous effect. The two looks share a word, not a technique.
+No. “Ghost” here means barely visible, naturally bare lashes. White costume lashes are an intentionally conspicuous effect. The two looks share a word, not a technique.
 
 ## Site Information
 

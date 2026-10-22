@@ -3,7 +3,7 @@ title: "Make Yourself Shine on New Year's with These Makeup Looks ..."
 description: "Gold Glitter; Blue Sparkly Eyeliner; Mega Cat's Eye; Matched with Your Nail Polish; Lots of Shimmer; More ..."
 url: "https://makeup.allwomenstalk.com/make-yourself-shine-on-new-years-with-these-makeup-looks/"
 category: "makeup"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # Make Yourself Shine on New Year's with These Makeup Looks ...
@@ -116,14 +116,14 @@ Which of these looks is the one for your New Year's Eve? How will you be celebra
 
 ## Related Posts
 
-- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
-- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
+- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
 - [makeup addict](https://makeup.allwomenstalk.com/things-every-makeup-addict-understands/)
+- [loreal paris color shadow blinged](https://makeup.allwomenstalk.com/how-to-get-an-intense-smokey-eye/)
 - [lauren conrad makeup](https://makeup.allwomenstalk.com/steal-lauren-conrads-5-minute-makeup-routine/)
+- [make up inspos](https://makeup.allwomenstalk.com/sexy-smokey-eye-makeup-inspos-to-rock-in/)
+- [precious lashes](https://beauty.allwomenstalk.com/how-to-look-after-your-precious-eyelashes/)
 - [false eyebrows](https://makeup.allwomenstalk.com/heres-how-to-fake-your-way-to-fuller-sexier-brows/)
 - [tyra banks beauty](https://makeup.allwomenstalk.com/tyra-banks-two-minute-makeup-tutorial/)
-- [loreal paris riche le stylo shadow rose nude](https://makeup.allwomenstalk.com/makeup-tricks-to-get-all-eyes-focused-on-your-eyes/)
-- [loreal paris color shadow blinged](https://makeup.allwomenstalk.com/how-to-get-an-intense-smokey-eye/)
 - [looking good with glasses](https://beauty.allwomenstalk.com/tweaks-thatll-make-your-glasses-look-more-stylish/)
 - [eye shape makeup](https://makeup.allwomenstalk.com/the-best-makeup-routine-for-your-eye-shape/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
