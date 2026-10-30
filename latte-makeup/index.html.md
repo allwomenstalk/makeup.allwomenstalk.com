@@ -69,6 +69,10 @@ Deep-brown liner with a matching nude gloss
 
 If a suggested shade turns orange or gray on you, change the undertone while keeping the overall look softly coordinated. On deeper skin, a light beige product may disappear or leave a cast; on fair skin, an espresso shade can work beautifully as a small accent rather than an all-over wash.
 
+![Soft latte makeup on fair skin with rose blush and brown liner](https://img.allw.mn/uploads/latte-makeup-inline-1793380179595.jpg)
+
+_Soft latte makeup on fair skin with rose blush and brown liner._
+
 ## How to keep latte makeup from looking muddy
 
 Use at least two depths on the eyes and blend their edges. Keep the bronzer softly sculpted instead of drawing a hard stripe. Add one point of light, such as a small gold sheen on the lid or gloss on the lips. Step back from the mirror in daylight before adding more brown: you should still see your own skin and the separate shapes of your eyes, cheeks and lips.
