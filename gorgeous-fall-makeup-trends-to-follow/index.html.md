@@ -1,72 +1,116 @@
 ---
-title: "7 Gorgeous Fall Makeup Trends to Follow ..."
-description: "Wine-Stained Lips; Graphic Black Eyeliner; Bold Brows; Monochromatic, Nude Faces; Brown Smoky Eyes; More ..."
+title: "Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes"
+description: "The fall 2026 makeup looks worth trying: witchy liner, blurred lips, berry stains, sheer brown eyes, high blush and soft-matte skin, each with a five-minute version."
 url: "https://makeup.allwomenstalk.com/gorgeous-fall-makeup-trends-to-follow/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-10-31"
 ---
 
-# 7 Gorgeous Fall Makeup Trends to Follow ...
+# Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes
 
-Gorgeous makeup is an essential fall accessory. Whether you’re out on the town or just going to work, you will want to have flawless makeup this fall. I’m obsessed with the deep, rich colors for fall and love incorporating them into my makeup look. I’ve scoured the photos from the fall 2012 catwalks and have highlighted the 7 most gorgeous fall makeup trends. Are you ready to see what fall has to offer? Let's do this!
+Fall 2026 makeup brings richer color with softer edges. Think witchy liner and berry lips, sheer brown and burgundy eyes, frosted touches, blush worn high on the cheekbones, and a soft-matte base that still looks like skin. You can try any of these looks with one small change to the makeup you already own; a new seasonal kit is optional.
 
-## 1. Wine-Stained Lips
+## 1. Witchy makeup, made wearable
 
-![Wine-Stained Lips](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/top-beauty-8_539x650.jpg)
+Makeup artist Valeria Ferreira describes [Glamour's witchy look](https://www.glamour.com/story/fall-makeup-trends-2026) with dark lips, a tiny liner flick and defined lashes. It can be dramatic without covering your whole face.
 
-Deep reds, burgundies, plums, and mulberries graced the lips of models from Gucci, Rochas, Givenchy, and many other fashion houses this fall. It may seem scary to apply such a bold lip color, but pair it with a neutral eye and cheek makeup and you will have a balanced makeup look that is on-trend for fall. When wearing a deep lip color, it’s usually best to apply a lip liner in a similar shade first to make the lipstick goes on smoothly and evenly. This bold look is perfect for an evening out with the girls!
+**Five-minute version:** Smudge dark pencil along the lash line, add mascara and tap on a cool berry-brown lip. Keep your usual base. For a color twist, see our [red-eyeliner guide](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/).
 
-## 2. Graphic Black Eyeliner
+## 2. Blurred lips
 
-![Graphic Black Eyeliner](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/2_545x779.jpg)
+The outline is soft rather than sharply drawn. Glamour's Leah Darcy and Melissa Hurkman expect this look to stay; Hurkman points to warm cinnamon tones for fall.
 
-Graphic black eyeliner will really make your eyes a statement. Putting emphasis on your eyes with graphic black eyeliner will give you a sultry, sexy look. This look was all the rage on the runways at Lanvin this fall. If you’ve never applied graphic eyeliner before, the first time might be tedious, but take your time and remember practice makes perfect!
+**Five-minute version:** Apply a little lip color at the center, blur it outward with a fingertip and soften the border. Add balm if you want comfort. Our [matte-lip guide](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/) shows another way to wear stronger color.
 
-## 3. Bold Brows
+## 3. Berry stains
 
-![Bold Brows](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/3_545x779.jpg)
+[Allure's fall report](https://www.allure.com/story/fall-makeup-trends-2026) suggests a deeper stain for people who want color without maintaining an opaque dark lipstick. Makeup artist Christian Briceno recommends building the tint from the center of the lips.
 
-Gone are the thin, over-tweezed eyebrows! Bold brows made a strong comeback this fall. They were seen on the catwalks of Alexander Wang, Derek Lam, Jil Sander and Altuzarra. So throw out your tweezers and let your brows go au natural to frame your gorgeous fall eye makeup. If you don't have naturally thick eyebrows, don't fret! Just take your eyebrow pencil and draw them in!
+**Five-minute version:** Smooth on balm, blot, then dab berry tint at the center and blend. Let one thin layer settle before adding more. The finish is lived-in, not perfectly edged.
 
-## 4. Monochromatic, Nude Faces
+## 4. Sheer brown and burgundy eyes
 
-![Monochromatic, Nude Faces](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/4_613x800.jpg)
+Makeup artist Leah Darcy tells Glamour that brown and burgundy remain fall favorites. The 2026 update is a light wash rather than a heavy block of pigment.
 
-A simple yet striking fall makeup trend is a nude, monochromatic face. To achieve this look choose a rosy pink to apply to your eyes, cheeks, and lips. I like to use one that is similar in color to that of my natural lip color. This gorgeous fall makeup trend is great for daytime or when you have a limited amount of time to apply your makeup. It's fresh, super easy to do and totally great for any time!
+**Five-minute version:** Blend one warm brown or burgundy shadow over the lid with a soft brush. Keep the edge diffused. Go deeper with our [latte-makeup tutorial](https://makeup.allwomenstalk.com/latte-makeup/) or [suede-eyes guide](https://makeup.allwomenstalk.com/suede-eyes/).
 
-## 5. Brown Smoky Eyes
+## 5. Eyemaxxing by eye color
 
-![Brown Smoky Eyes](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/5_797x1200.jpg)
+Makeup artist Micol Melani describes eyemaxxing in Glamour as choosing colors that contrast with your iris. Bronze and copper can bring out blue eyes; plum and burgundy can flatter green; olive and purple can play up hazel; blue and cool purple can make brown eyes stand out. These are options, not rules.
 
-I know most of us think black when we hear the term smoky eye, but this fall the smoky eye is going brown! Burberry Prorsum rocked this look at their fall fashion show. One of my favorite ways to achieve this fall makeup trend is to use my bronzer as eyeshadow. Just smoke it on your eyelids and add a bit of black liner and mascara to complete the look. It's great for date night!
+**Five-minute version:** Use one contrasting shade as a thin liner or small outer-corner accent. Keep the rest neutral. Explore more [eye-color makeup ideas](https://allwomenstalk.com/stories/makeup-tricks-enhance-eye-color/).
 
-## 6. Flushed Cheeks
+## 6. A mineral wash or soft smoky eye
 
-![Flushed Cheeks](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/6_1065x1345.jpg)
+Briceno tells Allure that a single slate, pewter or greige shadow can make the whole eye look. It feels quieter than a layered smoky eye. Nikki DeRoest also describes a gentle smoky effect made with pencil close to the lashes.
 
-Although there is a fine line between flushed cheeks and clownish, old lady rouge, there is actually a line. To avoid looking clownish, opt for a peach shade of blush rather than pink. Apply it liberally onto the cheekbones, and blend well. The goal for this fall makeup trend is to look flushed as if you’ve just finished a vigorous workout. Keep the rest of your makeup toned down and show off those gorgeous cheekbones for once!
+**Five-minute version:** Sweep one cool neutral over the lid and smudge pencil at the lash roots. Blend outward until there is no hard border. Our [suede-eye how-to](https://makeup.allwomenstalk.com/suede-eyes/) offers a warmer variation.
 
-## 7. Bright Matte Lips
+## 7. Frosted touches
 
-![Bright Matte Lips](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/makeup/2012/10/7_500x660.jpg)
+Glamour sees shimmer returning in small doses: a sheer sheen on the lid or sparkle on the lip. It is a hint of light, not an all-over metallic mask.
 
-Bright matte lips just might be my favorite fall makeup trend. Bright colors are fun and playful and can brighten up any look. The great thing about a matte, bright lip is that even though it’s cheerful, it’s not an in-your-face look. A matte, hot pink pout will turn heads this fall. Don’t believe me? Just check out the beautiful models from Thakoon’s fall runway.
+**Five-minute version:** Tap a little shimmer onto the center of the lid or inner corner, then leave the rest of the eye simple. If your lip is glossy, you may not need any more shine.
 
-Which fall makeup trend is your favorite? Have you tried any of these gorgeous makeup looks before? I've used them all and they are absolutely beautiful! So girls, you ready to get in style this fall and steal some of these looks right off of the runway?
+## 8. Blush worn high, with a soft transition
 
-Top Image Source: [stephadamscreative.blogspot.in](http://stephadamscreative.blogspot.com/)
+Hurkman places cream blush high on the cheekbones and blends it toward the temples. Melani's “transition blush” uses a second, lighter blush to soften the edge. Allure's Joseph Carrillo also favors more blush and less heavy contour. For a quieter option, makeup artist Vanessa Nicole Stern predicts [barely-there anti-blush](https://makeup.allwomenstalk.com/anti-blush/).
+
+**Five-minute version:** Apply your main blush high on the cheeks, then blend the edge with a clean brush or a little lighter blush. Stop when the color looks like part of your skin, not a stripe.
+
+## 9. Soft-matte skin that still looks like skin
+
+Darcy favors soft-matte, pillowy finishes over an all-over glow. Hurkman suggests setting only where needed so the center of the face stays fresh; Allure also makes room for a small balmy sheen on high points.
+
+**Five-minute version:** Use your usual base and powder only the areas that get too shiny for your taste. Leave some natural texture and a little light on the cheeks.
+
+## What's fading this fall?
+
+The artists in Glamour and Allure are moving away from uniformly glossy bases and heavy contour. That does not mean you must abandon your favorite look. Try one diffused lip, high blush or soft shadow before changing everything.
+
+## Pick a look for the time you have
+
+Time
+Easy choice
+What you need
+
+Two minutes
+Berry stain or blurred lip
+One lip color and a fingertip
+
+Five minutes
+Brown wash, high blush or soft-matte base
+One shadow, blush or powder
+
+Going out
+Witchy liner and lip, or a frosted eye
+Pencil, mascara and one accent color
+
+## FAQ
+
+### What makeup is trending for fall 2026?
+
+Richer color with softer finishes: witchy liner, blurred and berry lips, brown or burgundy eyes, high blush, small frosted accents and skin-like soft matte bases.
+
+### What is witchy makeup?
+
+A moody look built from dark lip color, fine liner and defined lashes. For daytime, keep the eye softly smudged and the rest of the face simple.
+
+### What is transition blush?
+
+A lighter blush blended around the edge of your main blush to create a softer transition into the skin.
 
 ## Related Posts
 
-- [how to hide dark circles with concealer](https://makeup.allwomenstalk.com/concealer-tricks-to-hide-dark-circles/)
-- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
-- [how to use an eyebrow stamp](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
-- [how to make your skin look flawless](https://makeup.allwomenstalk.com/concealer-tricks-to-make-your-skin-look-flawless/)
+- [60s eye makeup tutorial](https://makeup.allwomenstalk.com/eyeliner-tutorials-you-need-to-see/)
 - [spine tattoos scoliosis](https://beauty.allwomenstalk.com/mindblowing-make-up-art-images/)
+- [how to make your skin look flawless](https://makeup.allwomenstalk.com/concealer-tricks-to-make-your-skin-look-flawless/)
+- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
 - [makeup tips bronzer](https://makeup.allwomenstalk.com/fabulous-bronzer-application-tips-to-make-you-look-beautiful/)
 - [matt blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-mastering-matte-eyeshadow/)
+- [how to use an eyebrow stamp](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
 - [loreal riche le stylo shadow always pink](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
-- [60s eye makeup tutorial](https://makeup.allwomenstalk.com/eyeliner-tutorials-you-need-to-see/)
+- [how to hide dark circles with concealer](https://makeup.allwomenstalk.com/concealer-tricks-to-hide-dark-circles/)
 - [if you trim your eyelashes will they grow longer](https://beauty.allwomenstalk.com/beauty-tips-for-long-luscious-lashes/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [8 Make up Tricks for Autumn ...](https://makeup.allwomenstalk.com/make-up-tricks-for-autumn/)
