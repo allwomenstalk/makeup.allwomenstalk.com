@@ -1,82 +1,98 @@
 ---
-title: "This Easy Eyeliner Trend is about to Be Huge This Year ..."
-description: "Start with a White Eyeliner; Want a Sexy Smoky Look?; After a Luscious Luminous Look?; Are You a Fan of the Dark Side?; Want to Be Dark and Dramatic?; More ..."
+title: "Ghost Wing Eyeliner: How to Do the Soft, Smudged Cat-Eye"
+description: "Try a diffused brown ghost wing with simple pencil or shadow steps and eye-shape tweaks."
 url: "https://makeup.allwomenstalk.com/this-easy-eyeliner-trend-is-about-to-be-huge-this-year/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-01"
 ---
 
-# This Easy Eyeliner Trend is about to Be Huge This Year ...
+# Ghost Wing Eyeliner: How to Do the Soft, Smudged Cat\-Eye
 
-The bold, dramatic [winged eyeliner](https://makeup.allwomenstalk.com/tips-for-girls-who-suck-at-winged-eye-liner/) we all once loved has become totally mainstream lately, to the point where everyone is doing it it's not all that amazing anymore! In fact, it's bound to be on it's way out soon, so why not be one of the first to hop on board the new trend of thin and subtle winged eyeliner?
+A ghost wing is a cat-eye with the edges softened until the line almost disappears. Instead of drawing a precise black flick, you smudge brown pencil or matte shadow along the outer third of the upper lashes and blend it slightly upward. It is forgiving, quick, and easy to adjust to your own eye shape.
 
-These easy steps will show you exactly how to successful achieve this amazingly subtle eyeliner trend inspired by makeup artist Patrick Ta, and you want to know the best part? There are heaps of ways you can make this new trend your own so keep reading for different options that everyone can try and love!
+## What makes a wing a “ghost wing”?
 
-## 1. Start with a White Eyeliner
+Makeup artist Melissa Hurkman describes the effect in [ELLE's ghost-wing explainer](https://www.elle.com/beauty/makeup-skin-care/a74289215/eyeshadow-cat-eye-makeup-trends-fall-2026/): the placement suggests a wing while the border stays diffused. The look sits between a bare lash line and a crisp cat-eye. It also fits the softer eye looks in our [fall makeup guide](https://makeup.allwomenstalk.com/gorgeous-fall-makeup-trends-to-follow/).
 
-![eyebrow, hair, hairstyle, forehead, beauty,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ee/pv/xbgdl6h3578882d5c1c92636122973_478x594.jpg)
+Look
+Where the color goes
+Finish
 
-Start this fabulous eyeliner trend by opting for a crisp white eyeliner and take your time line your waterline - you don't want any of it accidently getting into your eyes!
+Classic wing
+Lash line and a distinct outward flick
+Sharp, often liquid and black
 
-Light eye makeup shades are known for being amazing at creating the illusion that your eyes are heaps bigger than they actually are, and white eyeliner is no different! It will make your eyes look totally and utterly illuminated as the white eyeliner widens them.
+Ghost wing
+Mostly the outer third of the upper lash line
+Brown or taupe, softly blurred
 
-## 2. Want a Sexy Smoky Look?
+[Suede eyes](https://makeup.allwomenstalk.com/suede-eyes/)
+Matte shadow across the lid
+Soft, broad smoky wash
 
-![eyebrow, hair, hairstyle, black hair, eyelash,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/lv/zy/zq84o90i5788bac8b57ac713450195_500x500.jpg)
+## How to do a ghost wing in five minutes
 
-Take your favourite smoky, neutral eyeshadow in shades such as bronze, copper or brown and apply this as you normally would on your eyelids...don't forget to blend out softly and seamlessly afterwards! Next, apply a small amount underneath your lower lash line and blend downwards.
+- **Sketch the outer third.** Press a creamy brown pencil close to your upper lashes, concentrating on the outside. Leave the inner corner nearly bare.
 
-The blended, bronze colour on both top and bottom is perfect for making your irises stand out and to make a statement!
+- **Smudge out and slightly up.** Use a tiny angled brush to pull the color toward the end of your brow. Work in short strokes; you can always add more.
 
-## 3. After a Luscious Luminous Look?
+- **Blur the border.** Tap a clean brush over the top edge until it looks like a shadow, not a drawn-on line. Keep the lift visible when your eyes are open.
 
-![blond, hair, color, person, hairstyle,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/r5/bg/up6z3jxc5788bb0593aa8968343876_500x500.jpg)
+- **Finish with mascara.** Place a little extra emphasis on the outer lashes. If the wing becomes too dark, soften it with a clean brush rather than starting over.
 
-If you're not a fain of the smoky, neutral shade with your subtle but beautiful eyeliner to come, don't worry as there's a perfect alternative for you! The great thing about this new trend is that there's heaps of choices when it comes to eyeshadow so you can go with your favourite shades and still be different from everyone else!
+This is adapted from Hurkman's method in ELLE. There is no need to line your waterline. If you want a defined line instead, see our [classic winged-liner tricks](https://makeup.allwomenstalk.com/easy-tricks-for-perfect-winged-eyeliner/).
 
-Choose a light, shimmery and luminous shade and apply this directly on your eyelids. Voila: it's as easy as that! A light eyeshadow will create the perfect contrast when it comes to applying the thin, subtle winged eyeliner later on.
+## The shadow-only version
 
-## 4. Are You a Fan of the Dark Side?
+No pencil? Pick a matte taupe or soft brown shadow and a small angled brush. Press the shadow into the outer upper lash line, then sweep the remaining color slightly up and out. Build in thin layers. A soft edge is the point, so this version is particularly forgiving if your hands are shaky. Pair it with [latte makeup](https://makeup.allwomenstalk.com/latte-makeup/) for an all-over warm-neutral look.
 
-![person, eyebrow, black hair, blond, thigh,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/br/r0/k3rdtfhu5788bba9d044b621634016_480x475.jpg)
+## How to adapt it to your eye shape
 
-If you prefer a darker look that creates the perfect amount of intensity yet mystery, you have to pair this with your thin, winged eyeliner!
+These are editor's technique tips, not rules. Try the placement with your eyes open and adjust the width until the color shows where you want it.
 
-Because you still want your barely there liner to stand out, it's important to use the darker shade sparingly and with precaution - you don't want to take the amazing overall effect away! The best way you can do this is to opt for a smokier shade such as dark brown which won't be too overpowering.
+- **Hooded eyes:** Look straight ahead while mapping the outer flick. Keep enough of the smudge visible above the fold when your eye is open.
 
-## 5. Want to Be Dark and Dramatic?
+- **Monolids:** A slightly wider outer haze can show the shape without needing a sharp tail.
 
-![hair, eyebrow, person, hairstyle, brown,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/uv/ab/dkmcmdqm5788bbb72c787530113378_480x480.jpg)
+- **Textured or mature lids:** Try the shadow-only version and pat rather than pull at the skin.
 
-Okay so you might love the bold, dramatic liner look that's in right now and for this reason you might not be ready to part with it just yet! If that's the case, no worries! Luckily with this new trend you can still incorporate a bit of boldness to your liking, and in a different way to what everyone is doing now!
+The two images below show _finished looks_ on different eye shapes; they are illustrations of placement, not a promise that one shape works for everyone.
 
-Harsh lines can be hard to avoid sometimes when applying eyeliner, but you can easily avoid this problem by angling or slanting a dark brown or bronze eyeshadow at the edge of your outer corner. This will 'pull' your eyes upwards towards the end of your eyebrow, which naturally creates a much softer look!
+![Finished soft brown ghost wing on a hooded eye.](https://img.allw.mn/uploads/2026-11-01-ghost-wing-hooded-eye-1793567266125.jpg)
 
-## 6. Finish with a Thin Flick
+![Finished taupe-brown ghost wing on a monolid eye.](https://img.allw.mn/uploads/2026-11-01-ghost-wing-monolid-eye-1793567267361.jpg)
 
-![hair, hairstyle, eyebrow, black hair, human hair color,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ta/tg/iag0fvs157888a8809b9e148899915_503x596.jpg)
+For a subtler result, use taupe; for more contrast, try chocolate brown. A [muted burgundy liner](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/) gives the same technique a different mood.
 
-Now this is the step you've all been waiting for: you have your chosen eyeshadow on and need to finish it off with a thin, neat and subtle flick of a black eyeliner!
+## FAQ
 
-Carefully line your upper lash line in an ultra thin fashion and try to stay as close to the lash line as possible for best results! Opt for just the slightest flick outwards, so you have a subtle yet gorgeous cat eye effect that will have everyone super jealous when they see your fresh look!
+### What is ghost wing eyeliner?
 
-## 7. Enjoy the Finished Look!
+It is a diffused cat-eye concentrated on the outer upper lashes. The lift is visible, but the line has no hard edge.
 
-![clothing, hair, hairstyle, eyebrow, blond,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/z1/qo/ltc6lbv45788bc3bcc471235687573_500x500.jpg)
+### How do you make a smudged cat-eye?
 
-Congrats, you've done it! Now all that's left to do is to admire your fabulous work and go out and enjoy it while it's there! Even though this is a trend that's bound to be huge this year, think about how great it will be when you get to say that you were one of the first to try it and rock the trend before everyone else jumped on the bandwagon?!
+Place brown pencil or matte shadow close to the outer upper lashes and blend it outward and slightly upward with a small brush.
+
+### Can you use eyeshadow instead of eyeliner?
+
+Yes. A matte taupe or brown shadow and an angled brush make a soft wing with more room for adjustment.
+
+### Can hooded eyes wear a ghost wing?
+
+Yes. Map the shape while looking forward so you can see the smudge with your eyes open; adjust its height for your own lid.
 
 ## Related Posts
 
-- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
-- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
-- [hot male calendar](https://lifestyle.allwomenstalk.com/sexiest-calendars-for/)
-- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
-- [makeup 2017](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-instagram/)
-- [coachella outfit for girls](https://fashion.allwomenstalk.com/coachella-fashion-trends-all-the-cool-girls-are-wearing/)
-- [most popular colors](https://fashion.allwomenstalk.com/the-hottest-fashion-colors-for-countries-around-the-world/)
 - [beauty trends 2016](https://beauty.allwomenstalk.com/freshest-beauty-trends-for-fall/)
+- [most popular colors](https://fashion.allwomenstalk.com/the-hottest-fashion-colors-for-countries-around-the-world/)
+- [hot male calendar](https://lifestyle.allwomenstalk.com/sexiest-calendars-for/)
+- [coachella outfit for girls](https://fashion.allwomenstalk.com/coachella-fashion-trends-all-the-cool-girls-are-wearing/)
+- [makeup 2017](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-instagram/)
+- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
 - [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
+- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
+- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
 - [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
 - [SUMMER 06 MAKEUP TREND . Eyeliner ...](https://allwomenstalk.com/summer-06-makeup-trend-eyeliner/)
 - [13 Best Eyeliners You Won't Want to Miss ...](https://allwomenstalk.com/best-eyeliners-expert-reviews/)
