@@ -3,7 +3,7 @@ title: "Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes"
 description: "The fall 2026 makeup looks worth trying: witchy liner, blurred lips, berry stains, sheer brown eyes, high blush and soft-matte skin, each with a five-minute version."
 url: "https://makeup.allwomenstalk.com/gorgeous-fall-makeup-trends-to-follow/"
 category: "makeup"
-last_updated: "2026-10-31"
+last_updated: "2026-11-01"
 ---
 
 # Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes
@@ -14,7 +14,7 @@ Fall 2026 makeup brings richer color with softer edges. Think witchy liner and b
 
 Makeup artist Valeria Ferreira describes [Glamour's witchy look](https://www.glamour.com/story/fall-makeup-trends-2026) with dark lips, a tiny liner flick and defined lashes. It can be dramatic without covering your whole face.
 
-**Five-minute version:** Smudge dark pencil along the lash line, add mascara and tap on a cool berry-brown lip. Keep your usual base. For a color twist, see our [red-eyeliner guide](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/).
+**Five-minute version:** Smudge dark pencil along the lash line, add mascara and tap on a cool berry-brown lip. Keep your usual base. For a color twist, see our [red-eyeliner guide](https://makeup.allwomenstalk.com/fab-ways-to-apply-colored-eyeliner/). For a softer brown lift, try our [ghost-wing tutorial](https://makeup.allwomenstalk.com/this-easy-eyeliner-trend-is-about-to-be-huge-this-year/).
 
 ## 2. Blurred lips
 
