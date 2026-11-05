@@ -1,111 +1,5 @@
-*, ::before, ::after {
-  --tw-border-spacing-x: 0;
-  --tw-border-spacing-y: 0;
-  --tw-translate-x: 0;
-  --tw-translate-y: 0;
-  --tw-rotate: 0;
-  --tw-skew-x: 0;
-  --tw-skew-y: 0;
-  --tw-scale-x: 1;
-  --tw-scale-y: 1;
-  --tw-pan-x:  ;
-  --tw-pan-y:  ;
-  --tw-pinch-zoom:  ;
-  --tw-scroll-snap-strictness: proximity;
-  --tw-gradient-from-position:  ;
-  --tw-gradient-via-position:  ;
-  --tw-gradient-to-position:  ;
-  --tw-ordinal:  ;
-  --tw-slashed-zero:  ;
-  --tw-numeric-figure:  ;
-  --tw-numeric-spacing:  ;
-  --tw-numeric-fraction:  ;
-  --tw-ring-inset:  ;
-  --tw-ring-offset-width: 0px;
-  --tw-ring-offset-color: #fff;
-  --tw-ring-color: rgb(59 130 246 / 0.5);
-  --tw-ring-offset-shadow: 0 0 #0000;
-  --tw-ring-shadow: 0 0 #0000;
-  --tw-shadow: 0 0 #0000;
-  --tw-shadow-colored: 0 0 #0000;
-  --tw-blur:  ;
-  --tw-brightness:  ;
-  --tw-contrast:  ;
-  --tw-grayscale:  ;
-  --tw-hue-rotate:  ;
-  --tw-invert:  ;
-  --tw-saturate:  ;
-  --tw-sepia:  ;
-  --tw-drop-shadow:  ;
-  --tw-backdrop-blur:  ;
-  --tw-backdrop-brightness:  ;
-  --tw-backdrop-contrast:  ;
-  --tw-backdrop-grayscale:  ;
-  --tw-backdrop-hue-rotate:  ;
-  --tw-backdrop-invert:  ;
-  --tw-backdrop-opacity:  ;
-  --tw-backdrop-saturate:  ;
-  --tw-backdrop-sepia:  ;
-  --tw-contain-size:  ;
-  --tw-contain-layout:  ;
-  --tw-contain-paint:  ;
-  --tw-contain-style:  ;
-}
-
-::backdrop {
-  --tw-border-spacing-x: 0;
-  --tw-border-spacing-y: 0;
-  --tw-translate-x: 0;
-  --tw-translate-y: 0;
-  --tw-rotate: 0;
-  --tw-skew-x: 0;
-  --tw-skew-y: 0;
-  --tw-scale-x: 1;
-  --tw-scale-y: 1;
-  --tw-pan-x:  ;
-  --tw-pan-y:  ;
-  --tw-pinch-zoom:  ;
-  --tw-scroll-snap-strictness: proximity;
-  --tw-gradient-from-position:  ;
-  --tw-gradient-via-position:  ;
-  --tw-gradient-to-position:  ;
-  --tw-ordinal:  ;
-  --tw-slashed-zero:  ;
-  --tw-numeric-figure:  ;
-  --tw-numeric-spacing:  ;
-  --tw-numeric-fraction:  ;
-  --tw-ring-inset:  ;
-  --tw-ring-offset-width: 0px;
-  --tw-ring-offset-color: #fff;
-  --tw-ring-color: rgb(59 130 246 / 0.5);
-  --tw-ring-offset-shadow: 0 0 #0000;
-  --tw-ring-shadow: 0 0 #0000;
-  --tw-shadow: 0 0 #0000;
-  --tw-shadow-colored: 0 0 #0000;
-  --tw-blur:  ;
-  --tw-brightness:  ;
-  --tw-contrast:  ;
-  --tw-grayscale:  ;
-  --tw-hue-rotate:  ;
-  --tw-invert:  ;
-  --tw-saturate:  ;
-  --tw-sepia:  ;
-  --tw-drop-shadow:  ;
-  --tw-backdrop-blur:  ;
-  --tw-backdrop-brightness:  ;
-  --tw-backdrop-contrast:  ;
-  --tw-backdrop-grayscale:  ;
-  --tw-backdrop-hue-rotate:  ;
-  --tw-backdrop-invert:  ;
-  --tw-backdrop-opacity:  ;
-  --tw-backdrop-saturate:  ;
-  --tw-backdrop-sepia:  ;
-  --tw-contain-size:  ;
-  --tw-contain-layout:  ;
-  --tw-contain-paint:  ;
-  --tw-contain-style:  ;
-}/*
-! tailwindcss v3.4.17 | MIT License | https://tailwindcss.com
+/*
+! tailwindcss v3.4.3 | MIT License | https://tailwindcss.com
 *//*
 1. Prevent padding and border from affecting element width. (https://github.com/mozdevs/cssremedy/issues/4)
 2. Allow adding a border to an element by just adding a border-width. (https://github.com/tailwindcss/tailwindcss/pull/116)
@@ -496,7 +390,7 @@ video {
 }
 
 /* Make elements with the HTML hidden attribute stay hidden by default */
-[hidden]:where(:not([hidden="until-found"])) {
+[hidden] {
   display: none;
 }
 
@@ -696,4 +590,227 @@ select {
 [type='file']:focus {
   outline: 1px solid ButtonText;
   outline: 1px auto -webkit-focus-ring-color;
+}
+
+*, ::before, ::after {
+  --tw-border-spacing-x: 0;
+  --tw-border-spacing-y: 0;
+  --tw-translate-x: 0;
+  --tw-translate-y: 0;
+  --tw-rotate: 0;
+  --tw-skew-x: 0;
+  --tw-skew-y: 0;
+  --tw-scale-x: 1;
+  --tw-scale-y: 1;
+  --tw-pan-x:  ;
+  --tw-pan-y:  ;
+  --tw-pinch-zoom:  ;
+  --tw-scroll-snap-strictness: proximity;
+  --tw-gradient-from-position:  ;
+  --tw-gradient-via-position:  ;
+  --tw-gradient-to-position:  ;
+  --tw-ordinal:  ;
+  --tw-slashed-zero:  ;
+  --tw-numeric-figure:  ;
+  --tw-numeric-spacing:  ;
+  --tw-numeric-fraction:  ;
+  --tw-ring-inset:  ;
+  --tw-ring-offset-width: 0px;
+  --tw-ring-offset-color: #fff;
+  --tw-ring-color: rgb(59 130 246 / 0.5);
+  --tw-ring-offset-shadow: 0 0 #0000;
+  --tw-ring-shadow: 0 0 #0000;
+  --tw-shadow: 0 0 #0000;
+  --tw-shadow-colored: 0 0 #0000;
+  --tw-blur:  ;
+  --tw-brightness:  ;
+  --tw-contrast:  ;
+  --tw-grayscale:  ;
+  --tw-hue-rotate:  ;
+  --tw-invert:  ;
+  --tw-saturate:  ;
+  --tw-sepia:  ;
+  --tw-drop-shadow:  ;
+  --tw-backdrop-blur:  ;
+  --tw-backdrop-brightness:  ;
+  --tw-backdrop-contrast:  ;
+  --tw-backdrop-grayscale:  ;
+  --tw-backdrop-hue-rotate:  ;
+  --tw-backdrop-invert:  ;
+  --tw-backdrop-opacity:  ;
+  --tw-backdrop-saturate:  ;
+  --tw-backdrop-sepia:  ;
+  --tw-contain-size:  ;
+  --tw-contain-layout:  ;
+  --tw-contain-paint:  ;
+  --tw-contain-style:  ;
+}
+
+::backdrop {
+  --tw-border-spacing-x: 0;
+  --tw-border-spacing-y: 0;
+  --tw-translate-x: 0;
+  --tw-translate-y: 0;
+  --tw-rotate: 0;
+  --tw-skew-x: 0;
+  --tw-skew-y: 0;
+  --tw-scale-x: 1;
+  --tw-scale-y: 1;
+  --tw-pan-x:  ;
+  --tw-pan-y:  ;
+  --tw-pinch-zoom:  ;
+  --tw-scroll-snap-strictness: proximity;
+  --tw-gradient-from-position:  ;
+  --tw-gradient-via-position:  ;
+  --tw-gradient-to-position:  ;
+  --tw-ordinal:  ;
+  --tw-slashed-zero:  ;
+  --tw-numeric-figure:  ;
+  --tw-numeric-spacing:  ;
+  --tw-numeric-fraction:  ;
+  --tw-ring-inset:  ;
+  --tw-ring-offset-width: 0px;
+  --tw-ring-offset-color: #fff;
+  --tw-ring-color: rgb(59 130 246 / 0.5);
+  --tw-ring-offset-shadow: 0 0 #0000;
+  --tw-ring-shadow: 0 0 #0000;
+  --tw-shadow: 0 0 #0000;
+  --tw-shadow-colored: 0 0 #0000;
+  --tw-blur:  ;
+  --tw-brightness:  ;
+  --tw-contrast:  ;
+  --tw-grayscale:  ;
+  --tw-hue-rotate:  ;
+  --tw-invert:  ;
+  --tw-saturate:  ;
+  --tw-sepia:  ;
+  --tw-drop-shadow:  ;
+  --tw-backdrop-blur:  ;
+  --tw-backdrop-brightness:  ;
+  --tw-backdrop-contrast:  ;
+  --tw-backdrop-grayscale:  ;
+  --tw-backdrop-hue-rotate:  ;
+  --tw-backdrop-invert:  ;
+  --tw-backdrop-opacity:  ;
+  --tw-backdrop-saturate:  ;
+  --tw-backdrop-sepia:  ;
+  --tw-contain-size:  ;
+  --tw-contain-layout:  ;
+  --tw-contain-paint:  ;
+  --tw-contain-style:  ;
+}
+
+/* ===== User personalization themes (localStorage-driven) =====
+   Default :root values reproduce the existing light look exactly, so the
+   site is visually unchanged until a visitor picks a theme. Themes are
+   applied by setting data-theme on <html> (see pre-paint script in
+   default.njk and the personalize() Alpine component in app.js). */
+
+:root {
+  --bg: #f9fafb;        /* gray-50  — body background */
+  --surface: #ffffff;   /* white    — cards, nav, panels */
+  --text: #111827;      /* gray-900 — primary text */
+  --text-muted: #6b7280;/* gray-500 — secondary text */
+  --accent: #B77466;    /* brand accent (post titles, links) */
+  --border: #e5e7eb;    /* gray-200 — borders */
+}
+
+[data-theme="warm"] {
+  --bg: #f4ecdf;
+  --surface: #fcf6ea;
+  --text: #43352a;
+  --text-muted: #7a6a58;
+  --accent: #a85f50;
+  --border: #e7d8c2;
+}
+
+[data-theme="dark"] {
+  --bg: #121417;
+  --surface: #1d2025;
+  --text: #e6e6e6;
+  --text-muted: #9aa0a6;
+  --accent: #e0a99d;
+  --border: #333a42;
+}
+
+/* Body always tracks the theme tokens. Defaults equal gray-50/gray-900 so
+   light mode is identical to before. */
+
+body {
+  background-color: var(--bg);
+  color: var(--text);
+}
+
+/* Brand accent is theme-driven everywhere it is referenced. */
+
+.post-title { color: var(--accent); }
+
+/* When a non-light theme is active, remap the most common Tailwind surface
+   utilities to the theme tokens. Scoped to [data-theme] so light mode keeps
+   Tailwind's original values untouched. */
+
+[data-theme="warm"] .bg-white,
+[data-theme="dark"] .bg-white { background-color: var(--surface) !important; }
+
+[data-theme="warm"] .bg-gray-50,
+[data-theme="dark"] .bg-gray-50,
+[data-theme="warm"] .bg-gray-100,
+[data-theme="dark"] .bg-gray-100 { background-color: var(--bg) !important; }
+
+/* The neutral category badge uses bg-gray-50, which the rule above remaps to
+   --bg — so on dark/warm it blends into the page background and reads as an
+   invisible "black" pill while its colored siblings stay light. Pin it back to
+   a light pill (matching the colored badges) so it stays legible.
+   .cat-badge-neutral is tagged on the gray badge in navigation.njk. */
+
+[data-theme="warm"] .cat-badge-neutral,
+[data-theme="dark"] .cat-badge-neutral {
+  background-color: #f3f4f6 !important; /* gray-100 */
+  color: #4b5563 !important;            /* gray-600 */
+}
+
+[data-theme="warm"] .text-gray-900,
+[data-theme="dark"] .text-gray-900,
+[data-theme="warm"] .text-gray-800,
+[data-theme="dark"] .text-gray-800,
+[data-theme="warm"] .text-gray-700,
+[data-theme="dark"] .text-gray-700 { color: var(--text) !important; }
+
+[data-theme="warm"] .text-gray-600,
+[data-theme="dark"] .text-gray-600,
+[data-theme="warm"] .text-gray-500,
+[data-theme="dark"] .text-gray-500,
+[data-theme="warm"] .text-gray-400,
+[data-theme="dark"] .text-gray-400 { color: var(--text-muted) !important; }
+
+[data-theme="warm"] .border-gray-200,
+[data-theme="dark"] .border-gray-200,
+[data-theme="warm"] .border-gray-300,
+[data-theme="dark"] .border-gray-300 { border-color: var(--border) !important; }
+
+/* Dark theme: the nav's frosted-glass buttons use a translucent WHITE
+   backdrop (bg-white/30 + border-white), which looks washed-out on dark.
+   Swap to a translucent black so the blur reads dark. */
+
+[data-theme="dark"] .bg-white\/30 { background-color: rgba(0, 0, 0, 0.35) !important; }
+
+[data-theme="dark"] .border-white { border-color: rgba(255, 255, 255, 0.25) !important; }
+
+/* The nav top-fade overlay is a translucent white wash — on dark it shows
+   as a light shade. Make it a black wash instead. */
+
+[data-theme="dark"] .nav-fade::after { background: rgba(0, 0, 0, 0.18) !important; }
+
+/* Article body (Tailwind Typography) */
+
+[data-theme="warm"] .prose,
+[data-theme="dark"] .prose { color: var(--text); }
+
+[data-theme="warm"] .prose :where(h1,h2,h3,h4,h5,h6,strong,blockquote,li):not(:where([class~="not-prose"] *)),
+[data-theme="dark"] .prose :where(h1,h2,h3,h4,h5,h6,strong,blockquote,li):not(:where([class~="not-prose"] *)) { color: var(--text); }
+
+/* Honour reduced-motion for the personalize panel transition. */
+
+@media (prefers-reduced-motion: reduce) {
+  [id="personalize-panel"], [id="personalize-panel"] * { transition: none !important; }
 }
