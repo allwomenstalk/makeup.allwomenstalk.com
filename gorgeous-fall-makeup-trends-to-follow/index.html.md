@@ -3,7 +3,7 @@ title: "Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes"
 description: "The fall 2026 makeup looks worth trying: witchy liner, blurred lips, berry stains, sheer brown eyes, high blush and soft-matte skin, each with a five-minute version."
 url: "https://makeup.allwomenstalk.com/gorgeous-fall-makeup-trends-to-follow/"
 category: "makeup"
-last_updated: "2026-11-01"
+last_updated: "2026-11-10"
 ---
 
 # Fall Makeup Trends 2026: 9 Looks to Try in Five Minutes
@@ -102,16 +102,16 @@ A lighter blush blended around the edge of your main blush to create a softer tr
 
 ## Related Posts
 
-- [60s eye makeup tutorial](https://makeup.allwomenstalk.com/eyeliner-tutorials-you-need-to-see/)
-- [spine tattoos scoliosis](https://beauty.allwomenstalk.com/mindblowing-make-up-art-images/)
-- [how to make your skin look flawless](https://makeup.allwomenstalk.com/concealer-tricks-to-make-your-skin-look-flawless/)
-- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
-- [makeup tips bronzer](https://makeup.allwomenstalk.com/fabulous-bronzer-application-tips-to-make-you-look-beautiful/)
-- [matt blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-mastering-matte-eyeshadow/)
 - [how to use an eyebrow stamp](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
-- [loreal riche le stylo shadow always pink](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
+- [spine tattoos scoliosis](https://beauty.allwomenstalk.com/mindblowing-make-up-art-images/)
+- [60s eye makeup tutorial](https://makeup.allwomenstalk.com/eyeliner-tutorials-you-need-to-see/)
+- [how to get makeup to stay on oily skin](https://makeup.allwomenstalk.com/ways-to-make-makeup-last-on-oily-skin/)
+- [how to make your skin look flawless](https://makeup.allwomenstalk.com/concealer-tricks-to-make-your-skin-look-flawless/)
 - [how to hide dark circles with concealer](https://makeup.allwomenstalk.com/concealer-tricks-to-hide-dark-circles/)
+- [makeup tips bronzer](https://makeup.allwomenstalk.com/fabulous-bronzer-application-tips-to-make-you-look-beautiful/)
 - [if you trim your eyelashes will they grow longer](https://beauty.allwomenstalk.com/beauty-tips-for-long-luscious-lashes/)
+- [matt blue eyeshadow](https://makeup.allwomenstalk.com/tips-for-mastering-matte-eyeshadow/)
+- [loreal riche le stylo shadow always pink](https://makeup.allwomenstalk.com/weird-makeup-trends-to-avoid/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [8 Make up Tricks for Autumn ...](https://makeup.allwomenstalk.com/make-up-tricks-for-autumn/)
 

@@ -1,9 +1,9 @@
 ---
 title: "The Unexpected Magic in Your Makeup Bag..."
-description: "Discovering the Allure: Mattes and Metallics; Waterproof Wonder: Longevity and Application; Style Meets Substance: The Design; Crafting Your Perfect Look; Your Turn: Express Yourself; More ..."
+description: "Discovering the Allure: Mattes and Metallics; Waterproof Wonder: Longevity and Application; Style Meets Substance: The Design; Crafting Your Perfect Look"
 url: "https://makeup.allwomenstalk.com/charlotte-tilbury-rock-n-kohl-eyeliner/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Unexpected Magic in Your Makeup Bag...

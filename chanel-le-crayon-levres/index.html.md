@@ -1,9 +1,9 @@
 ---
 title: "A Closer Look at the Shades That Define..."
-description: "The Charm of LE CRAYON LÈVRES; The Magnetic Appeal of ROUGE ALLURE VELVET; Breaking Down the Shades; Your Beauty Ritual; A Divine Pairing; More ..."
+description: "The Charm of LE CRAYON LÈVRES; The Magnetic Appeal of ROUGE ALLURE VELVET; Breaking Down the Shades; Your Beauty Ritual; A Divine Pairing"
 url: "https://makeup.allwomenstalk.com/chanel-le-crayon-levres/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # A Closer Look at the Shades That Define...

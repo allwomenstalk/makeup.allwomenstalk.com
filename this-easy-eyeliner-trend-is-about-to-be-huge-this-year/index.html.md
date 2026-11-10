@@ -3,7 +3,7 @@ title: "Ghost Wing Eyeliner: How to Do the Soft, Smudged Cat-Eye"
 description: "Try a diffused brown ghost wing with simple pencil or shadow steps and eye-shape tweaks."
 url: "https://makeup.allwomenstalk.com/this-easy-eyeliner-trend-is-about-to-be-huge-this-year/"
 category: "makeup"
-last_updated: "2026-11-01"
+last_updated: "2026-11-10"
 ---
 
 # Ghost Wing Eyeliner: How to Do the Soft, Smudged Cat\-Eye
@@ -84,14 +84,14 @@ Yes. Map the shape while looking forward so you can see the smudge with your eye
 
 ## Related Posts
 
-- [beauty trends 2016](https://beauty.allwomenstalk.com/freshest-beauty-trends-for-fall/)
-- [most popular colors](https://fashion.allwomenstalk.com/the-hottest-fashion-colors-for-countries-around-the-world/)
-- [hot male calendar](https://lifestyle.allwomenstalk.com/sexiest-calendars-for/)
-- [coachella outfit for girls](https://fashion.allwomenstalk.com/coachella-fashion-trends-all-the-cool-girls-are-wearing/)
-- [makeup 2017](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-instagram/)
-- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
-- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
 - [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
+- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
+- [coachella outfit for girls](https://fashion.allwomenstalk.com/coachella-fashion-trends-all-the-cool-girls-are-wearing/)
+- [most popular colors](https://fashion.allwomenstalk.com/the-hottest-fashion-colors-for-countries-around-the-world/)
+- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
+- [beauty trends 2016](https://beauty.allwomenstalk.com/freshest-beauty-trends-for-fall/)
+- [hot male calendar](https://lifestyle.allwomenstalk.com/sexiest-calendars-for/)
+- [makeup 2017](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-instagram/)
 - [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
 - [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
 - [SUMMER 06 MAKEUP TREND . Eyeliner ...](https://allwomenstalk.com/summer-06-makeup-trend-eyeliner/)

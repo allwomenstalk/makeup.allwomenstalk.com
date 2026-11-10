@@ -1,9 +1,9 @@
 ---
 title: "The French Glow Edit - 4 VIOLETTE_FR Summer Essentials to Elevate Your Beauty Routine …"
-description: "VIOLETTE_FR: French Minimalism, Redefined; Lip Nectar: The Summer Lip, Perfected; Bisou Jelly: The Juicy French Kiss Reimagined; Bisou Balm: The Quintessential French Lip, Matte and Modern; Boum-Boum Milk: Skin’s Ultimate Summer Companion; More ..."
+description: "VIOLETTE_FR: French Minimalism, Redefined; Lip Nectar: The Summer Lip, Perfected; Bisou Jelly: The Juicy French Kiss Reimagined"
 url: "https://makeup.allwomenstalk.com/voilette-fr-summer-beauty-essentials/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The French Glow Edit \- 4 VIOLETTE\_FR Summer Essentials to Elevate Your Beauty Routine …

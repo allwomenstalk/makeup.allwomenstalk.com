@@ -1,9 +1,9 @@
 ---
 title: "What Happens When Supermodels Swear by Charlotte Tilbury’s Super Nudes"
-description: "Sculpted Perfection: The Art of Contouring; Eyes That Speak Volumes; The Luscious Lips of Nudegasm; Elevate Your Complexion with Charlotte’s Magic; Fit for the Icons; More ..."
+description: "Sculpted Perfection: The Art of Contouring; Eyes That Speak Volumes; The Luscious Lips of Nudegasm; Elevate Your Complexion with Charlotte’s Magic"
 url: "https://makeup.allwomenstalk.com/charlotte-tilbury-super-nudes-collection/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # What Happens When Supermodels Swear by Charlotte Tilbury’s Super Nudes

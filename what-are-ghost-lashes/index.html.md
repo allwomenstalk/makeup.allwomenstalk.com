@@ -3,7 +3,7 @@ title: "What Are Ghost Lashes? The No-Mascara Look, Explained"
 description: "Ghost lashes mean bare lashes or just a kiss of mascara. Learn how to wear the look and how it differs from white Halloween lashes."
 url: "https://makeup.allwomenstalk.com/what-are-ghost-lashes/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # What Are Ghost Lashes? The No\-Mascara Look, Explained

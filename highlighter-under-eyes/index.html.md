@@ -3,7 +3,7 @@ title: "Highlighter Under Your Eyes? How the Trick Works and Who Should Skip It"
 description: "Learn who may like under-eye highlighter, who should skip it, formula and shade tips, and when corrector or concealer works better."
 url: "https://makeup.allwomenstalk.com/highlighter-under-eyes/"
 category: "makeup"
-last_updated: "2026-10-28"
+last_updated: "2026-11-10"
 ---
 
 # Highlighter Under Your Eyes? How the Trick Works and Who Should Skip It

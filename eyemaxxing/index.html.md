@@ -3,7 +3,7 @@ title: "Eyemaxxing: How to Make Your Eye Color Pop With Shadow, Liner and Mascar
 description: "Eyemaxxing uses color theory to make your eye color pop. Makeup artists' best shadow, liner and mascara shades for blue, green, hazel and brown eyes, plus eye-shape tips."
 url: "https://makeup.allwomenstalk.com/eyemaxxing/"
 category: "makeup"
-last_updated: "2026-10-23"
+last_updated: "2026-11-10"
 ---
 
 # Eyemaxxing: How to Make Your Eye Color Pop With Shadow, Liner and Mascara

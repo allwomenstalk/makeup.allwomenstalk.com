@@ -1,9 +1,9 @@
 ---
 title: "The Story Behind Scarlet Moon by rms beauty..."
-description: "The Magic Behind Scarlet Moon; Enchanting Packaging That Tells a Story; A Limited-Time Beauty Experience; Why Scarlet Moon Deserves Your Attention; More ..."
+description: "The Magic Behind Scarlet Moon; Enchanting Packaging That Tells a Story; A Limited-Time Beauty Experience; Why Scarlet Moon Deserves Your Attention"
 url: "https://makeup.allwomenstalk.com/scarlet-moon-by-rms-beauty/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Story Behind Scarlet Moon by rms beauty...

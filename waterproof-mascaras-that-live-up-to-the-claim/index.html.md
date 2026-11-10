@@ -1,9 +1,9 @@
 ---
 title: "13 Waterproof Mascaras That Live up to the Claim ..."
-description: "Blinc Mascara Amplified; Rimmel ScandalEyes Retroglam Mascara; BENEFIT COSMETICS BADGAL WATERPROOF MASCARA; Clinique Lash Power Mascara Long-wear Formula; DIOR DIORSHOW WATERPROOF MASCARA; More ..."
+description: "Blinc Mascara Amplified; Rimmel ScandalEyes Retroglam Mascara; BENEFIT COSMETICS BADGAL WATERPROOF MASCARA; Clinique Lash Power Mascara Long-wear Formula"
 url: "https://makeup.allwomenstalk.com/waterproof-mascaras-that-live-up-to-the-claim/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 13 Waterproof Mascaras That Live up to the Claim ...
@@ -114,16 +114,16 @@ Too Faced Better Than Sex Waterproof Mascara, $23; [sephora.com](http://www.seph
 
 ## Related Posts
 
-- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
 - [addicted to love makeup](https://makeup.allwomenstalk.com/signs-youre-addicted-to-lipstick/)
-- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
+- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
+- [how to darken red lipstick](https://makeup.allwomenstalk.com/how-to-wear-red-lipstick-like-a-model/)
+- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
 - [how to perfect lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-apply-matte-lipstick/)
 - [color le stylo smoky rose nude](https://makeup.allwomenstalk.com/sexy-lipsticks-for-valentines-day/)
-- [lip art tutorial](https://makeup.allwomenstalk.com/lip-art-tutorials/)
-- [mentha lip shine cinnamint](https://makeup.allwomenstalk.com/best-on-the-go-lip-glosses/)
+- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
+- [prom makeup looks for red dress](https://makeup.allwomenstalk.com/tips-to-make-your-lip-colour-last-all-night/)
 - [pouty look](https://beauty.allwomenstalk.com/natural-ways-to-make-your-lips-look-fuller/)
 - [vamp lipstick shades](https://makeup.allwomenstalk.com/best-vampy-lipsticks-for-fall/)
-- [best taupe lipstick](https://makeup.allwomenstalk.com/top-best-nude-lipsticks-for-all-skintones/)
 - [7 Great New Mascaras You've Got to Try ...](https://makeup.allwomenstalk.com/great-new-mascaras-youve-got-to-try/)
 - [13 Bourjois Mascaras - Reviews ...](https://allwomenstalk.com/13-bourjois-mascaras-reviews/)
 

@@ -3,7 +3,7 @@ title: "What Are Suede Eyes? How to Do the Soft, Matte, One-Shadow Smoky Eye"
 description: "Suede eyes use one matte brown, taupe or greige shadow diffused over the lid. A 5-step how-to, shades by skin tone and undertone, and suede eyes vs a classic smoky eye."
 url: "https://makeup.allwomenstalk.com/suede-eyes/"
 category: "makeup"
-last_updated: "2026-10-25"
+last_updated: "2026-11-10"
 ---
 
 # What Are Suede Eyes? How to Do the Soft, Matte, One\-Shadow Smoky Eye

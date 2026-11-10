@@ -3,7 +3,7 @@ title: "Latte Makeup: How to Get the Warm, Coffee-Toned Look"
 description: "What is latte makeup? Try this five-step routine for bronzed cheeks, coffee-toned eyes and a nude-brown lip, with shade ideas for every skin tone."
 url: "https://makeup.allwomenstalk.com/latte-makeup/"
 category: "makeup"
-last_updated: "2026-10-30"
+last_updated: "2026-11-10"
 ---
 
 # Latte Makeup: How to Get the Warm, Coffee\-Toned Look

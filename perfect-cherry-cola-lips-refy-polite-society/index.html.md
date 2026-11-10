@@ -1,9 +1,9 @@
 ---
 title: "3 Cult REFY and Polite Society Products for Your Perfect Cherry Cola Lips 👄🍒🥤"
-description: "REFY Blur Liner in Umber; REFY Lip Blush in Canyon; Polite Society's Glossy Lip Balm in French Caramel; Creating the Perfect Cherry Cola Lips; Pricing and Availability; More ..."
+description: "REFY Blur Liner in Umber; REFY Lip Blush in Canyon; Polite Society's Glossy Lip Balm in French Caramel; Creating the Perfect Cherry Cola Lips"
 url: "https://makeup.allwomenstalk.com/perfect-cherry-cola-lips-refy-polite-society/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 3 Cult REFY and Polite Society Products for Your Perfect Cherry Cola Lips 👄🍒🥤

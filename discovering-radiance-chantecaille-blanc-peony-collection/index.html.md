@@ -1,9 +1,9 @@
 ---
 title: "Discovering the Hidden Wonders of Chantecaille's Blanc Peony..."
-description: "The Magic Behind Multi-Brightening Botanical Complex; Experience the Blanc Peony Face Serum; Elevate Your Glow with the Blanc Peony Eye Serum; The Blanc Peony Collection - A Range of Possibilities; More ..."
+description: "The Magic Behind Multi-Brightening Botanical Complex; Experience the Blanc Peony Face Serum; Elevate Your Glow with the Blanc Peony Eye Serum"
 url: "https://makeup.allwomenstalk.com/discovering-radiance-chantecaille-blanc-peony-collection/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Discovering the Hidden Wonders of Chantecaille's Blanc Peony...

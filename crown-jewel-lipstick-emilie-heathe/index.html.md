@@ -1,9 +1,9 @@
 ---
 title: "The Unexpected Charm of E M I L I E H E A T H E's Crown Jewel..."
-description: "A Royal Experience with Crown Jewel; The Allure of Orange-Toned Red; Embracing a Royal Aesthetic; The Crown Jewel Community; More ..."
+description: "A Royal Experience with Crown Jewel; The Allure of Orange-Toned Red; Embracing a Royal Aesthetic; The Crown Jewel Community"
 url: "https://makeup.allwomenstalk.com/crown-jewel-lipstick-emilie-heathe/"
 category: "makeup"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Unexpected Charm of E M I L I E H E A T H E's Crown Jewel...
